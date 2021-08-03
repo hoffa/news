@@ -10,5 +10,6 @@ jobs:
     - uses: actions/checkout@v2
     - uses: actions/setup-go@v2
     - run: go run main.go > index.md
+    - run: git diff
     - run: git add -u
     - run: git commit -m "Update index.md"
