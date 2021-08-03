@@ -14,8 +14,7 @@ British officials have warned of a "potential hijack" of a ship off the coast of
 The head of a group helping people who have fled Belarus has been found dead near his home in neighbouring Ukraine.
 ### [Chinese nationalists turn on Olympic athletes](https://www.bbc.com/news/world-asia-china-58024068)
 The pressure on Chinese athletes to perform has never been higher. Anything less than a gold is being seen as athletes being unpatriotic by furious nationalists online. The BBC's Waiyee Yip reports.
-### [Matt Damon: I have never personally used gay slur](https://www.bbc.com/news/entertainment-arts-58069170)
-Actor Matt Damon has insisted he has never used a gay slur "in my personal life" after being criticised for saying he'd only recently "retired" the word.
 ### [Cave markings point to sophisticated Neanderthals](https://www.bbc.com/news/world-europe-58070141)
 Red markings on a stalagmite dome in a cave system in southern Spain were created by Neanderthals more than 60,000 years ago, a new study says.
-
+### [Matt Damon: I have never personally used gay slur](https://www.bbc.com/news/entertainment-arts-58069170)
+Actor Matt Damon has insisted he has never used a gay slur "in my personal life" after being criticised for saying he'd only recently "retired" the word.
