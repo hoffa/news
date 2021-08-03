@@ -5,10 +5,10 @@ New York Governor Andrew Cuomo has been accused of sexually harassing multiple w
 A pensioner in Germany has been convicted of illegal weapons possession after he was found to own an extensive personal arsenal including a tank. 
 ### [Chinese gold medallists probed over Mao badges](https://www.bbc.com/news/world-asia-china-58075743)
 The International Olympic Committee says it is investigating two Chinese cyclists who wore badges featuring an image of the country's former leader Mao Zedong during a medal ceremony.
-### [Ship hijacked by armed men off UAE](https://www.bbc.com/news/world-middle-east-58078506)
-A Panama-flagged ship has been hijacked by armed men in the Gulf of Oman and ordered to sail to Iran, Lloyds List Maritime Intelligence has confirmed.
 ### [Bodies on the streets as fighting traps Afghans](https://www.bbc.com/news/world-asia-58074525)
 "The Taliban will have no mercy on us and the government won't stop the bombing."
+### [Ship hijacked by armed men off UAE](https://www.bbc.com/news/world-middle-east-58078506)
+A Panama-flagged ship has been hijacked by armed men in the Gulf of Oman and ordered to sail to Iran, Lloyds List Maritime Intelligence has confirmed.
 ### [Black man condemns charges over alleged race attack](https://www.bbc.com/news/world-us-canada-58078503)
 A black man who alleges that he was the victim of a racist attack has himself been charged with assault in the US state of Indiana.
 ### [FBI used staff photos in covert sex crime stings](https://www.bbc.com/news/world-us-canada-58077310)
