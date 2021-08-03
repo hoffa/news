@@ -13,12 +13,16 @@ type Article struct {
 	Summary string
 }
 
-func getSummary(url string) string {
+func getHtml(url string) soup.Root {
 	resp, err := soup.Get(url)
 	if err != nil {
 		log.Fatal(err)
 	}
-	doc := soup.HTMLParse(resp)
+	return soup.HTMLParse(resp)
+}
+
+func getSummary(url string) string {
+	doc := getHtml(url)
 	link := doc.Find("p", "role", "introduction")
 	if link.Error == nil {
 		return link.FullText()
@@ -34,20 +38,14 @@ func getSummary(url string) string {
 func getArticles() []Article {
 	var articles []Article
 	baseUrl := "https://www.bbc.com"
-	resp, err := soup.Get(baseUrl + "/news")
-	if err != nil {
-		log.Fatal(err)
-	}
-	doc := soup.HTMLParse(resp)
+	doc := getHtml(baseUrl + "/news")
 	for _, link := range doc.Find("div", "class", "nw-c-most-read").FindAll("a", "class", "gs-c-promo-heading") {
-		title := link.FullText()
 		url := baseUrl + link.Attrs()["href"]
-		article := Article{
-			Title:   title,
+		articles = append(articles, Article{
+			Title:   link.FullText(),
 			URL:     url,
 			Summary: getSummary(url),
-		}
-		articles = append(articles, article)
+		})
 	}
 	return articles
 }
