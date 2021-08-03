@@ -1,8 +1,8 @@
 # News
 ### [Ship hijacked by armed men off UAE](https://www.bbc.com/news/world-middle-east-58078506)
 A Panama-flagged ship has been hijacked by armed men in the Gulf of Oman and ordered to sail to Iran, Lloyds List Maritime Intelligence has confirmed.
-### [NY's Cuomo 'sexually harassed multiple women'](https://www.bbc.com/news/world-us-canada-58077255)
-New York Governor Andrew Cuomo has been accused of sexually harassing multiple women, subjecting them to unwanted kissing and groping, in a damning independent investigation. 
+### [Biden: Cuomo should resign over misconduct report](https://www.bbc.com/news/world-us-canada-58077255)
+President Joe Biden has called on Andrew Cuomo to resign after a damning independent inquiry found the New York governor had harassed multiple women.
 ### [Hefty fine for pensioner over WW2 tank in house](https://www.bbc.com/news/world-europe-58077039)
 A pensioner in Germany has been convicted of illegal weapons possession after he was found to own an extensive personal arsenal including a tank. 
 ### [Chinese gold medallists probed over Mao badges](https://www.bbc.com/news/world-asia-china-58075743)
@@ -17,5 +17,5 @@ The number of Covid patients in Florida hospitals has risen to a new high, break
 A black man who alleges that he was the victim of a racist attack has himself been charged with assault in the US state of Indiana.
 ### [Missing Belarus activist found dead in park](https://www.bbc.com/news/world-europe-58065313)
 The head of a group helping people who have fled Belarus has been found dead near his home in neighbouring Ukraine.
-### [Cave markings point to sophisticated Neanderthals](https://www.bbc.com/news/world-europe-58070141)
-Red markings on a stalagmite dome in a cave system in southern Spain were created by Neanderthals more than 60,000 years ago, a new study says.
+### [Matt Damon: I have never personally used gay slur](https://www.bbc.com/news/entertainment-arts-58069170)
+Actor Matt Damon has insisted he has never used a gay slur "in my personal life" after being criticised for saying he'd only recently "retired" the word.
