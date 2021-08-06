@@ -1,21 +1,21 @@
 # News
-### [Epstein meetings a huge mistake, says Bill Gates](https://www.bbc.com/news/world-us-canada-58099778)
-Microsoft co-founder Bill Gates has admitted he made "a huge mistake" in spending time with sex offender and disgraced financier Jeffrey Epstein.
-### [How a fake network pushes pro-China propaganda](https://www.bbc.com/news/world-asia-china-58062630)
-A sprawling network of more than 350 fake social media profiles is pushing pro-China narratives and attempting to discredit those seen as opponents of China's government, according to a new study.
+### [What is Fox host Tucker Carlson doing in Hungary?](https://www.bbc.com/news/world-europe-58104200)
+US guest of honour and Fox News host Tucker Carlson was granted a lightning visit by military helicopter to Hungary's 175km (109-mile) high-tech, high-cost razor-wire border fence with Serbia this week. 
+### [Belarus athlete told by grandmother not to return](https://www.bbc.com/news/world-europe-58104195)
+A sprinter from Belarus who refused her team's orders to fly home early from the Olympics has revealed she decided to flee after her grandmother warned her it was not safe to return. 
+### [Turkish influencer prosecuted 'for sex-toy photos'](https://www.bbc.com/news/world-europe-58102368)
+A Turkish social media influencer says she's being prosecuted in her country for posting "joke" photos inside the world-famous Sex Museum in Amsterdam.
+### [Apple to scan iPhones for child sex abuse images](https://www.bbc.com/news/technology-58109748)
+Apple has announced details of a system to find child sexual abuse material (CSAM) on customers' devices. 
+### [Ethiopian rebels take Unesco world heritage town](https://www.bbc.com/news/world-africa-58101912)
+Rebels from Ethiopia's northern Tigray region have taken control of the town of Lalibela, a Unesco world heritage site in neighbouring Amhara region.
+### [Russian gay family flees to Spain after threats](https://www.bbc.com/news/world-europe-58103833)
+A Russian lesbian family who featured in a controversial health food ad say they have left Russia after suffering online abuse and death threats.
+### [Fish with 'human' teeth caught in US](https://www.bbc.com/news/world-us-canada-58105044)
+A rare fish with human-like teeth has been caught in the United States.
 ### ['I could never do what Biles did - say no'](https://www.bbc.com/news/world-us-canada-58043512)
 She was an Olympics child prodigy who could never say what Simone Biles did — no. Twenty-five years later, gold medallist Dominique Moceanu speaks about not having a voice — and how things have changed for the better.
-### [France moves to amber list and green list expands](https://www.bbc.com/news/business-58079107)
-Fully vaccinated passengers returning to England, Scotland and Northern Ireland from France will no longer need to quarantine after Sunday.
-### [Washington NFL team bans Native American dress](https://www.bbc.com/news/world-us-canada-58099157)
-The Washington Football Team, which dropped the controversial name Redskins last year, has now banned fans from wearing Native American headdresses and face paint at its home stadium. 
-### [US plans vaccine mandate for foreign visitors](https://www.bbc.com/news/world-us-canada-58095549)
-The US will eventually require almost all foreign visitors to be fully vaccinated, a White House official has said.
-### [DJ Paul Johnson dies at 50 after catching Covid](https://www.bbc.com/news/entertainment-arts-58100006)
-Influential Chicago house music DJ Paul Johnson has died at the age of 50 after contracting Covid-19.
-### [Why whales in Alaska have been so happy](https://www.bbc.com/news/world-us-canada-58032702)
-The Covid pandemic brought tourism to a near-halt in Alaska last year. What will happen to the majestic humpback whale when cruise ships and visitors return in August?
-### [Migrant van crash kills at least 10 in Texas](https://www.bbc.com/news/world-us-canada-58098189)
-At least 10 people have been killed and 20 injured after the van they were travelling in crashed in Texas.
-### [Covid crashed Obama's party - is yours safe?](https://www.bbc.com/news/world-us-canada-58080853)
-Some of the biggest names in Hollywood and Washington might suddenly have a weekend free. Former President Barack Obama has scaled back his birthday bash this weekend - leaving a few hundred rich and famous at home like the rest of us. 
+### [Hong Kong residents can stay in US, Biden says](https://www.bbc.com/news/world-us-canada-58105075)
+Thousands of Hong Kong residents are to be offered a temporary "safe haven" in the US, President Joe Biden says.
+### [Oatly loses trademark battle against family farm](https://www.bbc.com/news/uk-england-cambridgeshire-58102252)
+A family-run farm has won a legal battle against the multimillion-pound makers of plant milk, Oatly, which accused it of trademark infringement.
