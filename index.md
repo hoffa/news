@@ -1,21 +1,21 @@
 # News
-### [Aniston explains cutting off unvaccinated friends](https://www.bbc.com/news/entertainment-arts-58112957)
-Jennifer Aniston has expanded on why she has cut off some of her friends who have refused to be vaccinated.
+### [Married police couple sacked over Capitol riot](https://www.bbc.com/news/world-us-canada-58088868)
+Two off-duty police officers who stood by as President Donald Trump's backers stormed the US Capitol in Washington DC on 6 January have lost their jobs.
+### [Greece sees 'nightmarish summer' of forest fires](https://www.bbc.com/news/world-europe-58132679)
+Greece's prime minister has talked of a "nightmarish summer" as forest fires continue to ravage the country. 
 ### [German coach thrown out for horse punch](https://www.bbc.com/sport/olympics/58127366)
 A German coach has been thrown out of the Olympics for appearing to punch a horse who was refusing to jump or trot during the modern pentathlon.
-### [9/11 families tell Biden not to attend memorials](https://www.bbc.com/news/world-us-canada-58121267)
-Family members of the victims of the 11 September 2001 terror attacks have called on President Joe Biden to stay away from memorial events unless he declassifies files about the attacks.
-### [How many people are related to Mayflower pilgrims?](https://www.bbc.com/news/world-us-canada-57698818)
-Just over four centuries ago, the ship The Mayflower sailed from Plymouth in the UK to the shores of America, carrying with it a group of travellers who would go down in history. For some, these 17th Century "pilgrim fathers" are also real-life ancestors. But for how many?
-### [Taliban say jail is captured and prisoners freed](https://www.bbc.com/news/world-asia-58127407)
-The Taliban say they have captured a prison in the northern Afghan province of Jawzjan and freed all of the prisoners.
-### [Ryan Reynolds: 'My default is just pure trash'](https://www.bbc.com/news/entertainment-arts-58061823)
-It's difficult to hear the name Ryan Reynolds without thinking of Deadpool, the sweary and sarcastic alternative superhero he's best known for playing.
-### ['We want trillions to heal our wounds'](https://www.bbc.com/news/world-africa-57961151)
-In between the blue water of the Atlantic Ocean and the luscious golden dunes of the Namibian coast are the grounds of a former German concentration camp. 
-### [CNN fires unvaccinated staff who went to office](https://www.bbc.com/news/world-us-canada-58112125)
-US news network CNN has sacked three employees for going into an office without having been vaccinated against Covid, US media say. 
-### [Apple criticised for system that detects child abuse](https://www.bbc.com/news/technology-58124495)
-Apple is facing criticism over a new system that finds child sexual abuse material (CSAM) on US users' devices. 
-### [Ten passengers injured in Tokyo train knife attack](https://www.bbc.com/news/world-asia-58125414)
-A man attacked fellow passengers with a knife on a Tokyo commuter train late on Friday, injuring 10. 
+### [Famous Central Park owl killed in crash with van](https://www.bbc.com/news/world-us-canada-58127413)
+A beloved owl who became a well-known resident in New York's Central Park has died.
+### [Taliban seize second regional capital in two days](https://www.bbc.com/news/world-asia-58127407)
+The Taliban say they have taken control of the city of Sheberghan in the northern Afghan province of Jawzjan.
+### [Google's Larry Page given New Zealand residency](https://www.bbc.com/news/world-asia-58128475)
+Larry Page, Google's co-founder and one of the world's richest men, has been granted New Zealand residency under a category for wealthy investors.
+### [The Nigerian super sleuth wanted in the US](https://www.bbc.com/news/world-africa-58079504)
+Abba Kyari has a reputation in Nigeria as a "super cop".
+### [Pharaoh's 'solar boat' moved to Egyptian museum](https://www.bbc.com/news/in-pictures-58088867)
+An impressive ancient Egyptian boat from the time of the pharaohs has been transported to its new home at the Grand Egyptian Museum in Giza due to open this year near the Pyramids.
+### [Bat killed by cat after record 1,200-mile journey](https://www.bbc.com/news/uk-58128773)
+A record-breaking bat that flew more than 1,200 miles (2,018 km) from London to Russia died after being attacked by a cat.
+### [No more Mao badges, China says, after IOC warning](https://www.bbc.com/news/world-asia-china-58127804)
+China has said its athletes will no longer wear political badges at medal ceremonies at the Tokyo Games, the International Olympic Committee says.
