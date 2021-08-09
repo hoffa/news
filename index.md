@@ -1,21 +1,21 @@
 # News
-### [Married police couple sacked over Capitol riot](https://www.bbc.com/news/world-us-canada-58088868)
-Two off-duty police officers who stood by as President Donald Trump's backers stormed the US Capitol in Washington DC on 6 January have lost their jobs.
-### [Kim calls for relief work in flood-hit North Korea](https://www.bbc.com/news/world-asia-58135753)
-North Korean leader Kim Jong-un has called on the military to carry out relief work in areas recently hit by heavy rains, state media report.
-### [Alpaca must be put down to protect cows - minister](https://www.bbc.com/news/uk-england-gloucestershire-58133468)
-Environment Secretary George Eustice has defended a controversial decision to put down an alpaca that has tested positive for bovine tuberculosis twice.
-### [PSG only 'one possibility' for Messi](https://www.bbc.com/sport/football/58137262)
-An emotional Lionel Messi said joining Paris St-Germain was "a possibility, but nothing is agreed" as he confirmed his exit from Barcelona.
-### [Google's Larry Page given New Zealand residency](https://www.bbc.com/news/world-asia-58128475)
-Larry Page, Google's co-founder and one of the world's richest men, has been granted New Zealand residency under a category for wealthy investors.
-### [Taliban capture key northern Afghan city](https://www.bbc.com/news/world-asia-58135148)
-The Taliban have captured the key northern Afghan city of Kunduz, one of the country's largest, after fierce fighting with government forces.
-### [Pharaoh's 'solar boat' moved to Egyptian museum](https://www.bbc.com/news/in-pictures-58088867)
-An impressive ancient Egyptian boat from the time of the pharaohs has been transported to its new home at the Grand Egyptian Museum in Giza due to open this year near the Pyramids.
-### [Greece sees 'nightmarish summer' of forest fires](https://www.bbc.com/news/world-europe-58132679)
-Greece's prime minister has talked of a "nightmarish summer" as forest fires continue to ravage the country. 
+### [Anger after Zimbabwe bride, 14, dies giving birth](https://www.bbc.com/news/world-africa-58130891)
+Police in Zimbabwe are investigating the death of a 14-year-old girl during childbirth, a case that sparked outrage among citizens and rights activists.
+### [Afghan cities fall to rapid Taliban advance](https://www.bbc.com/news/world-asia-58135148)
+The Taliban have captured three regional capitals in Afghanistan as they continue to make sweeping territorial gains in the country.
 ### [Cuba allows more small businesses after protests](https://www.bbc.com/news/world-latin-america-58132000)
 Cuba's communist government has legalised small and medium-sized private businesses in the wake of mass anti-government protests last month.  
-### [Olympic athletes targeted by misinformation](https://www.bbc.com/news/58086586)
-As the Tokyo Olympics comes to an end, social media posts have been spreading misleading content about some of the competitors, and the events in which they competed.
+### [Kim calls for relief work in flood-hit North Korea](https://www.bbc.com/news/world-asia-58135753)
+North Korean leader Kim Jong-un has called on the military to carry out relief work in areas recently hit by heavy rains, state media report.
+### [21 great photographs from Tokyo 2020](https://www.bbc.com/sport/olympics/58088628)
+BBC Sport selects some of the most striking sporting photographs taken from the Tokyo Olympic Games:
+### [Tobacco giant raises bid for respiratory drugmaker](https://www.bbc.com/news/business-58140752)
+Tobacco giant Philip Morris has raised its bid to buy respiratory drugmaker Vectura to more than £1bn. 
+### [How 'Russia' won more medals than Russia](https://www.bbc.com/sport/olympics/58135905)
+Russian athletes are going home with their most medals since 2004 even though their team, flag and anthem were officially banned from the Tokyo Olympics.
+### [Greece wildfires continue to threaten villages](https://www.bbc.com/news/world-europe-58141336)
+Wildfires are continuing to rip through the Greek island of Evia with strong winds driving flames towards villages. 
+### [‘I'm not a terrorist - just the boy who spoke English'](https://www.bbc.com/news/world-57988934)
+Lamin squints at the sun as he points across the harbour. "This place reminds me of the worst day of my life," he says.  
+### [Chibok schoolgirl returns home seven years on](https://www.bbc.com/news/world-africa-58138504)
+One of the Nigerian schoolgirls seized by Islamist militants Boko Haram from the town of Chibok in 2014 has been freed and reunited with her family.
