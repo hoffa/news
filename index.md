@@ -1,21 +1,21 @@
 # News
-### [Anger after Zimbabwe bride, 14, dies giving birth](https://www.bbc.com/news/world-africa-58130891)
-Police in Zimbabwe are investigating the death of a 14-year-old girl during childbirth, a case that sparked outrage among citizens and rights activists.
-### [Afghan cities fall to rapid Taliban advance](https://www.bbc.com/news/world-asia-58135148)
-The Taliban have captured three regional capitals in Afghanistan as they continue to make sweeping territorial gains in the country.
-### [Cuba allows more small businesses after protests](https://www.bbc.com/news/world-latin-america-58132000)
-Cuba's communist government has legalised small and medium-sized private businesses in the wake of mass anti-government protests last month.  
-### [Kim calls for relief work in flood-hit North Korea](https://www.bbc.com/news/world-asia-58135753)
-North Korean leader Kim Jong-un has called on the military to carry out relief work in areas recently hit by heavy rains, state media report.
+### [Aide to New York governor resigns amid scandal](https://www.bbc.com/news/world-us-canada-58141548)
+A top aide to New York state's Governor Andrew Cuomo has resigned amid a sexual harassment scandal involving her boss. 
+### ['Smallest baby at birth' goes home after a year](https://www.bbc.com/news/world-asia-58141756)
+A baby thought to be the world's smallest at birth has been discharged from a Singapore hospital after 13 months of intensive treatment.
+### [Chinese teen diving star's village mobbed by fans](https://www.bbc.com/news/world-asia-china-58141676)
+China's teen diving sensation Quan Hongchan's family and neighbours have been harassed by tourists hoping to get social media "likes", local media say.
+### [UN to reveal landmark climate report findings](https://www.bbc.com/news/science-environment-58141129)
+The world's largest ever report into climate change will be published later, setting out the stark reality of the state of the planet.
+### [Thai man charged over death of Swiss tourist](https://www.bbc.com/news/world-asia-58141926)
+Thai police have charged a 27-year-old man in connection with the death of a Swiss woman who was found near a waterfall on the resort island of Phuket last week. 
+### [Tech giant Alibaba to sack manager accused of rape](https://www.bbc.com/news/business-58141606)
+Chinese technology giant Alibaba will sack a manager accused of rape, according to a memo seen by the BBC.
+### [Saudi Aramco profits soar by almost 300%](https://www.bbc.com/news/business-58141607)
+Saudi Arabian energy giant Aramco has seen its profits jump almost four times boosted by a rise in oil prices as demand recovers.  
+### [Greece wildfires force island evacuations](https://www.bbc.com/news/world-europe-58141336)
+Wildfires are continuing to rip through the Greek island of Evia, prompting residents to flee to safety by sea. 
 ### [21 great photographs from Tokyo 2020](https://www.bbc.com/sport/olympics/58088628)
 BBC Sport selects some of the most striking sporting photographs taken from the Tokyo Olympic Games:
 ### [Tobacco giant raises bid for respiratory drugmaker](https://www.bbc.com/news/business-58140752)
 Tobacco giant Philip Morris has raised its bid to buy respiratory drugmaker Vectura to more than £1bn. 
-### [How 'Russia' won more medals than Russia](https://www.bbc.com/sport/olympics/58135905)
-Russian athletes are going home with their most medals since 2004 even though their team, flag and anthem were officially banned from the Tokyo Olympics.
-### [Greece wildfires continue to threaten villages](https://www.bbc.com/news/world-europe-58141336)
-Wildfires are continuing to rip through the Greek island of Evia with strong winds driving flames towards villages. 
-### [‘I'm not a terrorist - just the boy who spoke English'](https://www.bbc.com/news/world-57988934)
-Lamin squints at the sun as he points across the harbour. "This place reminds me of the worst day of my life," he says.  
-### [Chibok schoolgirl returns home seven years on](https://www.bbc.com/news/world-africa-58138504)
-One of the Nigerian schoolgirls seized by Islamist militants Boko Haram from the town of Chibok in 2014 has been freed and reunited with her family.
