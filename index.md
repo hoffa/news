@@ -1,21 +1,21 @@
 # News
-### [New York governor resigns in harassment scandal](https://www.bbc.com/news/world-us-canada-58164719)
-New York Governor Andrew Cuomo has resigned after an inquiry found that he sexually harassed multiple women, prompting efforts to remove him.
-### [Campaign to free Dubai's Princess Latifa disbanded](https://www.bbc.com/news/world-middle-east-58156419)
-The campaign to free Princess Latifa, the daughter of the ruler of Dubai, has been disbanded after she was pictured in Iceland.
-### [Biden says no regret over Afghanistan withdrawal](https://www.bbc.com/news/world-asia-58167408)
-US President Joe Biden has said he does not regret his decision to withdraw troops from Afghanistan, as the Taliban continue to make advances.
-### [Missing hiker's boyfriend finds her body](https://www.bbc.com/news/uk-england-tyne-58159591)
-The boyfriend of a British woman who went missing while hiking in the Pyrenees has found her body and belongings.
-### [Anger as Nigerian diplomat manhandled in Indonesia](https://www.bbc.com/news/world-africa-58159675)
-The Nigerian government is demanding punishment for Indonesian immigration officials who were filmed assaulting a Nigerian diplomat.
-### [Zombie film isn't real, writer tells anti-vaxxers](https://www.bbc.com/news/entertainment-arts-58164833)
-One of the writers of the sci-fi film I Am Legend has clarified its fictional nature amid rumours Covid-19 vaccines would turn people into zombies.
-### [An alternative medals table - with US 15th](https://www.bbc.com/news/world-us-canada-58143550)
-The Olympics medals table was again dominated by the biggest countries like the US, which finished top.  But how would the table look if population and wealth were taken into account? 
-### [Ethiopian PM calls on civilians to join war effort](https://www.bbc.com/news/world-africa-58163641)
-Ethiopia's prime minister has called on civilians to join the army in its fight against rebels in the Tigray region.
-### [Ebola-like Marburg virus found in Guinea](https://www.bbc.com/news/world-africa-58156499)
-Guinea health officials have confirmed West Africa's first case of Marburg, a highly infectious disease in the same family as the virus that causes Ebola.
+### [Canadian jailed for 11 years in China for spying](https://www.bbc.com/news/world-asia-china-58168587)
+A court in China has convicted a Canadian businessman of espionage and sentenced him to 11 years in prison.
 ### [Scale of Russian mercenary mission in Libya exposed](https://www.bbc.com/news/world-africa-58009514)
 A new BBC investigation has revealed the scale of operations by a shadowy Russian mercenary group in Libya's civil war, which includes links to war crimes and the Russian military.
+### [Biden says no regret over Afghanistan withdrawal](https://www.bbc.com/news/world-asia-58167408)
+US President Joe Biden has said he does not regret his decision to withdraw troops from Afghanistan, as the Taliban continue to make advances.
+### [Andrew can't ignore courts, accuser's lawyer says](https://www.bbc.com/news/uk-58167469)
+The Duke of York "cannot hide behind wealth and palace walls" and must respond to sexual abuse allegations filed in a US court, his accuser's lawyer told BBC Two's Newsnight.
+### [Facebook removes anti-vax influencer campaign](https://www.bbc.com/news/blogs-trending-58167339)
+Facebook has removed hundreds of accounts which it says were involved in anti-vax disinformation campaigns operated from Russia.
+### [Vaccine fertility misinformation that won't go away](https://www.bbc.com/news/health-57552527)
+False and misleading claims that Covid-19 vaccines harm fertility and cause miscarriages are still circulating online, against all the evidence.
+### [US governor says no funds if schools require masks](https://www.bbc.com/news/world-us-canada-58162329)
+Florida Governor Ron DeSantis, a vocal critic of Covid restrictions, has said the state can withhold salaries from school leaders who enact mask mandates.
+### [Mexican drug cartel threatens to kill TV reporter](https://www.bbc.com/news/world-latin-america-58153732)
+Men claiming to speak for Mexico's most powerful drug cartel have released a video threatening to murder a prominent female news anchor over what they deem to be unfair coverage. 
+### [New York governor resigns in harassment scandal](https://www.bbc.com/news/world-us-canada-58164719)
+New York Governor Andrew Cuomo has resigned after an inquiry found that he sexually harassed multiple women, prompting efforts to remove him.
+### [North Korea leaves hotline with South unanswered](https://www.bbc.com/news/world-asia-58162289)
+North Korea has failed to respond to phone calls from the South, just weeks after the two countries restored hotlines, officials in Seoul say.
