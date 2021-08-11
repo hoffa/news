@@ -1,21 +1,21 @@
 # News
-### [Canadian jailed for 11 years in China for spying](https://www.bbc.com/news/world-asia-china-58168587)
-A court in China has convicted a Canadian businessman of espionage and sentenced him to 11 years in prison.
 ### [Scale of Russian mercenary mission in Libya exposed](https://www.bbc.com/news/world-africa-58009514)
 A new BBC investigation has revealed the scale of operations by a shadowy Russian mercenary group in Libya's civil war, which includes links to war crimes and the Russian military.
-### [Biden says no regret over Afghanistan withdrawal](https://www.bbc.com/news/world-asia-58167408)
-US President Joe Biden has said he does not regret his decision to withdraw troops from Afghanistan, as the Taliban continue to make advances.
+### [Canadian jailed for 11 years in China for spying](https://www.bbc.com/news/world-asia-china-58168587)
+A court in China has convicted a Canadian businessman of espionage and sentenced him to 11 years in prison.
+### [UK embassy employee in Berlin arrested for spying](https://www.bbc.com/news/world-europe-58170872)
+A British man has been arrested in Germany on suspicion of spying for Russia.
 ### [Andrew can't ignore courts, accuser's lawyer says](https://www.bbc.com/news/uk-58167469)
 The Duke of York "cannot hide behind wealth and palace walls" and must respond to sexual abuse allegations filed in a US court, his accuser's lawyer told BBC Two's Newsnight.
-### [Facebook removes anti-vax influencer campaign](https://www.bbc.com/news/blogs-trending-58167339)
-Facebook has removed hundreds of accounts which it says were involved in anti-vax disinformation campaigns operated from Russia.
-### [Vaccine fertility misinformation that won't go away](https://www.bbc.com/news/health-57552527)
-False and misleading claims that Covid-19 vaccines harm fertility and cause miscarriages are still circulating online, against all the evidence.
-### [US governor says no funds if schools require masks](https://www.bbc.com/news/world-us-canada-58162329)
-Florida Governor Ron DeSantis, a vocal critic of Covid restrictions, has said the state can withhold salaries from school leaders who enact mask mandates.
-### [Mexican drug cartel threatens to kill TV reporter](https://www.bbc.com/news/world-latin-america-58153732)
-Men claiming to speak for Mexico's most powerful drug cartel have released a video threatening to murder a prominent female news anchor over what they deem to be unfair coverage. 
-### [New York governor resigns in harassment scandal](https://www.bbc.com/news/world-us-canada-58164719)
-New York Governor Andrew Cuomo has resigned after an inquiry found that he sexually harassed multiple women, prompting efforts to remove him.
-### [North Korea leaves hotline with South unanswered](https://www.bbc.com/news/world-asia-58162289)
-North Korea has failed to respond to phone calls from the South, just weeks after the two countries restored hotlines, officials in Seoul say.
+### [Woman investigated for pretending to be a doctor](https://www.bbc.com/news/world-australia-58170870)
+A woman is under investigation in Australia for allegedly pretending to be a doctor.
+### [Stevie Nicks cancels gigs as US Covid cases rise](https://www.bbc.com/news/entertainment-arts-58169510)
+Singer Stevie Nicks has cancelled all of her gigs for the rest of the year due to rising Covid cases in the US.
+### [Swiss embassy urges China media to remove fake posts](https://www.bbc.com/news/world-asia-china-58168588)
+The Swiss embassy in China has urged Chinese media to take down articles and posts it says contain "false" news.
+### [Afghan president rallies Taliban-besieged city](https://www.bbc.com/news/world-asia-58170847)
+Afghan President Ashraf Ghani has flown to Mazar-i-Sharif to rally pro-government forces as Taliban militants close in on the northern city.
+### [Hackers steal $600m in major cryptocurrency heist](https://www.bbc.com/news/business-58163917)
+Hackers have stolen some $600m (£433m) in what appears to be one the largest cryptocurrency heists ever. 
+### [Ethiopia using rape as strategy of war - Amnesty](https://www.bbc.com/news/world-africa-58167818)
+The Ethiopian military and its allies are responsible for widespread sexual violence against women in Tigray, using rape as a strategy of war, Amnesty International says.
