@@ -1,21 +1,21 @@
 # News
+### [Striking image captures Afghan exodus](https://www.bbc.com/news/world-asia-58242733)
+It's one of the most striking images from the takeover of Afghanistan by the Taliban. Hundreds of Afghans packed into a US military cargo plane as they flee Kabul. 
+### [Kabul hotel - Taliban guards, no women](https://www.bbc.com/news/world-asia-58243134)
+Afghans are going back to work and there are more cars on the streets, but people's behaviour is starting to change in Kabul two days after the Taliban takeover. 
+### [Lily Cole apologises for burka selfie](https://www.bbc.com/news/entertainment-arts-58245304)
+Model, actress and activist Lily Cole has apologised for posting a picture of herself in a burka as a way to "embrace diversity" and promote her new book.
 ### [New Zealand enters lockdown over one Covid case](https://www.bbc.com/news/world-asia-58241619)
 New Zealand has announced a snap lockdown after a man tested positive for Covid, the first case in six months.
-### [Bob Dylan denies sexually abusing girl in 1965](https://www.bbc.com/news/entertainment-arts-58239195)
-Bob Dylan is being sued by a woman who says the US singer-songwriter sexually abused her in 1965 when she was 12.
-### [Bezos sues Nasa over its deal with Elon Musk's SpaceX](https://www.bbc.com/news/business-58235479)
-Jeff Bezos's space firm Blue Origin is suing Nasa over a decision to award a $2.9bn (£2.1bn) lunar lander contract to Elon Musk's SpaceX.
-### [Biden defends 'messy' US pullout from Afghanistan](https://www.bbc.com/news/world-us-canada-58238497)
-President Joe Biden has said he stands "squarely" behind the US exit from Afghanistan as he faces withering criticism over the Taliban's lightning conquest of the war-torn country.
+### [Astronomers see galaxies in ultra-high definition](https://www.bbc.com/news/science-environment-57998940)
+Astronomers have captured some of the most detailed images ever seen of galaxies in deep space.
 ### [Biden's speech on Afghanistan fact-checked](https://www.bbc.com/news/58243158)
-In his speech on Monday evening, President Joe Biden's made a series of assertions about US policy in Afghanistan and the reasons behind his decision to withdraw forces from the country.
-### [Why is Kabul being compared to the fall of Saigon?](https://www.bbc.com/news/world-asia-58234884)
-As the US continues its withdrawal from the Afghan capital, social media has been flooded with pictures of a helicopter evacuating people from the American embassy in Kabul.
-### ['They said it was "gay panic". We believe that's wrong'](https://www.bbc.com/sport/ice-hockey/58101549)
-When Leif Rohlin walked into the locker room for a Saturday training session, the police were there. They told him that his friend and former team-mate had been killed in the street, not far from where he lived.  
-### [Just how hard is it to recycle a jumbo jet?](https://www.bbc.com/news/business-57983174)
-Thanks to the pandemic and the subsequent collapse in air travel, around a quarter of the world's passenger jets remain idle - parked at airports and storage facilities while their owners decide what to do with them.
-### [In pictures: Kabul - a day after Taliban takeover](https://www.bbc.com/news/in-pictures-58225117)
-The Taliban are establishing themselves after sweeping into Kabul unopposed on Sunday.
-### [Taliban return raises fears of Afghan haven for terror](https://www.bbc.com/news/world-asia-58232041)
-In remote, pine-clad valleys of Afghanistan's Kunar province and in online jihadist chat forums there is jubilation at what al-Qaeda supporters see as "a historic victory" by the Taliban. 
+In his speech on Monday evening, President Joe Biden made a series of assertions about US policy in Afghanistan and the reasons behind his decision to withdraw forces from the country.
+### [Actress Selma Blair 'in remission' from MS](https://www.bbc.com/news/entertainment-arts-58240917)
+Actress Selma Blair has said she is "in remission" from multiple sclerosis.
+### [Biden defends 'messy' US pull-out from Afghanistan](https://www.bbc.com/news/world-us-canada-58238497)
+President Joe Biden has said he stands "squarely" behind the US exit from Afghanistan as he faces withering criticism over the Taliban's lightning conquest of the war-torn country.
+### [Thousands flee wildfires near French Riviera](https://www.bbc.com/news/world-europe-58243066)
+Thousands of people, including tourists in campsites, have been moved to safety as firefighters tackle a wildfire close to the French Riviera.
+### [Uganda to welcome refugees fleeing the Taliban](https://www.bbc.com/news/world-africa-58236663)
+Uganda is to take in 2,000 refugees who have fled Afghanistan after Taliban militants took power on Sunday.
