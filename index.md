@@ -1,21 +1,21 @@
 # News
-### [Kabul centre quiet and subdued after Taliban takeover](https://www.bbc.com/news/world-asia-58232815)
-The Taliban captured Afghanistan's capital Kabul on Sunday, 20 years after they were ousted from power. So what does it look and feel like the day after its fall? 
-### [As Kabul falls, Biden backlash grows](https://www.bbc.com/news/world-us-canada-58224399)
-The lightning advance of the Taliban in retaking the country has led Afghan Americans, former generals and leading statesmen to blame President Joe Biden for a hasty US withdrawal. But he appears to have the public on his side - for now.
-### [Desperate Afghans seek to join escape from Kabul](https://www.bbc.com/news/world-asia-58227029)
-There have been scenes of panic at Kabul airport as desperate residents try to flee following the seizure of the Afghan capital by the Taliban.
+### [Bezos sues Nasa over its deal with Elon Musk's SpaceX](https://www.bbc.com/news/business-58235479)
+Jeff Bezos's space firm Blue Origin is suing Nasa over a decision to award a $2.9bn (£2.1bn) lunar lander contract to Elon Musk's SpaceX.
+### [Biden defends US withdrawal from Afghanistan](https://www.bbc.com/news/world-us-canada-58238497)
+President Joe Biden has said he stands "squarely" behind the US exit from Afghanistan as he faces withering criticism over the Taliban's lightning conquest of the war-torn country.
 ### [Uganda anti-pornography law quashed after backlash](https://www.bbc.com/news/world-africa-58235637)
 A controversial anti-pornography law has been quashed in Uganda following pressure from women's rights groups.
+### [Desperate Afghans seek to join escape from Kabul](https://www.bbc.com/news/world-asia-58227029)
+There have been scenes of panic at Kabul airport as desperate residents try to flee following the seizure of the Afghan capital by the Taliban.
+### [Kabul centre quiet and subdued after Taliban takeover](https://www.bbc.com/news/world-asia-58232815)
+The Taliban captured Afghanistan's capital Kabul on Sunday, 20 years after they were ousted from power. So what does it look and feel like the day after its fall? 
+### [Why is Kabul being compared to the fall of Saigon?](https://www.bbc.com/news/world-asia-58234884)
+As the US continues its withdrawal from the Afghan capital, social media has been flooded with pictures of a helicopter evacuating people from the American embassy in Kabul.
+### [Haiti quake deaths soar as storm approaches](https://www.bbc.com/news/world-latin-america-58222888)
+Rescue workers are rushing to locate survivors of the deadly earthquake that struck Haiti on Saturday as a tropical storm is heading towards the Caribbean nation. 
 ### [Who are the Taliban?](https://www.bbc.com/news/world-south-asia-11451718)
 The Taliban were removed from power in Afghanistan by US-led forces in 2001, but the group has been on the offensive in recent months and is now on the brink of seizing power again.
-### ['New York vaccine rule could destroy my restaurant'](https://www.bbc.com/news/business-58204471)
-The pandemic has been tough on Massimo Felici, who owns three restaurants in the Staten Island borough of New York City.
-### [Canada's Trudeau calls snap summer election](https://www.bbc.com/news/world-us-canada-58209031)
-Prime Minister Justin Trudeau has called a snap summer general election as Canada enters into its pandemic fourth wave. 
-### [Ten days that shook Afghanistan](https://www.bbc.com/news/world-58232525)
-The Taliban swept across Afghanistan in just 10 days, taking control of towns and cities across the country.
-### [How the Taliban swept across Afghanistan](https://www.bbc.com/news/world-asia-57933979)
-The Taliban have taken control of Afghanistan, almost 20 years after being ousted by a US-led military coalition. 
-### [Rugby star Kefu attacked in his Brisbane home](https://www.bbc.com/news/world-australia-58227126)
-Former Australian rugby player Toutai Kefu and three relatives have suffered "significant injuries" in an attack by intruders at their Brisbane home.
+### ['They said it was "gay panic". We believe that's wrong'](https://www.bbc.com/sport/ice-hockey/58101549)
+When Leif Rohlin walked into the locker room for a Saturday training session, the police were there. They told him that his friend and former team-mate had been killed in the street, not far from where he lived.  
+### [Just how hard is it to recycle a jumbo jet?](https://www.bbc.com/news/business-57983174)
+Thanks to the pandemic and the subsequent collapse in air travel, around a quarter of the world's passenger jets remain idle - parked at airports and storage facilities while their owners decide what to do with them.
