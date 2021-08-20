@@ -11,11 +11,11 @@ Scroll through New Music Friday releases on streaming services today and you'll 
 Mining giant BHP says it has fired at least 48 workers for sexual assaults and harassment at its Western Australia mining camps since 2019.
 ### [Kill Bill actor Sonny Chiba dies of Covid at 82](https://www.bbc.com/news/entertainment-arts-58279397)
 Japanese actor and martial arts great Sonny Chiba has died at the age of 82 from complications related to Covid.
-### [OnlyFans to ban sexually explicit content](https://www.bbc.com/news/business-58273914)
-The subscription site OnlyFans, known for its adult content, has announced it will block sexually explicit photos and videos from 1 October. 
-### [Sole survivor saved in migrant dinghy in Atlantic](https://www.bbc.com/news/world-europe-58279185)
-A woman has been found clinging to an upturned inflatable dinghy about 138 miles (220km) off the Canary Islands - the only survivor of a migrant tragedy feared to have claimed 52 lives.
-### [How vaccine mandates became a Canada election issue](https://www.bbc.com/news/world-us-canada-58264006)
-Vaccine mandates have emerged as an early wedge issue in Canada's snap federal election - called by Prime Minister Justin Trudeau two years before his current mandate expires. 
 ### [India approves world's first DNA Covid vaccine](https://www.bbc.com/news/world-asia-india-57774294)
 India's drug regulator has approved the world's first DNA vaccine against Covid-19 for emergency use. 
+### ['Everything I ever thought I would have is gone'](https://www.bbc.com/news/world-asia-58270423)
+In Kabul, university students should be getting ready for the start of a new term. Instead, many are destroying evidence of their previous lives as the Taliban patrol the streets outside.
+### [How vaccine mandates became a Canada election issue](https://www.bbc.com/news/world-us-canada-58264006)
+Vaccine mandates have emerged as an early wedge issue in Canada's snap federal election - called by Prime Minister Justin Trudeau two years before his current mandate expires. 
+### [Sole survivor saved in migrant dinghy in Atlantic](https://www.bbc.com/news/world-europe-58279185)
+A woman has been found clinging to an upturned inflatable dinghy about 138 miles (220km) off the Canary Islands - the only survivor of a migrant tragedy feared to have claimed 52 lives.
