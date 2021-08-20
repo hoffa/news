@@ -7,12 +7,12 @@ US pop star Britney Spears is being investigated after one of her home staff all
 Scroll through New Music Friday releases on streaming services today and you'll find an album called One In A Million.
 ### [Kill Bill actor Sonny Chiba dies of Covid at 82](https://www.bbc.com/news/entertainment-arts-58279397)
 Japanese actor and martial arts great Sonny Chiba has died at the age of 82 from complications related to Covid.
-### [How vaccine mandates became a Canada election issue](https://www.bbc.com/news/world-us-canada-58264006)
-Vaccine mandates have emerged as an early wedge issue in Canada's snap federal election - called by Prime Minister Justin Trudeau two years before his current mandate expires. 
 ### [Afghan footballer falls to death from US plane](https://www.bbc.com/news/world-asia-58272740)
 Afghan authorities have confirmed that a young footballer fell to his death after trying to stow away on a US military plane leaving Kabul airport.
 ### [BHP sacked 48 over sexual misconduct at mines](https://www.bbc.com/news/world-australia-58278104)
 Mining giant BHP says it has fired at least 48 workers for sexual assaults and harassment at its Western Australia mining camps since 2019.
+### [How vaccine mandates became a Canada election issue](https://www.bbc.com/news/world-us-canada-58264006)
+Vaccine mandates have emerged as an early wedge issue in Canada's snap federal election - called by Prime Minister Justin Trudeau two years before his current mandate expires. 
 ### [OnlyFans to ban sexually explicit content](https://www.bbc.com/news/business-58273914)
 The subscription site OnlyFans, known for its adult content, has announced it will block sexually explicit photos and videos from 1 October. 
 ### [Sole survivor saved in migrant dinghy in Atlantic](https://www.bbc.com/news/world-europe-58279185)
