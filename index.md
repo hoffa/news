@@ -1,12 +1,12 @@
 # News
-### [Greece erects Turkey border fence as Afghans flee](https://www.bbc.com/news/world-europe-58289893)
-Greece has installed a 40km (25-mile) fence and surveillance system on its border with Turkey amid concern over a surge of migrants from Afghanistan.
-### [The desperate scramble to escape Afghanistan](https://www.bbc.com/news/world-asia-58286000)
-"Get back, get back," screamed the British soldier at a crowd gathered in front of the secure compound where those being evacuated by the UK embassy are taken before flying out. 
 ### [I paid bribe for R. Kelly to wed Aaliyah, says aide](https://www.bbc.com/news/entertainment-arts-58289890)
 A former tour manager for US R&B singer R. Kelly has testified that he bribed a government worker in 1994 to obtain a fake ID for then 15-year-old Aaliyah - so the singers could marry. 
+### [Greece erects Turkey border fence as Afghans flee](https://www.bbc.com/news/world-europe-58289893)
+Greece has installed a 40km (25-mile) fence and surveillance system on its border with Turkey amid concern over a surge of migrants from Afghanistan.
 ### [Poison algae may have killed family - US police](https://www.bbc.com/news/world-us-canada-58288482)
 A family of three who were found dead on a hiking trail in California may have been killed by poison algae, investigators say.
+### [The desperate scramble to escape Afghanistan](https://www.bbc.com/news/world-asia-58286000)
+"Get back, get back," screamed the British soldier at a crowd gathered in front of the secure compound where those being evacuated by the UK embassy are taken before flying out. 
 ### [Biden warns lives could be lost in Kabul airlift](https://www.bbc.com/news/world-us-canada-58285923)
 US President Joe Biden has acknowledged the mass evacuation from Afghanistan is "not without risk of loss".
 ### [Russia plans for new Afghan era with Taliban rule](https://www.bbc.com/news/world-europe-58265934)
@@ -17,5 +17,5 @@ When US and European governments raced to get their citizens and Afghan colleagu
 OnlyFans has plenty of cooking tutorials and fitness classes, but it's best known for one thing - porn.
 ### [Tumult grips White House amid week of Afghanistan failures](https://www.bbc.com/news/world-us-canada-58286766)
 Declaring his support for the Afghan war decades ago, Joe Biden warned: "History is going to judge us very harshly, I believe, if we allow the hope of a liberated Afghanistan to evaporate because we are fearful of the phrase nation-building or we do not stay the course." Will this be the week that history judges his presidency?
-### [Ever Given cargo ship returns through Suez Canal](https://www.bbc.com/news/world-middle-east-58288512)
-The huge container ship that blocked the Suez Canal in March - disrupting global trade - has passed back through the waterway without incident.
+### [Jeopardy! host quits as sexist comments surface](https://www.bbc.com/news/world-us-canada-58285996)
+TV presenter Mike Richards has stepped down as the new co-host of the US quiz show Jeopardy! after sexist comments that he made on a podcast resurfaced. 
