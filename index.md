@@ -15,7 +15,7 @@ When US and European governments raced to get their citizens and Afghan colleagu
  After scrambling for days to bring them to safety, nine members of an Afghan all-girls robotics team have arrived in Qatar, the team's parent organisation has confirmed.Their flight out of Afghanistan was organised by the Qatar government, which expedited visas and sent an aircraft.The team first made headlines in 2017 after winning a special award at an international robotics competition in the US.
 ### [OnlyFans porn ban a 'kick in the teeth' for creators](https://www.bbc.com/news/newsbeat-58282653)
 OnlyFans has plenty of cooking tutorials and fitness classes, but it's best known for one thing - porn.
-### [Ever Given cargo ship returns through Suez Canal](https://www.bbc.com/news/world-middle-east-58288512)
-The huge container ship that blocked the Suez Canal in March - disrupting global trade - has passed back through the waterway without incident.
 ### [Tumult grips White House amid week of Afghanistan failures](https://www.bbc.com/news/world-us-canada-58286766)
 Declaring his support for the Afghan war decades ago, Joe Biden warned: "History is going to judge us very harshly, I believe, if we allow the hope of a liberated Afghanistan to evaporate because we are fearful of the phrase nation-building or we do not stay the course." Will this be the week that history judges his presidency?
+### [Ever Given cargo ship returns through Suez Canal](https://www.bbc.com/news/world-middle-east-58288512)
+The huge container ship that blocked the Suez Canal in March - disrupting global trade - has passed back through the waterway without incident.
