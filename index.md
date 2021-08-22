@@ -15,7 +15,7 @@ The discovery of a giant snail in a box at a parcel office has prompted an appea
 Love Island draws to a close on Monday - bringing to an end another holiday fling for fans of ITV2's reality dating series. Now in its seventh season, is the show still worth sharing a bed with or are audiences ready to give it the slow fade?
 ### [Antibody tests offered to public for first time](https://www.bbc.com/news/uk-58293249)
 Antibody tests are to be widely offered to the UK public for the first time in a new programme that aims to find out more about how much natural protection people have after getting coronavirus.
-### [US East Coast braced for Storm Henri](https://www.bbc.com/news/world-us-canada-58294809)
-Residents on the US East Coast have been urged to prepare for one of the most powerful storms in years.
 ### [Russia plans for new Afghan era with Taliban rule](https://www.bbc.com/news/world-europe-58265934)
 When US and European governments raced to get their citizens and Afghan colleagues out of Kabul this week, Russia was one of very few countries not visibly alarmed by the Taliban takeover.
+### [US East Coast braced for Storm Henri](https://www.bbc.com/news/world-us-canada-58294809)
+Residents on the US East Coast have been urged to prepare for one of the most powerful storms in years.
