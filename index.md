@@ -1,21 +1,21 @@
 # News
 ### [US orders civilian jets to join Afghan evacuation](https://www.bbc.com/news/world-asia-58299804)
 Commercial planes will be used to help with the evacuation of people from Afghanistan, the US says. 
+### [Putin must not use gas pipeline as weapon - Merkel](https://www.bbc.com/news/world-europe-58301099)
+German Chancellor Angela Merkel has said further sanctions may be imposed on Russia if it uses a controversial gas pipeline against Ukraine.
 ### [Blair: Afghan withdrawal driven by imbecilic slogan](https://www.bbc.com/news/uk-58295384)
 The US withdrawal from Afghanistan was wrong and based on an "imbecilic" slogan, former PM Tony Blair has said.
 ### [NZ Covid strategy in doubt amid Delta spread](https://www.bbc.com/news/world-asia-58297895)
 The arrival of the highly infectious Delta variant "does raise some big questions" about New Zealand's pandemic response, a minister has said.
-### [Storm Henri makes landfall at Rhode Island](https://www.bbc.com/news/world-us-canada-58300877)
-More than 120,000 US North East homes are without power after Tropical Storm Henri made landfall at Rhode Island.
 ### [Where will all the Afghan refugees go?](https://www.bbc.com/news/world-asia-58283177)
 Thousands of people have been scrambling to flee Afghanistan after the Taliban seized back control of the country, almost two decades after they were ousted by a US-led coalition.
+### [The US base behind China's latest Covid conspiracy](https://www.bbc.com/news/world-us-canada-58273322)
+A disinformation campaign claiming that the Covid-19 virus originated from an American military base in Maryland has gained popularity in China ahead of the release of a US intelligence report on the virus origins.
 ### ['Hey world, do you care what happens here?'](https://www.bbc.com/news/world-asia-58297623)
 A week after the Taliban takeover of the country, many Afghans are uncertain of what it will mean for their lives and their safety. Here, a young female student shares her fears about her future. The BBC is not identifying her to protect her safety.
+### [Storm Henri makes landfall at Rhode Island](https://www.bbc.com/news/world-us-canada-58300877)
+More than 120,000 US North East homes are without power after Tropical Storm Henri made landfall at Rhode Island.
 ### [Snail mail surprise for parcel workers](https://www.bbc.com/news/uk-england-leicestershire-58288567)
 The discovery of a giant snail in a box at a parcel office has prompted an appeal by animal welfare officers.
-### [Nigeria's royal wedding: Private jets, glitz and glamour](https://www.bbc.com/news/world-africa-58291132)
-Private jets filled up the runway of the airport in the northern Nigerian city of Kano as members of Nigeria's elite and West African dignitaries flew in for the wedding of the president's son and the daughter of a prominent religious and traditional leader.
-### [Antibody tests offered to public for first time](https://www.bbc.com/news/uk-58293249)
-Antibody tests are to be widely offered to the UK public for the first time in a new programme that aims to find out more about how much natural protection people have after getting coronavirus.
-### [OnlyFans: How it handles illegal sex videos](https://www.bbc.com/news/uk-58255865)
-Internal documents, leaked to BBC News, reveal that OnlyFans allows moderators to give multiple warnings to accounts that post illegal content on its online platform before deciding to close them. 
+### [Kamala Harris on charm offensive in South East Asia](https://www.bbc.com/news/world-asia-58277226)
+When US Vice President Kamala Harris arrives in Vietnam on the second part of her South East Asian tour, she can be grateful it is Hanoi she is flying into, not the larger commercial capital in the south, Ho Chi Minh City, formerly Saigon, which was re-named in 1975 after the first insurgent leader to force a humiliating American withdrawal. 
