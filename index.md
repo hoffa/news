@@ -3,19 +3,19 @@
 A 22-month-old girl found alive after four days in a Russian forest has promised never to disappear again.
 ### [Iran prisons chief apologises over abuse videos](https://www.bbc.com/news/world-middle-east-58315816)
 The head of Iran's prison service has apologised after hackers leaked videos showing the abuse of detainees at Tehran's notorious Evin prison.
-### [McDonald's restaurants run out of milkshakes](https://www.bbc.com/news/business-58315152)
-McDonald's has run out of milkshakes and some bottled drinks at restaurants in England, Scotland and Wales.
 ### [Why can't the UK hold Kabul airport without the US?](https://www.bbc.com/news/world-58305185)
 The UK is set to ask the US to extend its deadline for leaving Afghanistan, to allow more rescue flights.
+### [McDonald's restaurants run out of milkshakes](https://www.bbc.com/news/business-58315152)
+McDonald's has run out of milkshakes and some bottled drinks at restaurants in England, Scotland and Wales.
 ### [How Afghanistan rattled Asia and emboldened China](https://www.bbc.com/news/world-asia-58312949)
 Like many across the world, millions in Asia have been shocked by the scenes of desperation coming out of Afghanistan - with some asking if America can still be trusted.
+### [Tonnes of dead fish wash up in Spanish lagoon](https://www.bbc.com/news/world-europe-58311105)
+Tonnes of dead fish have washed up on the shores of a large saltwater lagoon in south-east Spain in recent days after a mass die-off that has shocked local residents and environmentalists.
 ### [Proud Boys leader sentenced to five months in jail](https://www.bbc.com/news/world-us-canada-58312254)
 The leader of the far-right Proud Boys group has been given nearly six months in jail for burning a stolen Black Lives Matter flag and a weapons crime.
 ### [Kamala Harris condemns China, deflects from Kabul](https://www.bbc.com/news/world-asia-58312947)
 US Vice President Kamala Harris has hit out at China during a speech made in Singapore on the first leg of a South East Asian tour.
+### [Credible reports of executions by Taliban - UN](https://www.bbc.com/news/world-asia-58315413)
+Reports of the Taliban carrying out summary executions in Afghanistan are "credible", says UN Human Rights High Commissioner Michelle Bachelet. 
 ### [Shot in the head, left for dead, now a Wetherspoons star](https://www.bbc.com/news/uk-58266180)
 After the bullet burst through his mouth and neck, Cesar Kimbirima lay in the long grass, thought of his family, and waited to die.
-### [Europe's extreme rains made more likely by humans](https://www.bbc.com/news/science-environment-58309900)
-The heavy rainfall behind deadly flooding in Europe in July was made more likely by climate change, scientists say.
-### [Tonnes of dead fish wash up in Spanish lagoon](https://www.bbc.com/news/world-europe-58311105)
-Tonnes of dead fish have washed up on the shores of a large saltwater lagoon in south-east Spain in recent days after a mass die-off that has shocked local residents and environmentalists.
