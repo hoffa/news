@@ -1,21 +1,21 @@
 # News
-### [Afghan working women must stay at home - Taliban](https://www.bbc.com/news/world-asia-58315413)
+### [Rolling Stones drummer Charlie Watts dies at 80](https://www.bbc.com/news/entertainment-arts-58316842)
+Rolling Stones drummer Charlie Watts, who helped them become one of the greatest bands in rock 'n' roll, has died at the age of 80.
+### [Afghan working women to stay at home for now](https://www.bbc.com/news/world-asia-58315413)
 Working women in Afghanistan must stay at home until proper systems are in place to ensure their safety, a Taliban spokesman has told reporters.
+### [Why can't the UK hold Kabul airport without the US?](https://www.bbc.com/news/world-58305185)
+The UK has warned the US decision to leave Afghanistan on 31 August will mean an end to evacuations from Kabul airport.
 ### ['Never again', vows toddler lost in woods for days](https://www.bbc.com/news/world-europe-58315926)
 A 22-month-old girl found alive after four days in a Russian forest has promised never to disappear again.
-### [Why can't the UK hold Kabul airport without the US?](https://www.bbc.com/news/world-58305185)
-The UK is set to ask the US to extend its deadline for leaving Afghanistan, to allow more rescue flights.
 ### [CIA head met Taliban leader in Kabul - US media](https://www.bbc.com/news/world-asia-58320516)
 The head of the US Central Intelligence Agency (CIA) secretly met the leader of the Taliban in Kabul in Monday, sources have told US media.
+### [Yakuza mobster sentenced to death in Japan](https://www.bbc.com/news/world-asia-58321573)
+A court in south-western Japan has sentenced the head of a powerful crime syndicate to death by hanging.
 ### [Poison probe after drinks spiked on German campus](https://www.bbc.com/news/world-europe-58315927)
 German police have begun an attempted murder investigation after six people were taken to hospital in a case of suspected poisoning at Darmstadt Technical University.
 ### [McDonald's restaurants run out of milkshakes](https://www.bbc.com/news/business-58315152)
 McDonald's has run out of milkshakes and some bottled drinks at restaurants in England, Scotland and Wales.
-### [Kamala Harris condemns China, deflects from Kabul](https://www.bbc.com/news/world-asia-58312947)
-US Vice President Kamala Harris has hit out at China during a speech made in Singapore on the first leg of a South East Asian tour.
 ### [Iran prisons chief apologises over abuse videos](https://www.bbc.com/news/world-middle-east-58315816)
 The head of Iran's prison service has apologised after hackers leaked videos showing the abuse of detainees at Tehran's notorious Evin prison.
-### [Tonnes of dead fish wash up in Spanish lagoon](https://www.bbc.com/news/world-europe-58311105)
-Tonnes of dead fish have washed up on the shores of a large saltwater lagoon in south-east Spain in recent days after a mass die-off that has shocked local residents and environmentalists.
-### [Proud Boys leader sentenced to five months in jail](https://www.bbc.com/news/world-us-canada-58312254)
-The leader of the far-right Proud Boys group has been given nearly six months in jail for burning a stolen Black Lives Matter flag and a weapons crime.
+### [How Afghanistan rattled Asia and emboldened China](https://www.bbc.com/news/world-asia-58312949)
+Like many across the world, millions in Asia have been shocked by the scenes of desperation coming out of Afghanistan - with some asking if America can still be trusted.
