@@ -5,16 +5,16 @@ An ex-Royal Marine has told how he was "turned away" while trying to leave Kabul
 The tech industry is at a crunch point. 
 ### [Apple chief executive Tim Cook gets $750m payout](https://www.bbc.com/news/business-58352098)
 Apple chief executive Tim Cook has received more than five million shares in the technology giant, as he marks ten years in the job.
-### [Tom Cruise's BMW stolen during filming](https://www.bbc.com/news/uk-england-birmingham-58356160)
-Hollywood actor Tom Cruise's BMW was stolen while he was filming in Birmingham. 
-### [Vaccine complications dwarfed by virus risks](https://www.bbc.com/news/health-58347434)
-A major review of vaccines suggests the AstraZeneca jab does raise the risk of blood clots and another serious condition that can cause bleeding.
-### [Man Utd 'reach agreement' to re-sign Ronaldo](https://www.bbc.com/sport/football/58359561)
-Manchester United have confirmed they have reached an agreement to re-sign Cristiano Ronaldo from Juventus.
-### [Kenya gridlock leaves drivers stranded overnight](https://www.bbc.com/news/world-africa-58357186)
-Frustrated drivers in Kenya have been venting their anger after spending hours overnight in an enormous traffic jam in the capital, Nairobi.
+### [Officer who shot Capitol rioter reveals identity](https://www.bbc.com/news/world-us-canada-58286404)
+The police officer who fatally shot Ashli Babbitt, who was among those breaching the US Capitol in January, has revealed his identify for the first time. Michael Byrd, a 28-year veteran of the Capitol police, said he only shot the 35-year-old as a last resort while protecting members of Congress and their staff.
 ### [Kardashian wears wedding gown for Kanye West event](https://www.bbc.com/news/entertainment-arts-58356475)
 Kim Kardashian wore a wedding dress as she attended the latest "listening party" for her soon-to-be-ex husband Kanye West's new album Donda.
+### [Kenya gridlock leaves drivers stranded overnight](https://www.bbc.com/news/world-africa-58357186)
+Frustrated drivers in Kenya have been venting their anger after spending hours overnight in an enormous traffic jam in the capital, Nairobi.
+### [Man Utd 'reach agreement' to re-sign Ronaldo](https://www.bbc.com/sport/football/58359561)
+Manchester United have confirmed they have reached an agreement to re-sign Cristiano Ronaldo from Juventus.
+### [Tom Cruise's BMW stolen during filming](https://www.bbc.com/news/uk-england-birmingham-58356160)
+Hollywood actor Tom Cruise's BMW was stolen while he was filming in Birmingham. 
 ### [Afghan details found in British embassy in Kabul](https://www.bbc.com/news/uk-58351938)
 "Every effort" was made to destroy sensitive material when British embassy staff evacuated their Kabul building as the Taliban approached, the Foreign Office has said.
 ### [New species of ancient four-legged whale found](https://www.bbc.com/news/world-middle-east-58340807)
