@@ -11,11 +11,11 @@ A major review of vaccines suggests the AstraZeneca jab does raise the risk of b
 A Florida doctor has been removed from his hospital job amid reports that he offered parents medical letters to circumvent school mask requirements.
 ### [Peloton cuts price of bike as sales growth slows](https://www.bbc.com/news/business-58351462)
 The fitness bike maker Peloton is to slash the price of its flagship bike as people head back to the gym and do less exercise at home.
-### [Seven locations move to Covid travel green list](https://www.bbc.com/news/uk-58348541)
-Canada and Denmark are among seven countries moving to the green list in the latest changes to Covid restrictions.
-### [Afghanistan crisis: Who are IS-K?](https://www.bbc.com/news/world-asia-58333533)
-IS-K - or to give it its more accurate name, Islamic State Khorasan Province - is the regional affiliate of the Islamic State group that is active in Afghanistan and Pakistan. 
+### [US promises to hunt down Kabul airport jihadists](https://www.bbc.com/news/world-asia-58351056)
+President Joe Biden has promised to hunt down the jihadists behind an attack in Kabul which killed at least 90 people - including 13 US troops.
 ### [Why is there a chip shortage?](https://www.bbc.com/news/business-58230388)
 The tech industry is at a crunch point. 
+### [Seven locations move to Covid travel green list](https://www.bbc.com/news/uk-58348541)
+Canada and Denmark are among seven countries moving to the green list in the latest changes to Covid restrictions.
 ### [Wanted Thai police chief 'Jo Ferrari' surrenders](https://www.bbc.com/news/world-asia-58352441)
 A former Thai police chief who went on the run after allegedly torturing a suspect to death has surrendered.
