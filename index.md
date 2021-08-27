@@ -1,4 +1,6 @@
 # News
+### [Robert F Kennedy assassin granted prison release](https://www.bbc.com/news/world-us-canada-58364572)
+A Californian parole board has voted to grant prison release to the murderer of Democratic 1968 presidential candidate Robert F Kennedy (RFK).
 ### [Scientists find world's northernmost island](https://www.bbc.com/news/world-europe-58362752)
 A group of scientists say they have discovered by luck what they believe is the world's northernmost island off Greenland's coast.
 ### [New Orleans braces for direct hit from hurricane](https://www.bbc.com/news/world-us-canada-58361215)
@@ -11,11 +13,9 @@ The tech industry is at a crunch point.
 The US says it will keep evacuating Afghans from Kabul airport until "the last moment", despite continuing concerns about attacks from the Islamic State (IS) group.
 ### [Pen Farthing team 'turned away' from Kabul airport](https://www.bbc.com/news/uk-england-essex-58354229)
 An ex-Royal Marine has told how he was "turned away" while trying to leave Kabul - as the UK's defence minister said his supporters had "taken up too much time" of senior commanders.
-### [Kenya gridlock leaves drivers stranded overnight](https://www.bbc.com/news/world-africa-58357186)
-Frustrated drivers in Kenya have been venting their anger after spending hours overnight in an enormous traffic jam in the capital, Nairobi.
-### [Kardashian wears wedding gown for Kanye West event](https://www.bbc.com/news/entertainment-arts-58356475)
-Kim Kardashian wore a wedding dress as she attended the latest "listening party" for her soon-to-be-ex husband Kanye West's new album Donda.
-### [Man Utd 'reach agreement' to re-sign Ronaldo](https://www.bbc.com/sport/football/58359561)
-Manchester United have confirmed they have reached an agreement to re-sign Cristiano Ronaldo from Juventus.
 ### [New species of ancient four-legged whale found](https://www.bbc.com/news/world-middle-east-58340807)
 Scientists in Egypt have identified a new species of four-legged whale that lived around 43 million years ago.
+### [Kenya gridlock leaves drivers stranded overnight](https://www.bbc.com/news/world-africa-58357186)
+Frustrated drivers in Kenya have been venting their anger after spending hours overnight in an enormous traffic jam in the capital, Nairobi.
+### [Who are the group claiming the Kabul airport attack?](https://www.bbc.com/news/world-asia-58333533)
+An attack in Kabul which killed at least 90 people - including 13 US troops - has been claimed by a local branch of Islamic State (IS).
