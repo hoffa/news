@@ -1,6 +1,6 @@
 # News
-### [US drone strike 'kills IS militant' in Afghanistan](https://www.bbc.com/news/world-asia-58364743)
-The US has carried out a drone strike on the Islamic State (IS) group in eastern Afghanistan, killing a member of the group, military officials say.
+### [US drone strike 'kills IS planner' in Afghanistan](https://www.bbc.com/news/world-asia-58364743)
+The US military says it believes it has killed a planner for a branch of the Islamic State (IS) group in a drone strike in eastern Afghanistan.
 ### [Scientists find world's northernmost island](https://www.bbc.com/news/world-europe-58362752)
 A group of scientists say they have discovered by luck what they believe is the world's northernmost island off Greenland's coast.
 ### [US spy agencies split on Covid origin theories](https://www.bbc.com/news/world-us-canada-58361211)
@@ -13,9 +13,9 @@ The tech industry is at a crunch point.
 An ex-Royal Marine has told how he was "turned away" while trying to leave Kabul - as the UK's defence minister said his supporters had "taken up too much time" of senior commanders.
 ### [Does feeding garden birds do more harm than good?](https://www.bbc.com/news/science-environment-58346043)
 The regular feathered visitors to the bird feeders I hang in a particularly lovely tree outside my kitchen window are a welcome dose of colourful nature in a sometimes repetitive daily schedule. 
-### [How do the Taliban make money?](https://www.bbc.com/news/world-46554097)
-The Taliban are thought to be one of the wealthiest insurgent groups in the world, and after two decades of fighting US and partner forces, the militants now control Afghanistan.  
 ### [New Orleans braces for direct hit from hurricane](https://www.bbc.com/news/world-us-canada-58361215)
 The mayor of New Orleans has called for residents to evacuate unprotected city neighbourhoods as Hurricane Ida bears down on the Louisiana coastline.
+### [How do the Taliban make money?](https://www.bbc.com/news/world-46554097)
+The Taliban are thought to be one of the wealthiest insurgent groups in the world, and after two decades of fighting US and partner forces, the militants now control Afghanistan.  
 ### [Kenya gridlock leaves drivers stranded overnight](https://www.bbc.com/news/world-africa-58357186)
 Frustrated drivers in Kenya have been venting their anger after spending hours overnight in an enormous traffic jam in the capital, Nairobi.
