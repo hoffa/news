@@ -13,9 +13,9 @@ The US military says it believes it has killed a planner for the Afghan branch o
 The regular feathered visitors to the bird feeders I hang in a particularly lovely tree outside my kitchen window are a welcome dose of colourful nature in a sometimes repetitive daily schedule. 
 ### [How do the Taliban make money?](https://www.bbc.com/news/world-46554097)
 The Taliban are thought to be one of the wealthiest insurgent groups in the world, and after two decades of fighting US and partner forces, the militants now control Afghanistan.  
-### [Pen Farthing through airport security with animals](https://www.bbc.com/news/uk-england-essex-58360419)
-An animal charity's founder has made it through Kabul airport's security, the Ministry of Defence (MoD) said.
 ### [Delta variant doubles Covid hospitalisation risk](https://www.bbc.com/news/health-58354342)
 People are twice as likely to need hospital care if they are sick with the Delta Covid variant, rather than the Alpha variant that was once prevalent in the UK, data from England suggests. 
 ### [New Orleans braces for direct hit from hurricane](https://www.bbc.com/news/world-us-canada-58361215)
 The mayor of New Orleans has called for residents to evacuate unprotected city neighbourhoods as Hurricane Ida bears down on the Louisiana coastline.
+### [How Man Utd pulled off shock Ronaldo transfer](https://www.bbc.com/sport/football/58358834)
+By the time Ole Gunnar Solskjaer sat down for what can sometimes be a chaotic media Zoom call at 13:15 BST on Friday afternoon, the Manchester United manager already knew Cristiano Ronaldo would be returning to Old Trafford.
