@@ -9,10 +9,10 @@ A US drone strike near Kabul airport ended up killing 10 members of one family, 
 New Zealand has reported what it believes to be its first death linked to the Pfizer Covid-19 vaccine. 
 ### [Donda released without my approval - Kanye West](https://www.bbc.com/news/entertainment-arts-58383576)
 Kanye West has claimed his label, Universal Music Group, released his much-delayed 10th studio album Donda without his approval.
+### [EU recommends new Covid travel restrictions for US](https://www.bbc.com/news/world-us-canada-58386967)
+The European Union recommended a pause on all non-essential travel from the US as Covid-19 cases surge.
 ### [New Orleans loses power as Hurricane Ida strikes](https://www.bbc.com/news/world-us-canada-58378788)
 A million people are without power in Louisiana from Hurricane Ida, which has been downgraded to a tropical storm.
-### [Covid vaccine slump worrying in Europe - WHO](https://www.bbc.com/news/world-europe-58385043)
-A spike in coronavirus infections and a slump in vaccination uptake is holding back Europe's effort to curb the pandemic, the World Health Organization (WHO) has warned.
 ### [Japan's huge army of under-employed ex-housewives](https://www.bbc.com/news/business-58301604)
 There are plenty of smart, educated women in Japan who could be driving the country out of its current economic slump to a stunning pandemic recovery. 
 ### [Black Hawks and Humvees: Taliban's military gains](https://www.bbc.com/news/world-asia-58356045)
