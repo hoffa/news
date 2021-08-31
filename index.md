@@ -11,11 +11,11 @@ Kanye West has claimed his label, Universal Music Group, released his much-delay
 The Pentagon says it can't yet dispute claims that a US drone strike on a suspected suicide bomber in Afghanistan killed a number of civilians.
 ### [EU recommends new Covid travel restrictions for US](https://www.bbc.com/news/world-us-canada-58386967)
 The European Union recommended a pause on all non-essential travel from the US as Covid-19 cases surge.
+### [Who is Elizabeth Holmes and why is she on trial?](https://www.bbc.com/news/business-58336998)
+She was "the world's youngest self-made female billionaire" trumpeted Forbes magazine. The "next Steve Jobs", said Inc., another business magazine that put her on the cover.
 ### [Restoring power after Ida 'may take weeks'](https://www.bbc.com/news/world-us-canada-58378788)
-Louisiana residents may be in the dark for days as officials take stock of the damage from Hurricane Ida, which has been downgraded to a tropical storm.
+Louisiana residents may be in the dark for weeks as officials take stock of the damage from Hurricane Ida.
 ### [NZ woman dies after receiving Pfizer vaccine](https://www.bbc.com/news/world-asia-58380867)
 New Zealand has reported what it believes to be its first death linked to the Pfizer Covid-19 vaccine. 
-### [Black Hawks and Humvees: Taliban's military gains](https://www.bbc.com/news/world-asia-58356045)
-A video recently posted on social media showed Taliban fighters looking on as an iconic piece of US materiel (military hardware) - a Black Hawk helicopter - was piloted across Kandahar airport.
 ### [Japan's huge army of under-employed ex-housewives](https://www.bbc.com/news/business-58301604)
 There are plenty of smart, educated women in Japan who could be driving the country out of its current economic slump to a stunning pandemic recovery. 
