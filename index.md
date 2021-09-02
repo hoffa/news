@@ -17,5 +17,5 @@ A prominent television presenter in Ivory Coast has received a 12-month suspende
 The Taliban's celebratory gunfire crackled over Kabul as the West pulled out this week. But militancy alone is likely to leave the Taliban on its own - globally isolated, with millions of Afghans facing an even more uncertain future. 
 ### [Kabul make-up artist: 'Women like me are Taliban targets'](https://www.bbc.com/news/stories-58388333)
 On the day the Taliban took control of Afghanistan's capital Kabul, advertising posters outside beauty parlours showing women in bridalwear were painted over. Salons around the city were closed down too. While some businesses have vowed to return to full service soon, others fear for their futures. Afsoon (not her real name), a make-up artist in hiding, describes how much the beauty industry has meant to Afghan women.
-### [What Texas women make of six-week abortion ban](https://www.bbc.com/news/world-us-canada-58416037)
-A new law restricting access to abortions is being celebrated by supporters in Texas, but for the doctors and pro-choice activists who could be prosecuted under it, this was a dark day.
+### [McDonald’s in US hiring 14-year-olds amid shortage](https://www.bbc.com/news/business-58414597)
+A branch of McDonald's in Oregon, US, is calling on 14 and 15 year olds to apply for jobs at the restaurant amid a shortage of fast food workers.
