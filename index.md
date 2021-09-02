@@ -13,8 +13,8 @@ The International Space Station (ISS) could suffer "irreparable" failures due to
 A year can be a lifetime in politics. The past two probably qualify as a generation's worth of lifetimes, so a reader might be forgiven for not quite remembering why the name of Ukraine's president Volodymyr Zelensky rings a bell.
 ### [What Texas women make of six-week abortion ban](https://www.bbc.com/news/world-us-canada-58416037)
 A new law restricting access to abortions is being celebrated by supporters in Texas, but for the doctors and pro-choice activists who could be prosecuted under it, this was a dark day.
-### [Historic impeachment trial for Danish ex-minister](https://www.bbc.com/news/world-europe-58408471)
-A historic impeachment trial gets underway in Denmark on Thursday against a former minister who spearheaded dozens of tough immigration measures.
+### [China steps in amid anger over brutal work hours](https://www.bbc.com/news/world-asia-china-58381538)
+Chinese tech tycoon Jack Ma famously said it was a "blessing" for anyone to be part of the so-called "996 work culture"- where people work 9am to 9pm, six days a week. 
 ### [Ronaldo breaks international goal record](https://www.bbc.com/sport/football/58412201)
 Cristiano Ronaldo broke the world record for goals scored in men's international football as he hit his 110th and 111th goals for Portugal in their dramatic 2-1 World Cup qualifying win over the Republic of Ireland.
 ### [North Korea rejects offer of Chinese Covid-19 jabs](https://www.bbc.com/news/world-asia-58408913)
