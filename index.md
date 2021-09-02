@@ -1,8 +1,6 @@
 # News
 ### [How much trouble is Trudeau in?](https://www.bbc.com/news/world-us-canada-58389802)
 Canada's Justin Trudeau called a snap election in mid-August hoping an early campaign could net his Liberals a majority government. But with their lead in the poll vanishing at the campaign's halfway point, is one still within reach? 
-### [New York and New Jersey floods kill at least nine](https://www.bbc.com/news/world-us-canada-58417442)
-At least nine people have died after flash flooding and tornadoes hit the north-eastern US, local media report.
 ### [Anger after Paralympian is stripped of gold medal](https://www.bbc.com/news/world-asia-58405211)
 The International Paralympics Committee (IPC) has defended a decision to strip a Malaysian athlete of his gold medal.
 ### [India actor Siddharth Shukla dies at 40](https://www.bbc.com/news/world-asia-india-58395388)
@@ -19,3 +17,5 @@ The Taliban's celebratory gunfire crackled over Kabul as the West pulled out thi
 On the day the Taliban took control of Afghanistan's capital Kabul, advertising posters outside beauty parlours showing women in bridalwear were painted over. Salons around the city were closed down too. While some businesses have vowed to return to full service soon, others fear for their futures. Afsoon (not her real name), a make-up artist in hiding, describes how much the beauty industry has meant to Afghan women.
 ### [McDonald’s in US hiring 14-year-olds amid shortage](https://www.bbc.com/news/business-58414597)
 A branch of McDonald's in Oregon, US, is calling on 14 and 15 year olds to apply for jobs at the restaurant amid a shortage of fast food workers.
+### [Historic impeachment trial for Danish ex-minister](https://www.bbc.com/news/world-europe-58408471)
+A historic impeachment trial gets underway in Denmark on Thursday against a former minister who spearheaded dozens of tough immigration measures.
