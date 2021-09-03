@@ -1,7 +1,7 @@
 # News
 ### [How much trouble is Trudeau in?](https://www.bbc.com/news/world-us-canada-58389802)
 Canada's Justin Trudeau called a snap election in mid-August hoping an early campaign could net his Liberals a majority government. But with their lead in the poll vanishing at the campaign's halfway point, is one still within reach? 
-### [How Europe soured on Joe Biden](https://www.bbc.com/news/world-europe-58416848)
+### [How Europe's relationship with Joe Biden turned sour](https://www.bbc.com/news/world-europe-58416848)
 From a white-knuckle grip with Trump to an arm on the shoulder with Biden, Emmanuel Macron's greetings tell the story of how EU leaders saw the change of US administrations.
 ### [Abba announce reunion album and virtual concert](https://www.bbc.com/news/entertainment-arts-58423452)
 Pop legends Abba have surprised and delighted fans by announcing their first studio album for 40 years.
