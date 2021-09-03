@@ -1,12 +1,12 @@
 # News
-### [Capitol riot: 'QAnon Shaman' pleads guilty](https://www.bbc.com/news/world-us-canada-58441174)
-A prominent supporter of the baseless conspiracy theory QAnon has accepted a plea deal in federal court for his involvement in the US Capitol riots.
-### [Brazen coyotes terrorise British Columbia park](https://www.bbc.com/news/world-us-canada-58439862)
-Authorities in British Columbia, Canada's westernmost province, are planning a cull of coyotes after a spike of canine attacks.
 ### [Fate of Afghan holdout valley hangs in balance](https://www.bbc.com/news/world-asia-58443679)
 The fate of Afghanistan's Panjshir Valley - the final holdout against Taliban control - hangs in the balance as heavy fighting continues.
+### [Capitol riot: 'QAnon Shaman' pleads guilty](https://www.bbc.com/news/world-us-canada-58441174)
+A prominent supporter of the baseless conspiracy theory QAnon has accepted a plea deal in federal court for his involvement in the US Capitol riots.
 ### [In Kabul, Afghans adjust to a new, uncertain fate](https://www.bbc.com/news/world-asia-58437713)
 "Why are you travelling without a mahram?" the Taliban guard asks a young Afghan woman about her missing male escort. 
+### [Brazen coyotes terrorise British Columbia park](https://www.bbc.com/news/world-us-canada-58439862)
+Authorities in British Columbia, Canada's westernmost province, are planning a cull of coyotes after a spike of canine attacks.
 ### [Woman convicted of Cyprus gang-rape lie appeals](https://www.bbc.com/news/uk-england-derbyshire-58436404)
 A British woman who reported being gang-raped in Cyprus hopes to have her conviction for lying about the attack overturned.
 ### [How Europe's relationship with Joe Biden turned sour](https://www.bbc.com/news/world-europe-58416848)
