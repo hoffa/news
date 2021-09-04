@@ -17,5 +17,5 @@ A British woman who reported being gang-raped in Cyprus hopes to have her convic
 Australia has changed its Covid strategy: it's time to leave lockdowns and "come out of the cave", Prime Minister Scott Morrison has said.
 ### [Ex-prosecutor faces charges over black jogger case](https://www.bbc.com/news/world-us-canada-58439984)
 A former US prosecutor has been charged with violating her oath of office and obstructing the arrest of men accused of killing a black jogger in 2020.
-### [Scientists not backing jabs for 12 to 15-year-olds](https://www.bbc.com/news/health-58438669)
-The UK's vaccine advisory body has refused to give the green light to vaccinating healthy children aged 12-15 years on health grounds alone.
+### [China preps for Winter Olympics as pressure grows](https://www.bbc.com/news/world-asia-china-58196467)
+For the first time since the original coronavirus outbreak closed China's borders, the country is preparing to allow foreigners to enter again in large numbers for the winter Olympics next February.
