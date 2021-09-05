@@ -7,15 +7,15 @@ Girls Aloud singer Sarah Harding, 39, who had breast cancer, died on Sunday morn
 "Everybody got it wrong" on how quickly the Taliban would take over Afghanistan, the head of Britain's armed forces has said.
 ### [Charles' former aide steps down over honour claims](https://www.bbc.com/news/uk-58451647)
 A former aide to the Prince of Wales has temporarily stepped down from his role as chief executive of The Prince's Foundation amid claims that he helped secure an honour for a major donor.
-### [Clashes in Montenegro over new Serb church leader](https://www.bbc.com/news/world-europe-58451372)
-There have been fierce clashes in Montenegro as the Serbian Orthodox church installed a new leader in a ceremony that exposed divisions in the Balkan country.
 ### [Soldiers claim to seize power in Guinea](https://www.bbc.com/news/world-africa-58453778)
 The fate of Guinea's President Alpha Condé is unclear after an unverified video showed him surrounded by soldiers, who said they had seized power.
+### [Clashes in Montenegro over new Serb church leader](https://www.bbc.com/news/world-europe-58451372)
+There have been fierce clashes in Montenegro as the Serbian Orthodox church installed a new leader in a ceremony that exposed divisions in the Balkan country.
 ### [Rush to contain large oil spill in Gulf of Mexico](https://www.bbc.com/news/world-us-canada-58446271)
 Clean-up crews and the US Coast Guard are trying to locate the source of an oil spill spotted in the Gulf of Mexico after deadly Hurricane Ida.
+### [Planes stranded at Afghan airport waiting to leave](https://www.bbc.com/news/world-asia-58455959)
+A US lawmaker has accused the Taliban of stopping Afghans and Americans from leaving Afghanistan via Mazar-i-Sharif International Airport.
 ### [Tens of thousands join huge Indian farmers' protest](https://www.bbc.com/news/world-asia-58455866)
 Tens of thousands of farmers have gathered in the Indian state of Uttar Pradesh to protest against new agriculture laws.
 ### [How Sweden arrested a suspected war criminal](https://www.bbc.com/news/world-europe-58421630)
 In the arrivals terminal of Stockholm Arlanda Airport, Swedish police were expecting someone significant. 
-### [Verstappen wins home Dutch Grand Prix](https://www.bbc.com/sport/formula1/58455786)
-Red Bull's Max Verstappen took a dominant victory over Mercedes' Lewis Hamilton in the Dutch Grand Prix to retake the championship lead.
