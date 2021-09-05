@@ -12,7 +12,7 @@ There have been fierce clashes in Montenegro as the Serbian Orthodox church inst
 ### [Rush to contain large oil spill in Gulf of Mexico](https://www.bbc.com/news/world-us-canada-58446271)
 Clean-up crews and the US Coast Guard are trying to locate the source of an oil spill spotted in the Gulf of Mexico after deadly Hurricane Ida.
 ### [Soldiers claim to seize power in Guinea](https://www.bbc.com/news/world-africa-58453778)
-The fate of Guinea's President Alpha Condé is unclear after an unverified video showed him in the hands of soldiers, who said they had seized power.
+The fate of Guinea's President Alpha Condé is unclear after an unverified video showed him surrounded by soldiers, who said they had seized power.
 ### [Tens of thousands join huge Indian farmers' protest](https://www.bbc.com/news/world-asia-58455866)
 Tens of thousands of farmers have gathered in the Indian state of Uttar Pradesh to protest against new agriculture laws.
 ### [Verstappen wins home Dutch Grand Prix](https://www.bbc.com/sport/formula1/58455786)
