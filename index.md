@@ -1,5 +1,5 @@
 # News
-### [Kim Kardashian cypto ad singled out by watchdog](https://www.bbc.com/news/technology-58462517)
+### [Kim Kardashian crypto ad singled out by watchdog](https://www.bbc.com/news/technology-58462517)
 Kim Kardashian has been criticised for promoting an untested cryptocurrency on Instagram, by the head of the UK's Financial Conduct Authority (FCA).
 ### [Taliban raise flag over resistance stronghold](https://www.bbc.com/news/world-asia-58466647)
 The Taliban have declared victory over the province of Panjshir northeast of the capital Kabul, the final pocket of territory which has remained outside their rule.
