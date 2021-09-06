@@ -17,5 +17,5 @@ Jean-Paul Belmondo's battered face, laconic style and roguish smile captured the
 The man accused of hatching the devastating plot to fly hijacked passenger planes into US landmarks 20 years ago is locked up awaiting trial. But could he have been stopped years before?
 ### [Long jail terms for key Belarus opposition pair](https://www.bbc.com/news/world-europe-58395120)
 Two leading opposition figures who challenged Belarus's discredited presidential polls have been jailed for trying to threaten national security and seize power.
-### [Facebook apology as AI labels black men 'primates'](https://www.bbc.com/news/technology-58462511)
-Facebook users who watched a newspaper video featuring black men were asked if they wanted to "keep seeing videos about primates" by an artificial-intelligence recommendation system. 
+### [Cheryl and Girls Aloud bandmates lead Harding tributes](https://www.bbc.com/news/entertainment-arts-58460117)
+Cheryl, Nadine Coyle, Kimberley Walsh and Nicola Roberts have paid tribute to their former bandmate Sarah Harding following her death on Sunday.
