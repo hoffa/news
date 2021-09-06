@@ -11,11 +11,11 @@ Girls Aloud singer Sarah Harding, 39, who had breast cancer, died on Sunday morn
 A US lawmaker has accused the Taliban of stopping Afghans and Americans from leaving Afghanistan via Mazar-i-Sharif International Airport.
 ### [The high rolling ex-police chief accused of torture](https://www.bbc.com/news/world-asia-58405215)
 When a leaked video last month showed a local police chief suffocating a suspect, it was not just the revelation of torture and death in police custody which shocked the Thai public.
-### [Ikea struggles to supply 1,000 product lines](https://www.bbc.com/news/business-58443653)
-Furniture giant Ikea is struggling to supply about 1,000 product lines as a shortage of HGV drivers continues to hit businesses.
-### [Brazil-Argentina abandoned over Covid issue](https://www.bbc.com/sport/football/58431607)
-Brazil and Argentina's World Cup qualifier was abandoned just minutes after kick-off on Sunday after Brazilian health officials objected to the participation of three Argentine players they believe broke quarantine rules.
 ### [Rush to contain large oil spill in Gulf of Mexico](https://www.bbc.com/news/world-us-canada-58446271)
 Clean-up crews and the US Coast Guard are trying to locate the source of an oil spill spotted in the Gulf of Mexico after deadly Hurricane Ida.
 ### [Soldiers claim to seize power in Guinea](https://www.bbc.com/news/world-africa-58453778)
 The fate of Guinea's President Alpha Condé is unclear after an unverified video showed him surrounded by soldiers, who said they had seized power.
+### [Ikea struggles to supply 1,000 product lines](https://www.bbc.com/news/business-58443653)
+Furniture giant Ikea is struggling to supply about 1,000 product lines as a shortage of HGV drivers continues to hit businesses.
+### [Brazil-Argentina abandoned over Covid issue](https://www.bbc.com/sport/football/58431607)
+Brazil and Argentina's World Cup qualifier was abandoned just minutes after kick-off on Sunday after Brazilian health officials objected to the participation of three Argentine players they believe broke quarantine rules.
