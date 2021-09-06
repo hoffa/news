@@ -9,13 +9,13 @@ The man accused of hatching the devastating plot to fly hijacked passenger plane
 His songs have pulled people on to dance floors at weddings and parties for decades.
 ### [Planes stranded at Afghan airport waiting to leave](https://www.bbc.com/news/world-asia-58455959)
 A US lawmaker has accused the Taliban of stopping Afghans and Americans from leaving Afghanistan via Mazar-i-Sharif International Airport.
+### [Palestinians escape Israeli prison through tunnel](https://www.bbc.com/news/world-middle-east-58460702)
+Israeli authorities have launched a massive manhunt after six Palestinian prisoners escaped from one of the country's most secure jails overnight.  
+### [Rural memoirs stir longing for Spain's past](https://www.bbc.com/news/world-europe-58426883)
+When Ana Iris Simón's autobiographical book reflecting on life in rural Spain came out in the autumn of 2020, her ambitions were modest.  
+### [Australians swap Father's Day hugs across barriers](https://www.bbc.com/news/world-australia-58458978)
+Australian families separated by state border closures have celebrated Father's Day with hugs and emotional greetings across barricades.
 ### [Twins conjoined at head separated in rare surgery](https://www.bbc.com/news/world-middle-east-58458587)
 One-year-old twin girls who were born conjoined at the back of their heads have seen each other for the first time after undergoing rare separation surgery in Israel.
-### [Brazil-Argentina abandoned over Covid issue](https://www.bbc.com/sport/football/58431607)
-Brazil and Argentina's World Cup qualifier was abandoned just minutes after kick-off on Sunday after Brazilian health officials objected to the participation of three Argentine players they believe broke quarantine rules.
 ### [Taliban accused of killing pregnant police officer](https://www.bbc.com/news/world-asia-58455826)
  Taliban militants in Afghanistan have shot dead a policewoman in a provincial city, witnesses have told the BBC.
-### [Ikea struggles to supply 1,000 product lines](https://www.bbc.com/news/business-58443653)
-Furniture giant Ikea is struggling to supply about 1,000 product lines as a shortage of HGV drivers continues to hit businesses.
-### [Live music told path to tackle climate change](https://www.bbc.com/news/science-environment-58442599)
-Artists and bands must swap private jets for trains, festivals and venues need to generate more of their own renewable energy and gig tickets should include free public transport.
