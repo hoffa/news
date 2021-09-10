@@ -5,17 +5,17 @@ Canadian federal party leaders traded barbs over leadership, climate change and 
 The UN has condemned the Taliban for what it called an "increasingly violent response" to dissent, weeks after the group's rapid takeover of Afghanistan. 
 ### [Texas passes social media 'de-platforming' law](https://www.bbc.com/news/technology-58516155)
 The US state of Texas has made it illegal for social media platforms to ban users "based on their political viewpoints".
-### [Lingerie lizard's 4,000-mile trip hidden in bra](https://www.bbc.com/news/uk-england-south-yorkshire-58516337)
-A lingerie-loving lizard was found lounging in a bra after travelling all the way from Barbados to sunny Yorkshire on a transatlantic flight.
-### [MI5: 31 late-stage terror plots foiled in four years](https://www.bbc.com/news/uk-58512901)
-A total of 31 late-stage terror plots have been foiled in the UK in the past four years, the head of MI5 has said.
+### [Apple dealt major blow in Epic Games trial](https://www.bbc.com/news/technology-58522588)
+Apple has been dealt a major blow in its ongoing trial against Fortnite-maker Epic Games.
+### [Despair and a rucksack: A sombre MH17 testimony](https://www.bbc.com/news/world-europe-58518606)
+"Time keeps on requiring endless patience. We are still waiting for someone to take responsibility."
 ### [Is another storm brewing in Silicon Valley?](https://www.bbc.com/news/technology-58469882)
 For years Elizabeth Holmes was the darling of Silicon Valley, a woman that could do no wrong.
+### [MI5: 31 late-stage terror plots foiled in four years](https://www.bbc.com/news/uk-58512901)
+A total of 31 late-stage terror plots have been foiled in the UK in the past four years, the head of MI5 has said.
 ### [Teenager Raducanu reaches US Open final](https://www.bbc.com/sport/tennis/58511033)
 British teenager Emma Raducanu reached the US Open final as her meteoric rise continued with a stunning straight-set win over Greek 17th seed Maria Sakkari in New York.
 ### ['Black national anthem' makes its debut at the NFL](https://www.bbc.com/news/world-us-canada-58482970)
  The Dallas Cowboys and Tampa Bay Buccaneers kicked off professional American football's first game of the season. But before they did, fans heard something a little different.
-### [Amazon offers to pay college fees for 750,000 staff](https://www.bbc.com/news/business-58509932)
-Amazon has offered to cover the cost of college tuition of all 750,000 of its frontline workers in the US.
-### [Austria man kept dead mother in cellar, police say](https://www.bbc.com/news/world-europe-58510192)
-A man kept the mummified corpse of his mother in a basement for over a year while continuing to receive her pension payments, Austrian police say.
+### [Lebanon gets new government amid deepening crisis](https://www.bbc.com/news/world-middle-east-58516034)
+A new government has been announced in Lebanon - over a year after the previous administration quit following the devastating Beirut port explosion.
