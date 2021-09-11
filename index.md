@@ -11,11 +11,11 @@ A banner supporting a woman who accused footballer Cristiano Ronaldo of a sex as
 One of the final deadly strikes by the US in its 20-year war in Afghanistan has been challenged by investigations in leading US media.
 ### [Leylah Fernandez: Canadian teen fighting for glory](https://www.bbc.com/news/world-us-canada-58523448)
 Leylah Fernandez has shocked the tennis world with her wins at the US Open in New York over the past two weeks.
+### [Escaped zebras spark double takes and denials](https://www.bbc.com/news/world-us-canada-58527985)
+They have been on the loose for more than 10 days now - five zebras bringing disbelieving double-takes to the folk of rural Maryland.
 ### [Ms Great Britain hopeful to compete make-up free](https://www.bbc.com/news/uk-england-58346534)
 A Ms Great Britain contestant who was bullied at school over her appearance is to enter the competition make-up-free to "empower young women".
 ### [Emotional tributes paid to 9/11 lives lost](https://www.bbc.com/news/world-us-canada-58530073)
 Relatives of people who died on 9/11 have read out victims' names, as the US marks 20 years since the deadliest terror attacks on its soil.
 ### [Six held in £160m cocaine haul off Plymouth coast](https://www.bbc.com/news/uk-england-devon-58528515)
 Six men including a Briton have been arrested off the coast of Plymouth after authorities seized more than two tonnes (2,000kg) of cocaine.
-### [Escaped zebras spark double takes and denials](https://www.bbc.com/news/world-us-canada-58527985)
-They have been on the loose for more than 10 days now - five zebras bringing disbelieving double-takes to the folk of rural Maryland.
