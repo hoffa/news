@@ -15,7 +15,7 @@ The UN has condemned the Taliban for what its "increasingly violent response" to
 Hollywood giant Walt Disney Co said the rest of its 2021 films will screen exclusively in cinemas before being made available for streaming.
 ### [French ex-minister investigated over Covid response](https://www.bbc.com/news/world-europe-58523027)
 France's former health minister is being formally investigated for how she handled the Covid-19 pandemic. 
-### [Apple dealt major blow in Epic Games trial](https://www.bbc.com/news/technology-58522588)
-Apple has been dealt a major blow in its ongoing trial against Fortnite-maker Epic Games.
 ### [Boy band accuse manager of mental, financial abuse](https://www.bbc.com/news/entertainment-arts-58520199)
 US boy band Why Don't We have accused one of their managers of "mental, emotional and financial abuse" by making them "hostages in our own home" and restricting their food.
+### [Apple dealt major blow in Epic Games trial](https://www.bbc.com/news/technology-58522588)
+Apple has been dealt a major blow in its ongoing trial against Fortnite-maker Epic Games.
