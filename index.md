@@ -13,9 +13,9 @@ McLaren's Daniel Ricciardo won the Italian Grand Prix after a frightening crash 
 On Tuesday, voters in the most populous US state will decide whether to retain their governor or oust him in favour of one of his 46 challengers.
 ### ['I don't want to let go of the trophy'](https://www.bbc.com/sport/tennis/58533776)
 Emma Raducanu says she does not want to let go of the US Open trophy after her fairy tale in New York culminated in the ultimate happy ending.
-### [Abortion drama wins top prize at Venice festival](https://www.bbc.com/news/entertainment-arts-58533531)
-A film about illegal abortions in 1960s France has won the top prize at the Venice Film Festival.
 ### [Why are there food queues in this Indian Ocean island?](https://www.bbc.com/news/world-asia-pacific-58485674)
 Sri Lanka has experienced long queues to buy essential items amid tight lockdown measures to control the spread of Covid-19.
+### [Abortion drama wins top prize at Venice festival](https://www.bbc.com/news/entertainment-arts-58533531)
+A film about illegal abortions in 1960s France has won the top prize at the Venice Film Festival.
 ### [Pope warns of anti-Semitism as he visits Hungary](https://www.bbc.com/news/world-europe-58533533)
 Pope Francis has warned the threat of anti-Semitism is "still lurking" in Europe, during a brief trip to Hungary.
