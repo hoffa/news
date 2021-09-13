@@ -11,10 +11,10 @@ Plans to introduce vaccine passports for access into nightclubs and large events
 A record number of activists working to protect the environment and land rights were murdered last year, according to a report by a campaign group. 
 ### [Air force drill alarms French on 9/11 anniversary](https://www.bbc.com/news/world-europe-58536534)
 When an Airbus A330 shadowed by a French fighter jet roared at low altitude across the skies near Paris on Saturday, eyewitnesses expressed alarm.
-### [FBI declassifies document on Saudis and 9/11](https://www.bbc.com/news/world-us-canada-58533538)
-The FBI has released a newly declassified document that looks into connections between Saudi citizens in the US and two of the 9/11 attackers.
 ### [Medvedev beats Djokovic to win US Open](https://www.bbc.com/sport/tennis/58540110)
 Russia's Daniil Medvedev won his first Grand Slam title by shattering Novak Djokovic's hopes of completing a calendar sweep of the majors in a one-sided US Open final.
+### [FBI declassifies document on Saudis and 9/11](https://www.bbc.com/news/world-us-canada-58533538)
+The FBI has released a newly declassified document that looks into connections between Saudi citizens in the US and two of the 9/11 attackers.
 ### [Thousands flee forest fires in southern Spain](https://www.bbc.com/news/world-europe-58540570)
 Around 2,000 people have left their homes after wildfires broke out in the southern Spanish region of Andalusia.
 ### [The nocturnal world of hedgehogs and foxes](https://www.bbc.com/news/in-pictures-58327374)
