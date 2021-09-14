@@ -9,13 +9,13 @@ The Met Gala - one of fashion's biggest and starriest events - has rolled out it
 British actress Tanya Fear has been found in Los Angeles after being reported missing last week. 
 ### [Emma Raducanu celebrated in China for her heritage](https://www.bbc.com/news/world-asia-china-58541314)
 Social media users in China are celebrating British tennis star Emma Raducanu - not just for her historic US Open win, but her Chinese heritage. 
-### [Motorcycles can break iPhone cameras, Apple warns](https://www.bbc.com/news/technology-58507764)
-IPhone owners should beware picking up bad vibrations from powerful motorbikes, as they may damage camera systems, Apple has said.
 ### [Covid: How the world is vaccinating children](https://www.bbc.com/news/health-58516207)
 Children in the UK aged 12 to 15 are set to be able to get a Covid jab, following advice from the UK's chief medical officers.
-### [Prince Andrew lawyer: Accuser's case is baseless](https://www.bbc.com/news/uk-58550197)
-The Duke of York's lawyer has described allegations of sexual assault filed in a US court as "baseless, non-viable [and] potentially unlawful".
-### [Colourful dress protest by Afghan women goes viral](https://www.bbc.com/news/world-asia-58550335)
-Afghan women have started an online campaign to protest against the Taliban's strict new dress code for female students. Using hashtags like #DoNotTouchMyClothes and #AfghanistanCulture, many are sharing pictures of their colourful traditional dresses. The BBC's Sodaba Haidare spoke to the woman who sparked this social media fightback.
 ### [Biden in California ahead of rare recall election](https://www.bbc.com/news/world-us-canada-58553704)
 President Joe Biden has made his first trip to California on the eve of a rare state recall election to shore up support for Governor Gavin Newsom.
+### [Colourful dress protest by Afghan women goes viral](https://www.bbc.com/news/world-asia-58550335)
+Afghan women have started an online campaign to protest against the Taliban's strict new dress code for female students. Using hashtags like #DoNotTouchMyClothes and #AfghanistanCulture, many are sharing pictures of their colourful traditional dresses. The BBC's Sodaba Haidare spoke to the woman who sparked this social media fightback.
+### [Motorcycles can break iPhone cameras, Apple warns](https://www.bbc.com/news/technology-58507764)
+IPhone owners should beware picking up bad vibrations from powerful motorbikes, as they may damage camera systems, Apple has said.
+### [Why even huge ships can't fix the shipping crisis](https://www.bbc.com/news/business-58479148)
+Jared Chaitowitz has a fleet of around 300 rental bikes in Cape Town, South Africa. He relies on a steady supply of spare parts - from pedals to bells - to keep them running. But there's a problem. 
