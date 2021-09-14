@@ -7,15 +7,15 @@ There were so many celebrities on the red carpet at Monday's Met Gala, you'd thi
 Apple has issued a software patch to block so-called "zero-click" spyware that could infect iPhones and iPads.
 ### [Star-spangled celebrities welcome back Met Gala](https://www.bbc.com/news/world-us-canada-58553594)
 The Met Gala - one of fashion's biggest and starriest events - has rolled out its red carpet in New York for some of the planet's best-known celebrities. 
-### [Taliban ban women from studying with men](https://www.bbc.com/news/world-asia-58537081)
-Afghan universities will be segregated by gender, and a new dress code will be introduced, the Taliban has said.
 ### [World now sees twice as many days over 50C](https://www.bbc.com/news/science-environment-58494641)
 The number of extremely hot days every year when the temperature reaches 50C has doubled since the 1980s, a global BBC analysis has found.
+### [Taliban ban women from studying with men](https://www.bbc.com/news/world-asia-58537081)
+Afghan universities will be segregated by gender, and a new dress code will be introduced, the Taliban has said.
 ### [Labour ends years of conservative rule in Norway](https://www.bbc.com/news/world-europe-58555690)
 The opposition Labour party has won Norway's general election, bringing an end to eight years of conservative government under Erna Solberg.
 ### [Tropical storm Nicholas hits Texas and Louisiana](https://www.bbc.com/news/world-us-canada-58555227)
 Tropical storm Nicholas has been downgraded from a hurricane after making landfall on the Texas coast in the US, bringing heavy rain and the risk of life-threatening flooding.
 ### [Cows trained to use special 'MooLoo' toilet](https://www.bbc.com/news/world-europe-58552651)
 Cows can be toilet trained in order to reduce greenhouse gas emissions, researchers have said.
-### [Biden in California ahead of vote to oust governor](https://www.bbc.com/news/world-us-canada-58553704)
-US President Joe Biden has thrown his support behind California Governor Gavin Newsom, on the eve of a vote that could remove the governor from office.
+### [Why even huge ships can't fix the shipping crisis](https://www.bbc.com/news/business-58479148)
+Jared Chaitowitz has a fleet of around 300 rental bikes in Cape Town, South Africa. He relies on a steady supply of spare parts - from pedals to bells - to keep them running. But there's a problem. 
