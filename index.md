@@ -9,13 +9,13 @@ Canadians go to the polls on 20 September after a short 35-day election campaign
 US President Joe Biden has thrown his support behind California Governor Gavin Newsom, on the eve of a vote that could remove the governor from office.
 ### [World now sees twice as many days over 50C](https://www.bbc.com/news/science-environment-58494641)
 The number of extremely hot days every year when the temperature reaches 50C has doubled since the 1980s, a global BBC analysis has found.
-### [China outbreak linked to primary schoolchildren](https://www.bbc.com/news/world-asia-china-58554324)
-China has seen a new surge in coronavirus cases, linked to a primary school in Fujian province. 
 ### [British actress Tanya Fear found safe in LA](https://www.bbc.com/news/entertainment-arts-58549883)
 British actress Tanya Fear has been found in Los Angeles after being reported missing last week. 
-### [Taliban ban women from studying with men](https://www.bbc.com/news/world-asia-58537081)
-Afghan universities will be segregated by gender, and a new dress code will be introduced, the Taliban has said.
+### [China outbreak linked to primary schoolchildren](https://www.bbc.com/news/world-asia-china-58554324)
+China has seen a new surge in coronavirus cases, linked to a primary school in Fujian province. 
 ### [Boris Johnson's mother Charlotte dies aged 79](https://www.bbc.com/news/uk-politics-58548437)
 The prime minister's mother, Charlotte Johnson Wahl, has died aged 79.
-### [Why even huge ships can't fix the shipping crisis](https://www.bbc.com/news/business-58479148)
-Jared Chaitowitz has a fleet of around 300 rental bikes in Cape Town, South Africa. He relies on a steady supply of spare parts - from pedals to bells - to keep them running. But there's a problem. 
+### [Taliban ban women from studying with men](https://www.bbc.com/news/world-asia-58537081)
+Afghan universities will be segregated by gender, and a new dress code will be introduced, the Taliban has said.
+### [Taliban kill civilians in resistance stronghold](https://www.bbc.com/news/world-asia-58545892)
+The BBC has found that at least 20 civilians have been killed in Afghanistan's Panjshir Valley, which has seen fighting between the Taliban and opposition forces. Communications have been cut in the valley, making reporting difficult, but the BBC has evidence of Taliban killings despite promises of restraint.
