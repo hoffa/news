@@ -1,4 +1,6 @@
 # News
+### [Life under Taliban rule one month on](https://www.bbc.com/news/world-asia-58550640)
+At Afghanistan's border with Uzbekistan a cargo train rolls over a bridge and into the newly created "Islamic Emirate". The Taliban's white and black flag flutters next to the Uzbek one. Some traders have welcomed the group's return to power. The driver of a truck being loaded with wheat tells me in the past he was regularly forced to pay bribes to corrupt police officials whenever passing their checkpoints. "Now, it's not like that," he says. "I could drive all the way to Kabul and not pay a penny." 
 ### ['I blame system that enabled abuse' - Simone Biles](https://www.bbc.com/news/world-us-canada-58573887)
 Elite US gymnast Simone Biles has testified before the Senate about abuse she suffered at the hands of disgraced former team doctor, Larry Nassar. 
 ### [Paris attack jihadist blames France for bombing IS](https://www.bbc.com/news/world-europe-58568278)
@@ -11,8 +13,6 @@ A series of camel sculptures carved into rock faces in Saudi Arabia are likely t
 An Australian university is calling for a controversial facial recognition study by an ex-faculty member to be retracted by its publisher. 
 ### [Afghan women's youth soccer team flees to Pakistan](https://www.bbc.com/news/world-asia-58571183)
 Female players from Afghanistan's junior national soccer team have crossed the border into Pakistan. 
-### [Facebook under fire over secret teen research](https://www.bbc.com/news/technology-58570353)
-Facebook-owned Instagram has been criticised for keeping secret its internal research into the effect social media had on teenager users.
 ### [Ex-models demand change over French sex abuse laws](https://www.bbc.com/news/entertainment-arts-58562149)
 A group of former models have called on French lawmakers to abolish the law which determines how long victims of sexual assault have to report to the authorities.
 ### [Long sentence for Mexico drug lord 'The Viceroy'](https://www.bbc.com/news/world-latin-america-58571313)
