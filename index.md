@@ -7,10 +7,10 @@ US authorities are searching for a Florida woman who went missing during a road 
 Police say that prominent South Carolina lawyer Alex Murdaugh ordered a hit on himself so that his son could collect $10m (£7.24m) in life insurance. 
 ### [Call for vaccine period changes to be investigated](https://www.bbc.com/news/health-58573593)
 Changes to periods and unexpected vaginal bleeding after having a Covid vaccine should be investigated to reassure women, says a leading immunologist specialising in fertility.
-### [The heatwave fire that wiped out a whole community](https://www.bbc.com/news/world-us-canada-58549880)
-A summer of deadly heatwaves and wildfires has put climate change on the top of the agenda at Canada's snap federal election. The village of Lytton in British Columbia has been used by candidates as a cautionary tale. 
 ### [I blame system that enabled abuse - Simone Biles](https://www.bbc.com/news/world-us-canada-58573887)
 Elite US gymnast Simone Biles has testified before the Senate about abuse she suffered at the hands of disgraced former team doctor, Larry Nassar. 
+### [The heatwave fire that wiped out a whole community](https://www.bbc.com/news/world-us-canada-58549880)
+A summer of deadly heatwaves and wildfires has put climate change on the top of the agenda at Canada's snap federal election. The village of Lytton in British Columbia has been used by candidates as a cautionary tale. 
 ### [Most office workers will never return full-time](https://www.bbc.com/news/business-58559179)
 Most people do not believe workers will return to the office full-time after the coronavirus pandemic, an exclusive survey for the BBC suggests.
 ### [Life under Taliban rule one month on](https://www.bbc.com/news/world-asia-58550640)
