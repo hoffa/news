@@ -9,13 +9,13 @@ Georgian chess icon Nona Gaprindashvili has filed a defamation lawsuit against N
 It has been four years since online posts claiming to be from a self-styled government insider, known as Q, first appeared making extreme assertions about those at the very top of US power and society. It spawned a far-reaching conspiracy theory that has torn families and friendships apart. 
 ### [The man who hopes to topple Trudeau](https://www.bbc.com/news/world-us-canada-58587402)
 In the home stretch of Canada's federal election, the Conservative Party is within striking distance of Justin Trudeau's Liberals. Tacking to the centre under a new leader, they hope they can topple the two-term prime minister.  
-### [US admits Kabul drone strike killed civilians](https://www.bbc.com/news/world-us-canada-58604655)
-The US has admitted that a drone strike in Kabul days before its military pullout killed 10 innocent people.
 ### [How Germany's Merkel shaped a generation](https://www.bbc.com/news/world-europe-58597504)
 As one of the world's most influential leaders, Angela Merkel has helped to determine the course of European and global politics. But during her 16 years as German chancellor, she's also had a considerable impact on her own country, shaping the lives of millions of citizens for better or worse.  
+### [US admits Kabul drone strike killed civilians](https://www.bbc.com/news/world-us-canada-58604655)
+The US has admitted that a drone strike in Kabul days before its military pullout killed 10 innocent people.
 ### [Amber list scrapped in overhaul of travel rules](https://www.bbc.com/news/uk-58602481)
 The international travel traffic light system is being simplified in England with a single red list, as part of an overhaul of the rules from 4 October.
-### [Bouteflika: From child prodigy to octogenarian leader](https://www.bbc.com/news/world-africa-56269634)
-Abdelaziz Bouteflika was a dominant figure in Algerian politics for more than six decades. 
+### [High-speed internet via airborne beams of light](https://www.bbc.com/news/technology-58583600)
+A novel way of delivering high-speed internet via beams of light through the air has successfully transmitted data across the Congo River.
 ### [Striking pictures from around the world this week](https://www.bbc.com/news/in-pictures-58597718)
 A selection of powerful news photographs taken around the world this week.
