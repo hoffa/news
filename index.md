@@ -2,15 +2,15 @@
 ### [Man sought over missing fiancée disappears too](https://www.bbc.com/news/world-us-canada-58607813)
 The family of a US man whose fiancée disappeared during a road trip say he is now missing too. 
 ### [Girls excluded as Afghan secondary schools reopen](https://www.bbc.com/news/world-asia-58607816)
-The Taliban have excluded girls from Afghan secondary schools, after they ordered only boys and male teachers to return to the classroom.
+The Taliban have excluded girls from Afghan secondary schools, with only boys and male teachers allowed back into classrooms.
 ### [US millionaire Robert Durst found guilty of murder](https://www.bbc.com/news/world-us-canada-58605688)
 US real estate heir Robert Durst, subject of HBO crime documentary The Jinx, has been convicted of killing his best friend Susan Berman.
-### [Father sues school for cutting daughter's hair](https://www.bbc.com/news/world-us-canada-58591006)
-The father of a seven-year-old girl whose hair was cut by a teacher without parental permission is suing the school district and two staff members for $1m.
-### [France recalls envoys amid security pact row](https://www.bbc.com/news/world-europe-58604677)
-France has said it is recalling its ambassadors in the US and Australia for consultations, in protest at a security deal which also includes the UK. 
 ### [The moment QAnon took the person I love most](https://www.bbc.com/news/world-us-canada-57369349)
 It has been four years since online posts claiming to be from a self-styled government insider, known as Q, first appeared making extreme assertions about those at the very top of US power and society. It spawned a far-reaching conspiracy theory that has torn families and friendships apart. 
+### [France recalls envoys amid security pact row](https://www.bbc.com/news/world-europe-58604677)
+France has said it is recalling its ambassadors in the US and Australia for consultations, in protest at a security deal which also includes the UK. 
+### [Father sues school for cutting daughter's hair](https://www.bbc.com/news/world-us-canada-58591006)
+The father of a seven-year-old girl whose hair was cut by a teacher without parental permission is suing the school district and two staff members for $1m.
 ### [The man who hopes to topple Trudeau](https://www.bbc.com/news/world-us-canada-58587402)
 In the home stretch of Canada's federal election, the Conservative Party is within striking distance of Justin Trudeau's Liberals. Tacking to the centre under a new leader, they hope they can topple the two-term prime minister.  
 ### [How Germany's Merkel shaped a generation](https://www.bbc.com/news/world-europe-58597504)
