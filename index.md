@@ -15,7 +15,7 @@ The father of a seven-year-old girl whose hair was cut by a teacher without pare
 As one of the world's most influential leaders, Angela Merkel has helped to determine the course of European and global politics. But during her 16 years as German chancellor, she's also had a considerable impact on her own country, shaping the lives of millions of citizens for better or worse.  
 ### [The heiress who saved countless lives](https://www.bbc.com/news/uk-england-london-58399839)
 Muriel Gardiner's interest in the work of Sigmund Freud took her to Vienna in the 1920s to study medicine. There, the wealthy American became part of the underground resistance in the fight against fascism, helping to save countless lives. Her courageous actions would help to inspire a film for which Vanessa Redgrave won an Oscar. What were the events that shaped this extraordinary life?
+### [The man who hopes to topple Trudeau](https://www.bbc.com/news/world-us-canada-58587402)
+In the home stretch of Canada's federal election, the Conservative Party is within striking distance of Justin Trudeau's Liberals. Tacking to the centre under a new leader, they hope they can topple the two-term prime minister.  
 ### [Chess icon sues Netflix over Queen's Gambit](https://www.bbc.com/news/entertainment-arts-58600453)
 Georgian chess icon Nona Gaprindashvili has filed a defamation lawsuit against Netflix, saying she was incorrectly portrayed in the hit series The Queen's Gambit.
-### [Police warn of threats ahead of Capitol rally](https://www.bbc.com/news/world-us-canada-58605001)
-Police say they have detected "some threats of violence" ahead of a planned right-wing rally in Washington DC on Saturday. 
