@@ -15,7 +15,7 @@ In the home stretch of Canada's federal election, the Conservative Party is with
 As one of the world's most influential leaders, Angela Merkel has helped to determine the course of European and global politics. But during her 16 years as German chancellor, she's also had a considerable impact on her own country, shaping the lives of millions of citizens for better or worse.  
 ### [Chess icon sues Netflix over Queen's Gambit](https://www.bbc.com/news/entertainment-arts-58600453)
 Georgian chess icon Nona Gaprindashvili has filed a defamation lawsuit against Netflix, saying she was incorrectly portrayed in the hit series The Queen's Gambit.
-### [US 'set to fly back' Haitian migrant arrivals](https://www.bbc.com/news/world-us-canada-58607603)
-The US government is set to fly back to Haiti thousands of migrants who have gathered under a US-Mexico border bridge in recent days, US media report.
+### [Police warn of threats ahead of Capitol rally](https://www.bbc.com/news/world-us-canada-58605001)
+Police say they have detected "some threats of violence" ahead of a planned right-wing rally in Washington DC on Saturday. 
 ### [Father sues school for cutting daughter's hair](https://www.bbc.com/news/world-us-canada-58591006)
 The father of a seven-year-old girl whose hair was cut by a teacher without parental permission is suing the school district and two staff members for $1m.
