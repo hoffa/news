@@ -1,12 +1,14 @@
 # News
+### [Man sought over missing fiancée disappears too](https://www.bbc.com/news/world-us-canada-58607813)
+The family of a US man whose fiancée disappeared during a road trip say he is now missing too. 
 ### [France recalls envoys amid security pact row](https://www.bbc.com/news/world-europe-58604677)
 France has said it is recalling its ambassadors in the US and Australia for consultations, in protest at a security deal which also includes the UK. 
 ### [US millionaire Robert Durst found guilty of murder](https://www.bbc.com/news/world-us-canada-58605688)
 US real estate heir Robert Durst, subject of HBO crime documentary The Jinx, has been convicted of killing his best friend Susan Berman.
-### [Chess icon sues Netflix over Queen's Gambit](https://www.bbc.com/news/entertainment-arts-58600453)
-Georgian chess icon Nona Gaprindashvili has filed a defamation lawsuit against Netflix, saying she was incorrectly portrayed in the hit series The Queen's Gambit.
 ### [The moment QAnon took the person I love most](https://www.bbc.com/news/world-us-canada-57369349)
 It has been four years since online posts claiming to be from a self-styled government insider, known as Q, first appeared making extreme assertions about those at the very top of US power and society. It spawned a far-reaching conspiracy theory that has torn families and friendships apart. 
+### [Chess icon sues Netflix over Queen's Gambit](https://www.bbc.com/news/entertainment-arts-58600453)
+Georgian chess icon Nona Gaprindashvili has filed a defamation lawsuit against Netflix, saying she was incorrectly portrayed in the hit series The Queen's Gambit.
 ### [The man who hopes to topple Trudeau](https://www.bbc.com/news/world-us-canada-58587402)
 In the home stretch of Canada's federal election, the Conservative Party is within striking distance of Justin Trudeau's Liberals. Tacking to the centre under a new leader, they hope they can topple the two-term prime minister.  
 ### [How Germany's Merkel shaped a generation](https://www.bbc.com/news/world-europe-58597504)
@@ -15,7 +17,5 @@ As one of the world's most influential leaders, Angela Merkel has helped to dete
 The US has admitted that a drone strike in Kabul days before its military pullout killed 10 innocent people.
 ### [Amber list scrapped in overhaul of travel rules](https://www.bbc.com/news/uk-58602481)
 The international travel traffic light system is being simplified in England with a single red list, as part of an overhaul of the rules from 4 October.
-### [High-speed internet via airborne beams of light](https://www.bbc.com/news/technology-58583600)
-A novel way of delivering high-speed internet via beams of light through the air has successfully transmitted data across the Congo River.
-### [Striking pictures from around the world this week](https://www.bbc.com/news/in-pictures-58597718)
-A selection of powerful news photographs taken around the world this week.
+### [Father sues school for cutting daughter's hair](https://www.bbc.com/news/world-us-canada-58591006)
+The father of a seven-year-old girl whose hair was cut by a teacher without parental permission is suing the school district and two staff members for $1m.
