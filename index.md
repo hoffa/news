@@ -3,10 +3,10 @@
 France's foreign minister has accused Australia and the US of lying over a new security pact that prompted Paris to recall its ambassadors. 
 ### [Boxer Amir Khan removed from US flight](https://www.bbc.com/news/uk-58612530)
 British boxer Amir Khan has been removed from a flight in the US after a reported row over face coverings.
-### [Why it’s easier to vote in Canada than the US](https://www.bbc.com/news/world-us-canada-58589809)
-Perhaps it's no surprise, but when it comes time to vote, Canadians are very good about doing it politely, and in queues.
 ### [Record-setting space tourists splash down to Earth](https://www.bbc.com/news/world-us-canada-58612961)
 Four amateur astronauts have splashed down successfully in the Atlantic Ocean after three days in space.
+### [Why it’s easier to vote in Canada than the US](https://www.bbc.com/news/world-us-canada-58589809)
+Perhaps it's no surprise, but when it comes time to vote, Canadians are very good about doing it politely, and in queues.
 ### [Man sought over missing fiancée disappears too](https://www.bbc.com/news/world-us-canada-58607813)
 The family of a US man whose fiancée disappeared during a road trip say he is now missing too. 
 ### [Chess icon sues Netflix over Queen's Gambit](https://www.bbc.com/news/entertainment-arts-58600453)
