@@ -1,14 +1,14 @@
 # News
-### [US opens up to fully vaccinated travellers](https://www.bbc.com/news/world-us-canada-58628491)
-The US is easing its coronavirus travel restrictions, re-opening to passengers from the UK, EU and other nations. 
 ### [FBI searches the home of Gabby Petito's fiancé](https://www.bbc.com/news/world-us-canada-58629194)
-The FBI has begun searching the Florida home of Brian Laundrie, the disappeared fiancé of 22-year-old Gabby Petito, a missing woman now believed to be dead.
+The FBI is searching the Florida home of Brian Laundrie, the fiancé of 22-year-old Gabby Petito, a missing woman now believed to be dead.
+### [US lifts Covid travel ban on UK and EU citizens](https://www.bbc.com/news/world-us-canada-58628491)
+The US is easing its coronavirus travel restrictions, re-opening to passengers from the UK, EU and other nations. 
 ### [Hotel Rwanda hero convicted on terror charges](https://www.bbc.com/news/world-africa-58624691)
 A man who was portrayed in a film as a life-saving hero during the Rwandan genocide has been sentenced to 25 years for terrorism by a court in Rwanda.
-### [Embattled China property giant sparks economy fears](https://www.bbc.com/news/business-58579833)
-Chinese company Evergrande has started to repay investors in its wealth management business with property, as the world's most indebted real estate developer faces a key test this week.
 ### [Body found in search for missing Gabby Petito](https://www.bbc.com/news/world-us-canada-58620272)
 A body matching the description of missing woman Gabby Petito has been found by crews searching a national park in the US state of Wyoming.
+### [Embattled China property giant sparks economy fears](https://www.bbc.com/news/business-58579833)
+Chinese company Evergrande has started to repay investors in its wealth management business with property, as the world's most indebted real estate developer faces a key test this week.
 ### [Gunman kills six at Russian university](https://www.bbc.com/news/world-europe-58623160)
 A gunman killed six people and injured 28 others at a university in the Russian city of Perm, officials have said. 
 ### [What you need to know about Canada’s election](https://www.bbc.com/news/world-us-canada-58573882)
