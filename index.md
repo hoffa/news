@@ -1,10 +1,10 @@
 # News
 ### [Canada's Trudeau narrowly wins third term as PM](https://www.bbc.com/news/world-us-canada-58634730)
 Justin Trudeau's Liberal Party has narrowly won Canada's election, but it failed to secure a majority of seats.
-### [Joe Biden urges unity amid tensions with allies](https://www.bbc.com/news/world-us-canada-58642139)
-In his first address to the United Nations, US President Joe Biden has urged global cooperation through "a decisive decade for our world".
 ### [Record backlog of cargo ships at California ports](https://www.bbc.com/news/business-58643717)
 A large backlog of cargo ships is stuck outside two of America's biggest ports, in the latest sign of the supply chain disruption hitting the US. 
+### [Joe Biden urges unity amid tensions with allies](https://www.bbc.com/news/world-us-canada-58642139)
+In his first address to the United Nations, US President Joe Biden has urged global cooperation through "a decisive decade for our world".
 ### [CIA officer 'develops Havana syndrome' in India](https://www.bbc.com/news/world-us-canada-58632145)
 A CIA officer who was travelling to India this month with the agency's director has reported symptoms consistent with so-called Havana syndrome, US media report.
 ### [Afghan girls school ban would be un-Islamic - Pakistan](https://www.bbc.com/news/world-asia-58639538)
