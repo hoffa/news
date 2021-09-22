@@ -5,10 +5,10 @@ The FBI has confirmed that a body found inside a Wyoming national park on Sunday
 The Taliban have asked to address world leaders at the United Nations General Assembly this week in New York City.
 ### [Conservative O'Toole defiant after loss to Trudeau](https://www.bbc.com/news/world-us-canada-58641764)
 Conservative Leader Erin O'Toole has vowed to "work tirelessly" to expand the party's influence in a speech one day after Canada's federal election. 
-### [Earthquake shakes Melbourne and southeast Australia](https://www.bbc.com/news/world-australia-58646917)
-A 5.8 magnitude earthquake has rattled southeast Australia, damaging buildings in the city of Melbourne. 
 ### [Biden downplays chances of UK-US trade deal](https://www.bbc.com/news/uk-politics-58646017)
 Joe Biden has downplayed the chances of brokering a post-Brexit free trade deal with the UK, as he held talks with Boris Johnson at the White House.
+### [Earthquake shakes Melbourne and southeast Australia](https://www.bbc.com/news/world-australia-58646917)
+A 5.8 magnitude earthquake has rattled southeast Australia, damaging buildings in the city of Melbourne. 
 ### [Record backlog of cargo ships at California ports](https://www.bbc.com/news/business-58643717)
 Some 65 cargo ships have been forced to queue outside two of America's biggest ports, in the latest sign of supply chain disruption hitting the US. 
 ### [Abba star aims to fix £500m music royalty problem](https://www.bbc.com/news/entertainment-arts-58643787)
