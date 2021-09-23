@@ -11,10 +11,10 @@ Angry scenes broke out at Haiti's main airport after migrants were deported to t
 Consumers should throw away their Chinese phones and avoid buying new ones, Lithuania’s Defence Ministry has warned.
 ### [PM: Humanity reaching a turning point on climate](https://www.bbc.com/news/uk-58657887)
 A climate summit of world leaders in 40 days' time will be the "turning point for humanity", PM Boris Johnson has said in a speech to the United Nations.
-### [Why China looks to be on the way back to socialism](https://www.bbc.com/news/business-58579831)
-For decades life in China had evolved around its home-grown version of let-it-rip capitalism.
 ### [France and US seek to mend rift over Aukus pact](https://www.bbc.com/news/world-europe-58659627)
 France and the US have made efforts to end a row which started last week with the announcement of the Aukus defence pact between the US, UK and Australia.
+### [Why China looks to be on the way back to socialism](https://www.bbc.com/news/business-58579831)
+For decades life in China had evolved around its home-grown version of let-it-rip capitalism.
 ### [Evergrande shares jump as debt deadline looms](https://www.bbc.com/news/business-58660578)
 Shares in Evergrande have jumped in Hong Kong after the troubled property giant struck an agreement with Chinese bond holders on Wednesday.
 ### [Taiwan fears China will shut it out of trade pact](https://www.bbc.com/news/world-asia-58660843)
