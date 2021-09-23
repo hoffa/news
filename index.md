@@ -13,9 +13,9 @@ France and US have made efforts to end a row which started last week with the an
 Consumers should throw away their Chinese phones and avoid buying new ones, Lithuania’s Defence Ministry has warned.
 ### [Conservative O'Toole defiant after loss to Trudeau](https://www.bbc.com/news/world-us-canada-58641764)
 Conservative Leader Erin O'Toole has vowed to "work tirelessly" to expand the party's influence in a speech one day after Canada's federal election. 
-### [Air pollution is even worse than we thought - WHO](https://www.bbc.com/news/science-environment-58657224)
-Air pollution is even more dangerous than previously thought, the World Health Organization (WHO) has warned, as it slashes maximum safe levels of key pollutants such nitrogen dioxide.
 ### [Why China looks to be on the way back to socialism](https://www.bbc.com/news/business-58579831)
 For decades life in China had evolved around its home-grown version of let-it-rip capitalism.
-### [Reality TV Covid case triggers Australian lockdown](https://www.bbc.com/news/world-australia-58653197)
-The reality TV programme I'm a Celebrity... Get Me Out of Here! is facing criticism after a crew member contracted Covid-19, sending thousands of Australians into lockdown.
+### [Time for humanity to grow up on climate, says PM](https://www.bbc.com/news/uk-58657887)
+It is time for humanity to grow up on climate change, Boris Johnson has said in a speech to the United Nations in New York.
+### [Images of Haitians at US border echo grim past](https://www.bbc.com/news/world-us-canada-58654351)
+Shocking images of horse-mounted officers corralling Haitian migrants along the US-Mexico border are evoking dark comparisons to US slavery and the country's historical mistreatment of black people. 
