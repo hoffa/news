@@ -13,9 +13,9 @@ For decades life in China had evolved around its home-grown version of let-it-ri
 Consumers should throw away their Chinese phones and avoid buying new ones, Lithuania’s Defence Ministry has warned.
 ### [Angry scenes at Haiti airport as migrants arrive](https://www.bbc.com/news/world-latin-america-58650753)
 Angry scenes broke out at Haiti's main airport after migrants were deported to the country from the US. 
-### [Conservative O'Toole defiant after loss to Trudeau](https://www.bbc.com/news/world-us-canada-58641764)
-Conservative Leader Erin O'Toole has vowed to "work tirelessly" to expand the party's influence in a speech one day after Canada's federal election. 
-### [Images of Haitians at US border echo grim past](https://www.bbc.com/news/world-us-canada-58654351)
-Shocking images of horse-mounted officers corralling Haitian migrants along the US-Mexico border are evoking dark comparisons to US slavery and the country's historical mistreatment of black people. 
 ### [France and US seek to mend rift over Aukus pact](https://www.bbc.com/news/world-europe-58659627)
 France and US have made efforts to end a row which started last week with the announcement of the Aukus defence pact between the US, the UK and Australia.
+### [Images of Haitians at US border echo grim past](https://www.bbc.com/news/world-us-canada-58654351)
+Shocking images of horse-mounted officers corralling Haitian migrants along the US-Mexico border are evoking dark comparisons to US slavery and the country's historical mistreatment of black people. 
+### [Conservative O'Toole defiant after loss to Trudeau](https://www.bbc.com/news/world-us-canada-58641764)
+Conservative Leader Erin O'Toole has vowed to "work tirelessly" to expand the party's influence in a speech one day after Canada's federal election. 
