@@ -11,11 +11,11 @@ Faulty lifts, flooding and intolerable noises are just some of the woes that the
 German Chancellor Angela Merkel has backed her centre-right party's candidate Armin Laschet to succeed her, in an unusually tight poll campaign.
 ### [Michael K Williams died of accidental drug overdose](https://www.bbc.com/news/world-us-canada-58684726)
 US actor Michael K Williams died after overdosing on a combination of heroin, cocaine, fentanyl and p-fluorofentanyl, the New York Chief Medical Examiner has confirmed.
-### [Music company buys NFT of 'Side-eyeing Chloe' meme](https://www.bbc.com/news/world-us-canada-58687070)
-An image of a popular internet meme, featuring a two-year-old girl, has been sold as a non-fungible token (NFT) for about $74,000 (£54,000).
 ### [Prince accepts being served with US lawsuit papers](https://www.bbc.com/news/uk-58682356)
 Prince Andrew's US lawyers have accepted he has been served with legal papers which allege he sexually assaulted Virginia Giuffre in 2001. 
-### [China frees Canadians after Huawei boss released](https://www.bbc.com/news/world-us-canada-58687071)
-A diplomatic row between China and the West appears to be ending, after the release of two Canadians held in China and a Chinese tech executive in Canada.
+### [Music company buys NFT of 'Side-eyeing Chloe' meme](https://www.bbc.com/news/world-us-canada-58687070)
+An image of a popular internet meme, featuring a two-year-old girl, has been sold as a non-fungible token (NFT) for about $74,000 (£54,000).
 ### [Top Huawei boss flies back to China after deal with US](https://www.bbc.com/news/world-us-canada-58682998)
 A Chinese technology executive held in Canada on US fraud charges has left the country after a deal with prosecutors, following years of diplomatic tensions over her fate.
+### [China frees Canadians after Huawei boss released](https://www.bbc.com/news/world-us-canada-58687071)
+A diplomatic row between China and the West appears to be ending, after the release of two Canadians held in China and a Chinese tech executive in Canada.
