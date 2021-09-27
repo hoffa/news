@@ -7,15 +7,15 @@ The Taliban have banned hairdressers in Afghanistan's Helmand province from shav
 The interior of the house made of mud bricks was cool, clean and calm. A man called Shamsullah, who had a small son clinging to his leg, ushered his visitors into the room where they received guests. 
 ### [Australia PM may skip COP26 climate summit](https://www.bbc.com/news/world-australia-58703128)
 Australia's prime minister has signalled he may not attend the UN's landmark climate conference in November as his government faces continued criticism of its poor climate record.
+### [Power outages hit homes in north-east China](https://www.bbc.com/news/world-asia-china-58704221)
+Residents in north-east China are experiencing unannounced power cuts, as an electricity shortage which initially hit factories spreads to homes.
 ### [Iceland misses out on female majority after recount](https://www.bbc.com/news/world-europe-58698490)
 Iceland briefly believed it had made history by electing Europe's first female-majority parliament - before a recount showed it had just fallen short.
-### [More people feeling forced into private healthcare](https://www.bbc.com/news/health-58680153)
- "To be put in a position where you're basically begging off people, it's infuriating."
 ### [UK suspends competition law to boost fuel supplies](https://www.bbc.com/news/uk-58701620)
 The government is to suspend competition law to allow oil firms to target fuel deliveries at petrol stations following recent panic buying.
 ### [India's misunderstood maharajahs](https://www.bbc.com/news/world-asia-india-58638962)
 India's maharajahs or rulers of princely states are commonly viewed through stereotypes of elephants, dancing girls, and grand palaces. Historian Manu Pillai revisits their legacy.
-### [The #MeToo icon China is trying to silence](https://www.bbc.com/news/world-asia-china-58629102)
-Xianzi sounds exhausted. "Sorry. I've been crying the last half hour," she tells the BBC over the phone from Beijing.
-### [Why the Dalai Lama wants to save an Edinburgh café](https://www.bbc.com/news/uk-scotland-edinburgh-east-fife-58673507)
-The Dalai Lama is backing efforts to save a Scottish café inspired by a promise a Tibetan woman made him almost 20 years ago.
+### [More people feeling forced into private healthcare](https://www.bbc.com/news/health-58680153)
+ "To be put in a position where you're basically begging off people, it's infuriating."
+### [Chinese tech executive freed by Canada comes home](https://www.bbc.com/news/world-us-canada-58690974)
+A Chinese tech executive released after being detained in Canada for nearly three years has returned home.
