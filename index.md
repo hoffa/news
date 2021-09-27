@@ -13,9 +13,9 @@ Iceland briefly believed it had made history by electing Europe's first female-m
 India's maharajahs or rulers of princely states are commonly viewed through stereotypes of elephants, dancing girls, and grand palaces. Historian Manu Pillai revisits their legacy.
 ### [Why the Dalai Lama wants to save an Edinburgh cafe](https://www.bbc.com/news/uk-scotland-edinburgh-east-fife-58673507)
 The Dalai Lama is backing efforts to save a Scottish cafe inspired by a promise a Tibetan woman made him almost 20 years ago.
-### [Man held on suspicion of murder of Sabina Nessa](https://www.bbc.com/news/uk-england-london-58696977)
-A man has been arrested on suspicion of murder by police investigating the death of south-east London primary school teacher Sabina Nessa.
 ### [Chinese tech executive freed by Canada comes home](https://www.bbc.com/news/world-us-canada-58690974)
 A Chinese tech executive released after being detained in Canada for nearly three years has returned home.
-### [San Marino votes to legalise abortion in referendum](https://www.bbc.com/news/world-europe-58701788)
-Residents in the European microstate of San Marino have voted overwhelmingly to legalise abortion.
+### [Australia PM may skip COP26 climate summit](https://www.bbc.com/news/world-australia-58703128)
+Australia's prime minister has signalled he may not attend the UN's landmark climate conference in November as his government faces continued criticism of its poor climate record.
+### [Man held on suspicion of murder of Sabina Nessa](https://www.bbc.com/news/uk-england-london-58696977)
+A man has been arrested on suspicion of murder by police investigating the death of south-east London primary school teacher Sabina Nessa.
