@@ -1,10 +1,10 @@
 # News
-### [WHO staff ambushed women for sex, inquiry finds](https://www.bbc.com/news/world-africa-58710200)
-World Health Organization (WHO) staff were among 83 aid workers who sexually abused women and girls while tackling the Ebola outbreak in the Democratic Republic of Congo, a report finds.
-### [Al-Qaeda could threaten US in a year - general](https://www.bbc.com/news/world-us-canada-58719834)
-Top US General Mark Milley has warned al-Qaeda terrorists in Afghanistan could threaten the US in as little as 12 months.
+### [Generals advised Biden against Afghan pull-out](https://www.bbc.com/news/world-us-canada-58719834)
+Two top US generals have said they recommended keeping a force of 2,500 troops in Afghanistan, ahead of the full US withdrawal in August.
 ### [Scantily-clad statue sparks sexism row in Italy](https://www.bbc.com/news/world-europe-58723918)
 A bronze statue of a scantily-clad woman to honour a 19th Century poem has sparked a sexism row in Italy, with politicians calling for its removal.
+### [WHO staff ambushed women for sex, inquiry finds](https://www.bbc.com/news/world-africa-58710200)
+World Health Organization (WHO) staff were among 83 aid workers who sexually abused women and girls while tackling the Ebola outbreak in the Democratic Republic of Congo, a report finds.
 ### [Daniel Craig's last Bond film finally premieres](https://www.bbc.com/news/entertainment-arts-58718914)
 Daniel Craig's final James Bond film has finally had its world premiere in London, 18 months later than planned because it was delayed by the pandemic.
 ### ['I sold drugs as a dirty cop'](https://www.bbc.com/news/world-us-canada-58710164)
