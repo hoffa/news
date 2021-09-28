@@ -13,9 +13,9 @@ Singer R. Kelly has been found guilty of exploiting his superstar status to run 
 Afghanistan's banking system is near to collapse, the boss of one of the nation's biggest lenders has told the BBC.
 ### [The race to replace persistent chemicals in our homes](https://www.bbc.com/news/business-58595098)
 Take a look around your home, at the many products that make daily life more convenient. Have you ever wondered why food doesn't stick to your favourite frying-pan, why grease doesn't soak through your bag of microwave popcorn, or why water doesn't soak into your jacket? 
-### [North Korea fires missile, says South](https://www.bbc.com/news/world-asia-58715623)
-North Korea has fired a short-range missile towards the sea off its east coast early on Tuesday, said South Korea's military. 
 ### [Ford plans $11.4bn investment in electric car plants](https://www.bbc.com/news/business-58714608)
 Ford has announced a major investment in electric vehicle (EV) production in the US, promising to build its biggest ever factory in Tennessee, and two battery parks in Kentucky. 
 ### [Three Polish regions scrap anti-LGBT resolutions](https://www.bbc.com/news/world-europe-58714658)
 Three Polish regions voted on Monday to scrap resolutions that declared them free of "LGBT ideology". 
+### [Dutch PM's security stepped up over gang threat](https://www.bbc.com/news/world-europe-58718789)
+Dutch Prime Minister Mark Rutte has been given extra security over fears that he may be the target of an attack or kidnapping by a criminal gang, local media reports say.
