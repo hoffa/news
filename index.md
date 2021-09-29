@@ -13,9 +13,9 @@ An award-winning traditional Scots singer says she was offered help to get a fes
 Amazon is launching Astro, its first household robot, powered by its Alexa smart home technology.
 ### [World Heritage forest returned to Aboriginal owners](https://www.bbc.com/news/world-australia-58729781)
 Australia's Daintree - the world's oldest tropical rainforest - has been returned to its Aboriginal custodians in a historic deal.
-### [Toxic gas fears as La Palma lava reaches ocean](https://www.bbc.com/news/world-europe-58729674)
-Lava from an erupting volcano on Spain's La Palma island has reached the Atlantic Ocean, raising fears of toxic gases being released and explosions.
 ### [WHO staff ambushed women for sex, inquiry finds](https://www.bbc.com/news/world-africa-58710200)
 World Health Organization (WHO) staff were among 83 aid workers who sexually abused women and girls while tackling the Ebola outbreak in the Democratic Republic of Congo, a report finds.
-### ['Covid vaccine best suited for me & family'](https://www.bbc.com/sport/basketball/58728806)
-Basketball great LeBron James says he decided to get the coronavirus vaccine because it "best suited" him, his family and his friends.
+### ['I sold drugs as a dirty cop'](https://www.bbc.com/news/world-us-canada-58710164)
+For the past four years, Jessica Lussenhop has been reporting on the rise and fall of a corrupt squad of Baltimore police officers. Just as she was completing her podcast series on the story, she got a very unexpected call from prison.
+### [Toxic gas fears as La Palma lava reaches ocean](https://www.bbc.com/news/world-europe-58729674)
+Lava from an erupting volcano on Spain's La Palma island has reached the Atlantic Ocean, raising fears of toxic gases being released and explosions.
