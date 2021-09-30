@@ -13,9 +13,9 @@ A judge has suspended Britney Spears' father from the legal arrangement that gav
 Sex crimes are notoriously difficult to prosecute - but one woman in Kansas is using a rarely used 19th Century law to ask her fellow citizens to help bring charges against the man she says raped her. 
 ### [Italy climate minister accepts Thunberg criticism](https://www.bbc.com/news/world-europe-58743515)
 Italy's climate minister says he accepts the criticism of Greta Thunberg who this week accused politicians of "30 years of blah, blah, blah".
-### [No Time To Die is magnificent, critics say](https://www.bbc.com/news/entertainment-arts-58718299)
-Daniel Craig's fifth and final James Bond film, No Time To Die, has received rave reviews from critics.
 ### [US city apologises for early anti-Chinese racism](https://www.bbc.com/news/world-us-canada-58729097)
 When Young Soong Quong first arrived San Jose, California in the late 19th century, the Chinese teenager stocked shelves at his uncle's shop in the city's vibrant Chinatown, where thousands of Chinese immigrants worked back-breaking, low-wage jobs to send money back home.
+### [No Time To Die is magnificent, critics say](https://www.bbc.com/news/entertainment-arts-58718299)
+Daniel Craig's fifth and final James Bond film, No Time To Die, has received rave reviews from critics.
 ### [US declares 23 bird, fish and other species extinct](https://www.bbc.com/news/world-us-canada-58740362)
 The ivory-billed woodpecker is among 23 species declared extinct by the US Fish and Wildlife Service (FWS).
