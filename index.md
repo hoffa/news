@@ -11,10 +11,10 @@ Desperate families have gathered at a jail in Ecuador which police are trying to
 A Met Police officer who murdered Sarah Everard after kidnapping her under the guise of an arrest has been sentenced to a whole-life prison term.
 ### [Sarkozy gets jail sentence over campaign funding](https://www.bbc.com/news/world-europe-58729505)
 Former French President Nicolas Sarkozy has been sentenced to a year in prison for illegally funding his unsuccessful 2012 re-election campaign. 
-### [Confession may end 35-year hunt for French killer](https://www.bbc.com/news/world-europe-58749596)
-For decades the crimes of a notorious serial killer have haunted the Paris crime squad.
 ### [The US case that could change how rape is charged](https://www.bbc.com/news/world-us-canada-58729321)
 Sex crimes are notoriously difficult to prosecute - but one woman in Kansas is using a rarely used 19th Century law to ask her fellow citizens to help bring charges against the man she says raped her. 
+### [Confession may end 35-year hunt for French killer](https://www.bbc.com/news/world-europe-58749596)
+For decades the crimes of a notorious serial killer have haunted the Paris crime squad.
 ### [Evergrande misses second payment deadline: reports](https://www.bbc.com/news/world-asia-china-58749594)
 The hugely indebted Chinese property giant Evergrande has missed interest payments to overseas investors for the second time in a week, reports say.
 ### [Canada marks first Truth and Reconciliation day](https://www.bbc.com/news/world-us-canada-58742922)
