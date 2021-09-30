@@ -7,10 +7,10 @@ A former secretary at a Nazi concentration camp has been captured after trying t
 A Met Police officer who murdered Sarah Everard after kidnapping her under the guise of an arrest has been sentenced to a whole-life prison term.
 ### [Sarkozy gets jail sentence over campaign funding](https://www.bbc.com/news/world-europe-58729505)
 Former French President Nicolas Sarkozy has been sentenced to a year in prison for illegally funding his unsuccessful 2012 re-election campaign. 
-### [Ecuador police storm riot-hit jail where 116 died](https://www.bbc.com/news/world-latin-america-58733202)
-Four hundred police officers have entered a prison in the Ecuadorean port city of Guayaquil where at least 116 inmates have been killed in a gang war. 
 ### [The US case that could change how rape is charged](https://www.bbc.com/news/world-us-canada-58729321)
 Sex crimes are notoriously difficult to prosecute - but one woman in Kansas is using a rarely used 19th Century law to ask her fellow citizens to help bring charges against the man she says raped her. 
+### [Ecuador police storm riot-hit jail where 116 died](https://www.bbc.com/news/world-latin-america-58733202)
+Four hundred police officers have entered a prison in the Ecuadorean port city of Guayaquil where at least 116 inmates have been killed in a gang war. 
 ### [Evergrande misses second payment deadline: reports](https://www.bbc.com/news/world-asia-china-58749594)
 The hugely indebted Chinese property giant Evergrande has missed interest payments to overseas investors for the second time in a week, reports say.
 ### [Canada marks first Truth and Reconciliation day](https://www.bbc.com/news/world-us-canada-58742922)
