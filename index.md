@@ -13,9 +13,9 @@ Four hundred police officers have entered a prison in the Ecuadorean port city o
 Sex crimes are notoriously difficult to prosecute - but one woman in Kansas is using a rarely used 19th Century law to ask her fellow citizens to help bring charges against the man she says raped her. 
 ### [Britney 'on cloud nine' after conservator ruling](https://www.bbc.com/news/entertainment-arts-58746569)
 Britney Spears has said she is "on cloud nine right now", in what appears to be a response to a judge suspending her father as her conservator.
-### [US deal paved way for Afghan collapse - generals](https://www.bbc.com/news/world-us-canada-58738953)
-Top US defence officials have said the Taliban's takeover of Afghanistan can be traced back to a deal between the group and the Trump administration. 
 ### [Belarus coaches to be investigated](https://www.bbc.com/sport/athletics/58747876)
 An investigation has been opened into two Belarus coaches who allegedly tried to force an athlete to fly home from the Tokyo Olympics.
+### [US deal paved way for Afghan collapse - generals](https://www.bbc.com/news/world-us-canada-58738953)
+Top US defence officials have said the Taliban's takeover of Afghanistan can be traced back to a deal between the group and the Trump administration. 
 ### [JK Rowling table saved from cafe gutted by fire](https://www.bbc.com/news/uk-scotland-edinburgh-east-fife-58737507)
 A cafe table where JK Rowling wrote sections of her Harry Potter books has been salvaged from a huge fire, which devastated the building.
