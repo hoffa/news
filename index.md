@@ -9,10 +9,10 @@ After years of controversy, Japan’s Princess Mako will marry her former classm
 US President Joe Biden has suffered a setback after Congress delayed a vote on a $1tn (£750bn) infrastructure plan. 
 ### [Australia to end strict Covid travel ban](https://www.bbc.com/news/world-australia-58757888)
 Australia will reopen its international border from November, giving long-awaited freedoms to vaccinated citizens and their relatives.
-### [Disney and Scarlett Johansson settle lawsuit](https://www.bbc.com/news/business-58757748)
-Walt Disney and Scarlett Johansson have settled a legal dispute over the release of the Marvel superhero movie Black Widow.
 ### [Squid Game: How one Netflix show gripped the world](https://www.bbc.com/news/world-asia-58729766)
 Even if you haven't watched the show or seen the memes taking over the internet - chances are you've probably heard of Squid Game.
+### [Disney and Scarlett Johansson settle lawsuit](https://www.bbc.com/news/business-58757748)
+Walt Disney and Scarlett Johansson have settled a legal dispute over the release of the Marvel superhero movie Black Widow.
 ### [Is Biden's biggest win about to elude him?](https://www.bbc.com/news/world-us-canada-58757207)
 On Wednesday night, Joe Biden stopped by the congressional baseball game, an annual event where politicians from both parties supposedly put partisan differences aside and take to the field to play America's beloved national pastime.
 ### [Gross misconduct probe into Couzens WhatsApp group](https://www.bbc.com/news/uk-58760933)
