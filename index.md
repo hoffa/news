@@ -7,6 +7,8 @@ Prime Minister Justin Trudeau has been criticised for leaving on vacation during
 An experimental drug for severe Covid cuts the risk of hospitalisation or death by about half, interim clinical trial results suggest. 
 ### [DNA reveals ex-officer as French serial killer](https://www.bbc.com/news/world-europe-58749596)
 For decades the crimes of a notorious serial killer have haunted the Paris crime squad.
+### [Advertisers desert Ozy Media as scandal deepens](https://www.bbc.com/news/business-58766239)
+Major advertisers are reportedly cutting ties with the embattled US media firm Ozy Media amid a deepening scandal over its business practices. 
 ### [Biden visits Congress to lobby for stalled bill](https://www.bbc.com/news/world-us-canada-58758738)
 US President Joe Biden has made a surprise visit to Congress one day after it delayed a crucial vote on his $1tn (£750bn) infrastructure plan. 
 ### [Women filmed urinating left humiliated by judge](https://www.bbc.com/news/world-europe-58747084)
@@ -17,5 +19,3 @@ Papua New Guinea has admitted making a "terrible mistake" after struggling to se
 Anup Shah has been announced as the winner of the Nature Conservancy 2021 Photo Contest, for his image of a western lowland gorilla walking through a cloud of butterflies in the Central African Republic.
 ### [Fashion mogul Peter Nygard to be extradited to US](https://www.bbc.com/news/world-us-canada-58765501)
 Canadian fashion mogul Peter Nygard has agreed to be extradited to the US to face charges of sex trafficking and racketeering.
-### [Advertisers desert Ozy Media as scandal deepens](https://www.bbc.com/news/business-58766239)
-Major advertisers are reportedly cutting ties with the embattled US media firm Ozy Media amid a deepening scandal over its business practices. 
