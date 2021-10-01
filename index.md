@@ -13,9 +13,9 @@ Australia will reopen its international border from November, giving long-awaite
 Even if you haven't watched the show or seen the memes taking over the internet - chances are you've probably heard of Squid Game.
 ### [Disney and Scarlett Johansson settle lawsuit](https://www.bbc.com/news/business-58757748)
 Walt Disney and Scarlett Johansson have settled a legal dispute over the release of the Marvel superhero movie Black Widow.
+### ['I saw photo of my son's dead body online'](https://www.bbc.com/news/world-latin-america-58756916)
+More than 100 inmates have been killed in a fight inside a prison in the Ecuadorean port city of Guayaquil. It is expected to take days to identify the bodies, leaving relatives of inmates fearing the worst. Journalist Blanca Moncada Pesantes spoke to some of those waiting for news.
+### [Challenge plain-clothes officers, Met Police says](https://www.bbc.com/news/uk-58757375)
+People stopped by a lone plain-clothes officer should challenge their legitimacy, the Met Police says.
 ### [Evergrande misses second payment deadline: reports](https://www.bbc.com/news/world-asia-china-58749594)
 The hugely indebted Chinese property giant Evergrande has missed interest payments to overseas investors for the second time in a week, reports say.
-### [Man joins search party looking for himself](https://www.bbc.com/news/world-europe-58746703)
-A missing man in Turkey accidentally joined his own search party for hours before realising he was the person they were looking for, local media reports.
-### [Australia-EU talks delayed as Aukus row deepens](https://www.bbc.com/news/business-58757749)
-Trade talks between Australia and the European Union have been postponed as a row with France over the so-called Aukus security partnership deepens.
