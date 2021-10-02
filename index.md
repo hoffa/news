@@ -8,14 +8,14 @@ A Lithuanian man has had more than a kilogram of nails, screws, nuts and knives 
 ### [Alex Jones loses case over Sandy Hook false claims](https://www.bbc.com/news/world-us-canada-58771927)
 US radio host and prominent conspiracy theorist Alex Jones has lost another legal case after falsely calling a mass school shooting a "hoax".
 ### [Philippines' Duterte says he will quit politics](https://www.bbc.com/news/world-asia-58772586)
-Philippine President Rodrigo Duterte has said he will not stand for vice-president in next year's election, and will instead retire from politics.
-### [Lavish Russian wedding for Tsar's descendant](https://www.bbc.com/news/world-europe-58767448)
-A descendent of Russia's Romanov monarchy, which was toppled in the 1917 revolution, has married in a lavish ceremony in St Petersburg.
+Philippine President Rodrigo Duterte says he is retiring from politics and will not stand in elections next year.
 ### [Striking pictures from around the world this week](https://www.bbc.com/news/in-pictures-58761284)
 A selection of powerful news photographs taken around the world this week.
+### [Lavish Russian wedding for Tsar's descendant](https://www.bbc.com/news/world-europe-58767448)
+A descendent of Russia's Romanov monarchy, which was toppled in the 1917 revolution, has married in a lavish ceremony in St Petersburg.
 ### [Military to deliver petrol to garages from Monday](https://www.bbc.com/news/uk-58766648)
 Armed forces personnel will begin delivering petrol to garages across the UK from Monday, the government says.
-### [Scandal-hit Ozy Media to shut down](https://www.bbc.com/news/business-58766239)
-US media firm Ozy Media has announced that it is to close down amid a growing row over its business practices.
 ### [Can the US tackle soaring meat prices?](https://www.bbc.com/news/business-58659478)
 It is a typically bustling day in "Little India", a part of Queens in New York City that many South Asian immigrants call home. But things are much quieter at the Al Noor Meat Market, a local halal butchers on 73rd Street.
+### [Scandal-hit Ozy Media to shut down](https://www.bbc.com/news/business-58766239)
+US media firm Ozy Media has announced that it is to close down amid a growing row over its business practices.
