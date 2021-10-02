@@ -11,11 +11,11 @@ For decades the crimes of a notorious serial killer have haunted the Paris crime
 Armed forces personnel will begin delivering petrol to garages across the UK from Monday, the government says.
 ### [Women filmed urinating left humiliated by judge](https://www.bbc.com/news/world-europe-58747084)
 A Spanish judge has shocked women's rights groups by dismissing a case that involved women being secretly filmed urinating in public and the videos then being posted on porn websites.
-### [Scandal-hit Ozy Media to shut down - reports](https://www.bbc.com/news/business-58766239)
-US media firm Ozy Media is to close down amid a growing row over its business practices, US media report.
 ### [Biden visits Congress to lobby for stalled bill](https://www.bbc.com/news/world-us-canada-58758738)
 US President Joe Biden has made a surprise visit to Congress one day after it delayed a crucial vote on his $1tn (£750bn) infrastructure plan. 
+### [Scandal-hit Ozy Media to shut down - reports](https://www.bbc.com/news/business-58766239)
+US media firm Ozy Media is to close down amid a growing row over its business practices, US media report.
 ### [Gorilla in a cloud of butterflies wins photographer top prize](https://www.bbc.com/news/in-pictures-58720336)
 Anup Shah has been announced as the winner of the Nature Conservancy 2021 Photo Contest, for his image of a western lowland gorilla walking through a cloud of butterflies in the Central African Republic.
-### [Papua New Guinea says luxury car fleet was mistake](https://www.bbc.com/news/world-asia-58760766)
-Papua New Guinea has admitted making a "terrible mistake" after struggling to sell a £4.2m ($5.6m) fleet of luxury cars bought to impress politicians during a meeting of regional leaders.
+### [Safety concerns raised at Bezos space company](https://www.bbc.com/news/world-us-canada-58760764)
+The US Federal Aviation Authority (FAA) has said it will review safety concerns raised by whistleblowers at Blue Origin, Amazon founder Jeff Bezos' space company. 
