@@ -9,13 +9,13 @@ An experimental drug for severe Covid cuts the risk of hospitalisation or death 
 For decades the crimes of a notorious serial killer have haunted the Paris crime squad.
 ### [Military to deliver petrol to garages from Monday](https://www.bbc.com/news/uk-58766648)
 Armed forces personnel will begin delivering petrol to garages across the UK from Monday, the government says.
-### [Women filmed urinating left humiliated by judge](https://www.bbc.com/news/world-europe-58747084)
-A Spanish judge has shocked women's rights groups by dismissing a case that involved women being secretly filmed urinating in public and the videos then being posted on porn websites.
+### [Striking pictures from around the world this week](https://www.bbc.com/news/in-pictures-58761284)
+A selection of powerful news photographs taken around the world this week.
+### [Scandal-hit Ozy Media to shut down](https://www.bbc.com/news/business-58766239)
+US media firm Ozy Media has announced that it is to close down amid a growing row over its business practices.
 ### [Biden visits Congress to lobby for stalled bill](https://www.bbc.com/news/world-us-canada-58758738)
 US President Joe Biden has made a surprise visit to Congress one day after it delayed a crucial vote on his $1tn (£750bn) infrastructure plan. 
-### [Scandal-hit Ozy Media to shut down - reports](https://www.bbc.com/news/business-58766239)
-US media firm Ozy Media is to close down amid a growing row over its business practices, US media report.
-### [Gorilla in a cloud of butterflies wins photographer top prize](https://www.bbc.com/news/in-pictures-58720336)
-Anup Shah has been announced as the winner of the Nature Conservancy 2021 Photo Contest, for his image of a western lowland gorilla walking through a cloud of butterflies in the Central African Republic.
-### [Safety concerns raised at Bezos space company](https://www.bbc.com/news/world-us-canada-58760764)
-The US Federal Aviation Authority (FAA) has said it will review safety concerns raised by whistleblowers at Blue Origin, Amazon founder Jeff Bezos' space company. 
+### [Women filmed urinating left humiliated by judge](https://www.bbc.com/news/world-europe-58747084)
+A Spanish judge has shocked women's rights groups by dismissing a case that involved women being secretly filmed urinating in public and the videos then being posted on porn websites.
+### [Fashion mogul Peter Nygard to be extradited to US](https://www.bbc.com/news/world-us-canada-58765501)
+Canadian fashion mogul Peter Nygard has agreed to be extradited to the US to face charges of sex trafficking and racketeering.
