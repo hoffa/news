@@ -13,9 +13,9 @@ Armed forces personnel will begin delivering petrol to garages across the UK fro
 A selection of powerful news photographs taken around the world this week.
 ### [Scandal-hit Ozy Media to shut down](https://www.bbc.com/news/business-58766239)
 US media firm Ozy Media has announced that it is to close down amid a growing row over its business practices.
-### [Biden visits Congress to lobby for stalled bill](https://www.bbc.com/news/world-us-canada-58758738)
-US President Joe Biden has made a surprise visit to Congress one day after it delayed a crucial vote on his $1tn (£750bn) infrastructure plan. 
+### [Biden insists infrastructure bill will get done](https://www.bbc.com/news/world-us-canada-58758738)
+President Biden has insisted his $1tn (£750bn) infrastructure bill will eventually be passed by Congress amid an impasse in his own party.
 ### [Women filmed urinating left humiliated by judge](https://www.bbc.com/news/world-europe-58747084)
 A Spanish judge has shocked women's rights groups by dismissing a case that involved women being secretly filmed urinating in public and the videos then being posted on porn websites.
-### [Fashion mogul Peter Nygard to be extradited to US](https://www.bbc.com/news/world-us-canada-58765501)
-Canadian fashion mogul Peter Nygard has agreed to be extradited to the US to face charges of sex trafficking and racketeering.
+### [Can the US tackle soaring meat prices?](https://www.bbc.com/news/business-58659478)
+It is a typically bustling day in "Little India", a part of Queens in New York City that many South Asian immigrants call home. But things are much quieter at the Al Noor Meat Market, a local halal butchers on 73rd Street.
