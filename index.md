@@ -3,16 +3,16 @@
 Taiwan has reported 38 Chinese military jets flying into its air defence zone on Friday - the largest incursion by Beijing to date.
 ### [Trudeau 'ducked out' of Truth and Reconciliation Day](https://www.bbc.com/news/world-us-canada-58765502)
 Prime Minister Justin Trudeau has been criticised for leaving on vacation during Canada's first National Day for Truth and Reconciliation.
-### [Lavish Russian wedding for Tsar's descendant](https://www.bbc.com/news/world-europe-58767448)
-A descendent of Russia's Romanov monarchy, which was toppled in the 1917 revolution, has married in a lavish ceremony in St Petersburg.
-### [Military to deliver petrol to garages from Monday](https://www.bbc.com/news/uk-58766648)
-Armed forces personnel will begin delivering petrol to garages across the UK from Monday, the government says.
-### [Pill halves risk of Covid hospitalisation in trial](https://www.bbc.com/news/health-58764440)
-An experimental drug for severe Covid cuts the risk of hospitalisation or death by about half, interim clinical trial results suggest. 
-### [DNA reveals ex-officer as French serial killer](https://www.bbc.com/news/world-europe-58749596)
-For decades the crimes of a notorious serial killer have haunted the Paris crime squad.
 ### [Kilogram of nails found in man's stomach](https://www.bbc.com/news/world-europe-58771370)
 A Lithuanian man has had more than a kilogram of nails, screws, nuts and knives removed from his stomach by doctors, local media report.
+### [Lavish Russian wedding for Tsar's descendant](https://www.bbc.com/news/world-europe-58767448)
+A descendent of Russia's Romanov monarchy, which was toppled in the 1917 revolution, has married in a lavish ceremony in St Petersburg.
+### [Pill halves risk of Covid hospitalisation in trial](https://www.bbc.com/news/health-58764440)
+An experimental drug for severe Covid cuts the risk of hospitalisation or death by about half, interim clinical trial results suggest. 
+### [Military to deliver petrol to garages from Monday](https://www.bbc.com/news/uk-58766648)
+Armed forces personnel will begin delivering petrol to garages across the UK from Monday, the government says.
+### [DNA reveals ex-officer as French serial killer](https://www.bbc.com/news/world-europe-58749596)
+For decades the crimes of a notorious serial killer have haunted the Paris crime squad.
 ### [Striking pictures from around the world this week](https://www.bbc.com/news/in-pictures-58761284)
 A selection of powerful news photographs taken around the world this week.
 ### [Scandal-hit Ozy Media to shut down](https://www.bbc.com/news/business-58766239)
