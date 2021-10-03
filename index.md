@@ -17,5 +17,5 @@ The boss of United Airlines has told the BBC that firing staff who refuse to get
 Taiwan says dozens of Chinese military jets have flown into its air defence zone in the last two days - the largest incursion by Beijing to date.
 ### [Thousands protest against Brazil's president](https://www.bbc.com/news/world-latin-america-58777244)
 Thousands of people have taken to the streets in towns and cities across Brazil to protest against the country's president Jair Bolsonaro. 
-### [Trudeau 'ducked out' of Truth and Reconciliation Day](https://www.bbc.com/news/world-us-canada-58765502)
-Prime Minister Justin Trudeau has been criticised for leaving on vacation during Canada's first National Day for Truth and Reconciliation.
+### ['Voice behind IS violence' charged in US](https://www.bbc.com/news/world-us-canada-58777274)
+A Canadian national who narrated propaganda videos for the Islamic State group has been charged in the US. 
