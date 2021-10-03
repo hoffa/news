@@ -11,11 +11,11 @@ A Lithuanian man has had more than a kilogram of nails, screws, nuts and knives 
 Tens of thousands of people have been holding rallies across all 50 US states in support of abortion rights. 
 ### [The pioneer Scots photographer who captured China](https://www.bbc.com/news/uk-scotland-58733514)
 Pioneering Scottish photographer John Thomson took some of the earliest pictures of China on record.
-### [United Airlines 'right' to insist on staff vaccines](https://www.bbc.com/news/business-58767310)
-The boss of United Airlines has told the BBC that firing staff who refuse to get a coronavirus vaccine is "just the right thing to do".
 ### [Dozens of Chinese planes in defence zone - Taiwan](https://www.bbc.com/news/world-asia-58771369)
 Taiwan says dozens of Chinese military jets have flown into its air defence zone in the last two days - the largest incursion by Beijing to date.
-### [Thousands protest against Brazil's president](https://www.bbc.com/news/world-latin-america-58777244)
-Thousands of people have taken to the streets in towns and cities across Brazil to protest against the country's president Jair Bolsonaro. 
+### [United Airlines 'right' to insist on staff vaccines](https://www.bbc.com/news/business-58767310)
+The boss of United Airlines has told the BBC that firing staff who refuse to get a coronavirus vaccine is "just the right thing to do".
 ### ['Voice behind IS violence' charged in US](https://www.bbc.com/news/world-us-canada-58777274)
 A Canadian national who narrated propaganda videos for the Islamic State group has been charged in the US. 
+### [Thousands protest against Brazil's president](https://www.bbc.com/news/world-latin-america-58777244)
+Thousands of people have taken to the streets in towns and cities across Brazil to protest against the country's president Jair Bolsonaro. 
