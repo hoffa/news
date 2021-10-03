@@ -1,6 +1,6 @@
 # News
 ### [No-frills airline swaps high heels for trainers](https://www.bbc.com/news/world-europe-58755872)
-"Twelve hours on your feet, flying to Kyiv to Zanzibar and back. If you wear high heels, you are hardly able to walk afterwards," says flight attendant Daria Solomennaya, 27.
+"Twelve hours on your feet, flying from Kyiv to Zanzibar and back. If you wear high heels, you are hardly able to walk afterwards," says flight attendant Daria Solomennaya, 27.
 ### ['Voice behind IS violence' charged in US](https://www.bbc.com/news/world-us-canada-58777274)
 A Canadian national who narrated propaganda videos for the Islamic State group has been charged in the US. 
 ### [Rape case sparks fury over China's work drinking](https://www.bbc.com/news/world-asia-china-58313387)
@@ -8,14 +8,14 @@ A high-profile rape allegation at Chinese tech giant Alibaba has sparked a socia
 ### [Vaccine 'not a limit on freedom' - Klopp](https://www.bbc.com/sport/football/58775881)
 Liverpool manager Jurgen Klopp says he does not understand why some people refuse the coronavirus vaccine.
 ### [Thousands march for abortion rights across US](https://www.bbc.com/news/world-us-canada-58774262)
-Tens of thousands of people have been holding rallies across all 50 US states in support of abortion rights. 
-### [The pioneer Scots photographer who captured China](https://www.bbc.com/news/uk-scotland-58733514)
-Pioneering Scottish photographer John Thomson took some of the earliest pictures of China on record.
-### [Thousands protest against Brazil's president](https://www.bbc.com/news/world-latin-america-58777244)
-Thousands of people have taken to the streets in towns and cities across Brazil to protest against the country's president Jair Bolsonaro. 
+Tens of thousands of people have marched at rallies across all 50 US states in support of abortion rights. 
 ### [Police to be quizzed over Couzens' work at Commons](https://www.bbc.com/news/uk-58777685)
 The Speaker of the House of Commons has asked for an urgent meeting with the Met Police after it was confirmed that Wayne Couzens was on duty five times at Parliament last year.
-### [United Airlines 'right' to insist on staff vaccines](https://www.bbc.com/news/business-58767310)
-The boss of United Airlines has told the BBC that firing staff who refuse to get a coronavirus vaccine is "just the right thing to do".
+### [The pioneer Scots photographer who captured China](https://www.bbc.com/news/uk-scotland-58733514)
+Pioneering Scottish photographer John Thomson took some of the earliest pictures of China on record.
 ### [Dozens of Chinese planes in defence zone - Taiwan](https://www.bbc.com/news/world-asia-58771369)
 Taiwan says a total of 39 Chinese military jets flew into its air defence zone on Saturday - the largest incursion by Beijing to date. 
+### [United Airlines 'right' to insist on staff vaccines](https://www.bbc.com/news/business-58767310)
+The boss of United Airlines has told the BBC that firing staff who refuse to get a coronavirus vaccine is "just the right thing to do".
+### [Thousands protest against Brazil's president](https://www.bbc.com/news/world-latin-america-58777244)
+Thousands of people have taken to the streets in towns and cities across Brazil to protest against the country's president Jair Bolsonaro. 
