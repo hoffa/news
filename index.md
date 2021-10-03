@@ -9,13 +9,13 @@ A high-profile rape allegation at Chinese tech giant Alibaba has sparked a socia
 Liverpool manager Jurgen Klopp says he does not understand why some people refuse the coronavirus vaccine.
 ### [Thousands march for abortion rights across US](https://www.bbc.com/news/world-us-canada-58774262)
 Tens of thousands of people have been holding rallies across all 50 US states in support of abortion rights. 
+### [The pioneer Scots photographer who captured China](https://www.bbc.com/news/uk-scotland-58733514)
+Pioneering Scottish photographer John Thomson took some of the earliest pictures of China on record.
 ### [Thousands protest against Brazil's president](https://www.bbc.com/news/world-latin-america-58777244)
 Thousands of people have taken to the streets in towns and cities across Brazil to protest against the country's president Jair Bolsonaro. 
 ### [Police to be quizzed over Couzens' work at Commons](https://www.bbc.com/news/uk-58777685)
-The Speaker of the House of Commons has asked for an urgent meeting with the Met Police after it was confirmed that Wayne Couzens was on duty five times at parliament last year.
+The Speaker of the House of Commons has asked for an urgent meeting with the Met Police after it was confirmed that Wayne Couzens was on duty five times at Parliament last year.
+### [United Airlines 'right' to insist on staff vaccines](https://www.bbc.com/news/business-58767310)
+The boss of United Airlines has told the BBC that firing staff who refuse to get a coronavirus vaccine is "just the right thing to do".
 ### [Dozens of Chinese planes in defence zone - Taiwan](https://www.bbc.com/news/world-asia-58771369)
 Taiwan says a total of 39 Chinese military jets flew into its air defence zone on Saturday - the largest incursion by Beijing to date. 
-### [Tuna corruption scandal puts Mozambique on trial](https://www.bbc.com/news/world-africa-58733063)
-The biggest corruption trial in Mozambique's history is under way at a maximum security prison, at the same time as the credibility of the country's judicial system is on trial in neighbouring South Africa.
-### [The pioneer Scots photographer who captured China](https://www.bbc.com/news/uk-scotland-58733514)
-Pioneering Scottish photographer John Thomson took some of the earliest pictures of China on record.
