@@ -3,10 +3,10 @@
 The family of Kenya's President Uhuru Kenyatta, that has dominated the country's politics since independence, secretly owned a network of offshore companies for decades, according to a huge leak of financial papers.  
 ### [Muhammad cartoonist Lars Vilks dies in car crash](https://www.bbc.com/news/world-europe-58783998)
 Swedish artist Lars Vilks, who sketched the Prophet Muhammad's head on a dog's body, has died in a traffic accident. 
-### [Sense of touch and heat research wins Nobel Prize](https://www.bbc.com/news/health-58787438)
-Scientists who discovered how our bodies feel the warmth of the sun or the hug of a loved one have won the Nobel Prize. 
 ### [Facebook whistleblower reveals identity](https://www.bbc.com/news/technology-58784615)
 A former Facebook whistleblower responsible for a series of bombshell leaks has revealed her identity. 
+### [Sense of touch and heat research wins Nobel Prize](https://www.bbc.com/news/health-58787438)
+Scientists who discovered how our bodies feel the warmth of the sun or the hug of a loved one have won the Nobel Prize. 
 ### [Cuban players in largest defection in years](https://www.bbc.com/news/world-latin-america-58748596)
 At least nine young Cuban baseball players have defected during a tournament in Mexico, officials say, in the largest defection of Cuban athletes in years.
 ### [Secret wealth of leaders exposed in document leak](https://www.bbc.com/news/world-58780465)
