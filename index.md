@@ -11,11 +11,11 @@ French fashion house Givenchy has been criticised after models wore necklaces sh
 Like many who come to America, Leng Hongsheng was looking for freedom. 
 ### [Mossad agents in secret mission for missing airman](https://www.bbc.com/news/world-middle-east-58792887)
 Israel's Mossad spy agency has carried out a "courageous" operation in the hope of finding out what happened to missing airman Ron Arad, its PM says.
-### [‘Excessive’ media gaze on star son after drug bust](https://www.bbc.com/news/world-asia-india-58788548)
-India is agog over the tale of two sons.
 ### [Squid Game subtitles 'change meaning of the show'](https://www.bbc.com/news/world-asia-58787264)
 Squid Game's "botched" subtitles have changed the show's meaning for English-speaking viewers, some Korean-speaking fans say.
-### [London hit by flooding after overnight downpours](https://www.bbc.com/news/uk-england-london-58799222)
-Flooding has hit parts of London after heavy rain overnight, which had caused disruption on the roads and railways.
-### [China jets continue flights in Taiwan defence zone](https://www.bbc.com/news/world-asia-58794094)
-Taiwan has urged Beijing to stop "irresponsible provocative actions" after a record number of Chinese warplanes entered its air defence zone. 
+### [‘Excessive’ media gaze on star son after drug bust](https://www.bbc.com/news/world-asia-india-58788548)
+India is agog over the tale of two sons.
+### [Climate science breakthroughs win physics Nobel](https://www.bbc.com/news/science-environment-58790160)
+Three scientists have been awarded the 2021 Nobel Prize in Physics for their work to understand complex systems, such as the Earth's climate.
+### [Anti-vaccine villagers attack nurses in Guatemala](https://www.bbc.com/news/world-latin-america-58801096)
+Anti-vaccine residents in a village in rural Guatemala have attacked nurses who were trying to administer Covid-19 jabs, holding them for seven hours, officials say.
