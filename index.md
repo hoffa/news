@@ -1,10 +1,10 @@
 # News
 ### [Why did Facebook, WhatsApp and Instagram go down?](https://www.bbc.com/news/technology-58800670)
 Facebook has apologised after it stopped working for users around the world for several hours on Monday.
-### [French clergy abused 216,000 children since 1950](https://www.bbc.com/news/world-europe-58801183)
-Some 216,000 children - mostly boys - have been sexually abused by clergy in the French Catholic Church since 1950, a damning new inquiry has found.
 ### [Zuckerberg apologises for six-hour Facebook outage](https://www.bbc.com/news/technology-58800726)
 Facebook's founder Mark Zuckerberg has apologised for the "disruption" caused after its social media services went down for almost six hours - impacting more than 3.5bn users worldwide.
+### [French clergy abused 216,000 children since 1950](https://www.bbc.com/news/world-europe-58801183)
+Some 216,000 children - mostly boys - have been sexually abused by clergy in the French Catholic Church since 1950, a damning new inquiry has found.
 ### [Givenchy criticised for catwalk noose necklace](https://www.bbc.com/news/entertainment-arts-58802091)
 French fashion house Givenchy has been criticised after models wore necklaces shaped like nooses on the catwalk at its Paris Fashion Week show.
 ### [The flood that drowned American dreams](https://www.bbc.com/news/world-us-canada-58565627)
