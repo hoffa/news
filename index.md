@@ -13,9 +13,9 @@ Two scientists have been awarded the 2021 Nobel Prize in Chemistry for their wor
 Tina Turner sold the rights to her music catalogue, including hits like The Best and Nutbush City Limits, to music publishing company BMG.
 ### [US man sues psychic over 'ex-girlfriend's curse'](https://www.bbc.com/news/world-us-canada-58810977)
 A California man is suing a psychic who he says falsely claimed she could remove a curse put on his marriage by a witch hired by his ex-girlfriend. 
-### [Rare drawings by Muhammad Ali sell for nearly $1m](https://www.bbc.com/news/world-us-canada-58811731)
-A rare collection of drawings, sketches and paintings by champion boxer Muhammad Ali has sold at auction for nearly $1m (£733,760).
-### [Russian film team boldly shoot into orbit](https://www.bbc.com/news/world-europe-58804143)
-Russia has taken the lead in a space race with a difference, sending a team to the International Space Station to shoot a feature film ahead of an American crew.
 ### [French envoy rescues evacuated Afghan girl's bird](https://www.bbc.com/news/world-middle-east-58814977)
 A pet bird belonging to an Afghan girl who was evacuated from Kabul after the Taliban's takeover has found a new home with France's ambassador in Abu Dhabi.
+### ['The men I convicted are threatening revenge'](https://www.bbc.com/news/world-asia-58742581)
+Until August, Farishta was an influential prosecutor who exercised her power for a cause. She prosecuted criminals, Taliban militants, corrupt bureaucrats, and men who beat women and children. 
+### [Monthly €250 rent bonus plan for young Spaniards](https://www.bbc.com/news/world-europe-58813208)
+Spaniards aged 18-35 should be offered a monthly bonus to help them leave their parents' home and pay rent, Prime Minister Pedro Sánchez has proposed.
