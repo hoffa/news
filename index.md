@@ -9,13 +9,13 @@ Singer Kylie Minogue has confirmed she is moving back to Australia after 30 year
  An ex-CIA officer turned whistleblower against torture has called for the release of a suspected terrorist he captured nearly 20 years ago.
 ### [Covid toe condition explained by new study](https://www.bbc.com/news/health-58801462)
 Scientists believe they can explain why some people who catch Covid develop chilblain-like lesions on their toes and even fingers. 
-### [Feud between Jaws actors was 'legendary'](https://www.bbc.com/news/entertainment-arts-58620280)
-A new play about the famously troubled production of Jaws attracted a sea of five-star reviews when it premiered in Edinburgh in 2019. The response made one thing clear to the producers: we're going to need a bigger theatre.
 ### [Historic go-ahead for malaria vaccine in Africa](https://www.bbc.com/news/health-58810551)
 Children across much of Africa are to be vaccinated against malaria in a historic moment in the fight against the deadly disease.
-### [Tunisia TV station shut down after host reads poem](https://www.bbc.com/news/world-africa-58821420)
-Tunisian authorities have shut down a television station after one of its hosts read an anti-dictatorship poem.
+### [Feud between Jaws actors was 'legendary'](https://www.bbc.com/news/entertainment-arts-58620280)
+A new play about the famously troubled production of Jaws attracted a sea of five-star reviews when it premiered in Edinburgh in 2019. The response made one thing clear to the producers: we're going to need a bigger theatre.
 ### [US pharmacies face moment of truth in opioid trial](https://www.bbc.com/news/business-58820598)
 Some of America's biggest pharmacy chains have gone on trial this week for the first time, accused of fuelling the country's opioids epidemic. 
+### [Tunisia TV station shut down after host reads poem](https://www.bbc.com/news/world-africa-58821420)
+Tunisian authorities have shut down a television station after one of its hosts read an anti-dictatorship poem.
 ### [Twitch confirms massive data breach](https://www.bbc.com/news/technology-58817658)
 Game-streaming platform Twitch has been the victim of a leak, reportedly divulging confidential company information and streamers' earnings.
