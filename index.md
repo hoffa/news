@@ -7,15 +7,15 @@ A new play about the famously troubled production of Jaws attracted a sea of fiv
 Tensions with China are at their worst in 40 years, Taiwan's defence minister has said, warning of the risk of an accidental strike between the two.
 ### [Missouri executes man for killing three in 1994](https://www.bbc.com/news/world-us-canada-58811241)
 A Missouri man has been executed for murder despite pleas for clemency by advocates who said he had an intellectual disability. 
+### [Chemistry Nobel awarded for mirror-image molecules](https://www.bbc.com/news/science-environment-58814418)
+Two scientists have been awarded the 2021 Nobel Prize in Chemistry for their work on building molecules that are mirror images of one another.
 ### [Tina Turner sells music rights for reported $50m](https://www.bbc.com/news/entertainment-arts-58814248)
 Tina Turner sold the rights to her music catalogue, including hits like The Best and Nutbush City Limits, to music publishing company BMG.
 ### [US man sues psychic over 'ex-girlfriend's curse'](https://www.bbc.com/news/world-us-canada-58810977)
 A California man is suing a psychic who he says falsely claimed she could remove a curse put on his marriage by a witch hired by his ex-girlfriend. 
 ### [Rare drawings by Muhammad Ali sell for nearly $1m](https://www.bbc.com/news/world-us-canada-58811731)
 A rare collection of drawings, sketches and paintings by champion boxer Muhammad Ali has sold at auction for nearly $1m (£733,760).
-### [Australia women footballers make abuse allegations](https://www.bbc.com/news/world-australia-58811918)
-Former Australian women's football players have alleged a culture of sexual harassment within the sport.
 ### [Russian film team boldly shoot into orbit](https://www.bbc.com/news/world-europe-58804143)
 Russia has taken the lead in a space race with a difference, sending a team to the International Space Station to shoot a feature film ahead of an American crew.
-### [Australia ends Papua New Guinea asylum detention](https://www.bbc.com/news/world-australia-58812578)
-Australia is to stop sending asylum seekers to Papua New Guinea (PNG), marking an end to its controversial detention regime in the nation.
+### [French envoy rescues evacuated Afghan girl's bird](https://www.bbc.com/news/world-middle-east-58814977)
+A pet bird belonging to an Afghan girl who was evacuated from Kabul after the Taliban's takeover has found a new home with France's ambassador in Abu Dhabi.
