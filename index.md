@@ -11,11 +11,11 @@ The number of countries on the UK Covid travel red list will be cut from 54 to s
 A woman has suffered extensive burns after trying to rescue her dog from a hot spring in Yellowstone National Park, authorities have said. 
 ### [The false science behind the ivermectin hype](https://www.bbc.com/news/health-58170809)
 Ivermectin has been called a Covid "miracle" drug, championed by vaccine opponents, and recommended by health authorities in some countries. But the BBC can reveal there are serious errors in a number of key studies that the drug's promoters rely on.
-### [US Senate votes to temporarily extend debt ceiling](https://www.bbc.com/news/world-us-canada-58835517)
-Senators in the United States have voted to temporarily extend the country's debt ceiling, less than two weeks before it was due to be reached.
 ### [Defeated Merkel heir prepared to resign as leader](https://www.bbc.com/news/world-europe-58826194)
 The leader of Germany's conservatives, Armin Laschet, has announced a party congress next week, indicating he is ready to step down.
-### [In pictures: Ndakasi, the gorilla who went viral](https://www.bbc.com/news/world-africa-58826986)
-Ndakasi, a beloved mountain gorilla who went viral after posing for a relaxed selfie with rangers, has died after a long illness aged 14.
 ### [Polish ruling marks major challenge to EU laws](https://www.bbc.com/news/world-europe-58835758)
 Poland's top court has rejected the principle of the primacy of EU law over national legislation in certain judicial matters, in a major challenge to the EU's legal framework.
+### [In pictures: Ndakasi, the gorilla who went viral](https://www.bbc.com/news/world-africa-58826986)
+Ndakasi, a beloved mountain gorilla who went viral after posing for a relaxed selfie with rangers, has died after a long illness aged 14.
+### [US Senate votes to temporarily extend debt ceiling](https://www.bbc.com/news/world-us-canada-58835517)
+Senators in the United States have voted to temporarily extend the country's debt ceiling, less than two weeks before it was due to be reached.
