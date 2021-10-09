@@ -17,5 +17,5 @@ Britain's Emma Raducanu lost her first match as a Grand Slam champion, beaten in
 Police in Berlin say they are investigating after staff at the US embassy reported experiencing symptoms of the so-called Havana syndrome. 
 ### [Trump must give documents to Capitol riot probe](https://www.bbc.com/news/world-us-canada-58852536)
 US President Joe Biden has rejected a bid by Donald Trump to withhold documents from a congressional investigation into the Capitol riot.  
-### [Facebook apologises as services hit again](https://www.bbc.com/news/technology-58850041)
-Facebook has apologised after again reporting problems with its services, days after a major outage hit WhatsApp, Instagram and Facebook for hours.
+### [Iran's first president after 1979 revolution dies](https://www.bbc.com/news/world-middle-east-58846918)
+Abolhassan Banisadr, who became Iran's first president after the 1979 Islamic Revolution before fleeing into exile, has died at the age of 88.
