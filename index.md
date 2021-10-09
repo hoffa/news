@@ -15,7 +15,7 @@ China's President Xi Jinping has said that "reunification" with Taiwan "must be 
 Film star Daniel Craig has donated £10,000 to three fathers who have set out on a 300-mile walk to raise funds for a suicide prevention charity after their daughters took their own lives.
 ### [Billionaire Czech PM looks set to lose power](https://www.bbc.com/news/world-europe-58857962)
 The Czech Republic's billionaire Prime Minister Andrej Babis and his ruling ANO party are set to lose their bid for re-election, partial results suggest.
+### [Vegan food blogger wins porridge champion title](https://www.bbc.com/news/uk-scotland-58858305)
+A vegan food blogger from the Netherlands has won the World Porridge Making Championships. 
 ### [Facebook apologises as services hit again](https://www.bbc.com/news/technology-58850041)
 Facebook has apologised after again reporting problems with its services, days after a major outage hit WhatsApp, Instagram and Facebook for hours.
-### [Poland stokes fears of leaving EU in 'Polexit'](https://www.bbc.com/news/world-europe-58840076)
-The unprecedented challenge made by Poland's prime minister, Mateusz Morawiecki, to one of the European Union's core legal principles has seriously escalated his government's dispute with Brussels. And it has fuelled concerns that Poland is heading towards the door, described as "Polexit".
