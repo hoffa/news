@@ -7,15 +7,15 @@ Two wealthy fathers have been convicted of paying bribes to have their children 
 Austria's Chancellor Sebastian Kurz has stepped down, after pressure triggered by a corruption scandal.
 ### [Lebanon left without power as grid shuts down](https://www.bbc.com/news/world-middle-east-58856914)
 Lebanon has been left without electricity, plunging the country into darkness amid a severe economic crisis. 
+### [Bolshoi Theatre performer killed by falling scenery](https://www.bbc.com/news/world-europe-58859522)
+A Russian actor has been crushed to death by falling scenery at Moscow's world famous Bolshoi Theatre. 
 ### [US and Taliban hold first talks since withdrawal](https://www.bbc.com/news/world-asia-58854984)
 US officials have met Afghanistan's ruling Taliban for their first face-to-face talks since Washington pulled its troops from the country in August.
-### [China's Xi vows 'reunification' with Taiwan](https://www.bbc.com/news/world-asia-china-58854081)
-China's President Xi Jinping has said that "reunification" with Taiwan "must be fulfilled", as heightened tensions over the island continue. 
-### [James Bond actor gives fundraising dads £10k boost](https://www.bbc.com/news/uk-england-cumbria-58829618)
-Film star Daniel Craig has donated £10,000 to three fathers who have set out on a 300-mile walk to raise funds for a suicide prevention charity after their daughters took their own lives.
-### [Billionaire Czech PM looks set to lose power](https://www.bbc.com/news/world-europe-58857962)
-The Czech Republic's billionaire Prime Minister Andrej Babis and his ruling ANO party are set to lose their bid for re-election, partial results suggest.
 ### [Vegan food blogger wins porridge champion title](https://www.bbc.com/news/uk-scotland-58858305)
 A vegan food blogger from the Netherlands has won the World Porridge Making Championships. 
-### [Facebook apologises as services hit again](https://www.bbc.com/news/technology-58850041)
-Facebook has apologised after again reporting problems with its services, days after a major outage hit WhatsApp, Instagram and Facebook for hours.
+### [James Bond actor gives fundraising dads £10k boost](https://www.bbc.com/news/uk-england-cumbria-58829618)
+Film star Daniel Craig has donated £10,000 to three fathers who have set out on a 300-mile walk to raise funds for a suicide prevention charity after their daughters took their own lives.
+### [China's Xi vows 'reunification' with Taiwan](https://www.bbc.com/news/world-asia-china-58854081)
+China's President Xi Jinping has said that "reunification" with Taiwan "must be fulfilled", as heightened tensions over the island continue. 
+### [Billionaire Czech PM looks set to lose power](https://www.bbc.com/news/world-europe-58857962)
+The Czech Republic's billionaire Prime Minister Andrej Babis and his ruling ANO party are set to lose their bid for re-election, partial results suggest.
