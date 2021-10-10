@@ -13,9 +13,9 @@ Police in Guatemala have rescued 126 migrants who were abandoned inside a shippi
 The man regarded as the "father of Pakistan's nuclear bomb", Dr Abdul Qadeer Khan, has died aged 85 after being hospitalised with Covid-19.
 ### [Colombian nun kidnapped in Mali in 2017 is freed](https://www.bbc.com/news/world-africa-58859526)
 A Colombian nun kidnapped by Islamists in Mali four years ago has been freed.
-### [Bolshoi Theatre performer killed by falling scenery](https://www.bbc.com/news/world-europe-58859522)
-A Russian actor has been crushed to death by falling scenery at Moscow's world famous Bolshoi Theatre. 
+### [Bolshoi Theatre performer killed during set change](https://www.bbc.com/news/world-europe-58859522)
+A Russian actor has been crushed to death during a set change at Moscow's world famous Bolshoi Theatre as it performed the opera Sadko. 
+### [Get used to higher food prices, says Kraft Heinz](https://www.bbc.com/news/business-58847275)
+People will have to get used to higher food prices, the boss of Kraft Heinz has told the BBC.
 ### [Fury beats Wilder in thrilling trilogy bout](https://www.bbc.com/sport/boxing/58860290)
 Tyson Fury delivered a thrilling 11th-round knockout of Deontay Wilder to retain his WBC heavyweight crown as their trilogy bout produced another classic on an electric night at the T-Mobile Arena in Las Vegas. 
-### [Austrian chancellor resigns amid corruption inquiry](https://www.bbc.com/news/world-europe-58856796)
-Austria's Chancellor Sebastian Kurz has stepped down, after pressure triggered by a corruption scandal.
