@@ -11,11 +11,11 @@ Taiwan will not bow to pressure from China and will defend its democratic way of
 Czech President Milos Zeman has been taken to hospital amid political upheaval after a surprise opposition win in parliamentary elections.
 ### [Get used to higher food prices, says Kraft Heinz](https://www.bbc.com/news/business-58847275)
 People will have to get used to higher food prices, the boss of Kraft Heinz has told the BBC.
-### [China's Xi vows 'reunification' with Taiwan](https://www.bbc.com/news/world-asia-china-58854081)
-China's President Xi Jinping has said that "reunification" with Taiwan "must be fulfilled", as heightened tensions over the island continue. 
-### [Over 100 migrants freed from abandoned container](https://www.bbc.com/news/world-latin-america-58859530)
-Police in Guatemala have rescued 126 migrants who were abandoned inside a shipping container at the side of a road. 
 ### [UK to resettle teenage Afghan women footballers](https://www.bbc.com/news/world-asia-58862930)
 Dozens of Afghan girls with promising football careers, who fled the Taliban, have been told they can come to the UK to be resettled, along with their families.
+### ['Father of Pakistan's nuclear bomb' dies aged 85](https://www.bbc.com/news/world-asia-58861473)
+The man regarded as the "father of Pakistan's nuclear bomb", Dr Abdul Qadeer Khan, has died aged 85 after being hospitalised with Covid-19.
 ### [Biodiversity loss risks 'ecological meltdown'](https://www.bbc.com/news/science-environment-58859105)
 The UK is one of the world's most nature-depleted countries - in the bottom 10% globally and last among the G7 group of nations, new data shows. 
+### [Over 100 migrants freed from abandoned container](https://www.bbc.com/news/world-latin-america-58859530)
+Police in Guatemala have rescued 126 migrants who were abandoned inside a shipping container at the side of a road. 
