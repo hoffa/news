@@ -15,7 +15,7 @@ The Prince of Wales has told the BBC he understands why campaigners from organis
 On December 11 2003, a group of CIA and MI6 officers were about to board an unmarked plane in Libya when they were handed a stack of half a dozen brown envelopes. 
 ### [Chinese floods displace nearly 2 million people](https://www.bbc.com/news/world-asia-china-58866854)
 More than 1.76 million people have been affected by severe flooding in China's northern Shanxi province, according to local media.
-### [Mass protests in Poland amid EU exit fears](https://www.bbc.com/news/world-europe-58863680)
-Poles backing EU membership have taken part in protests across the country, amid fears it could leave the bloc.
 ### [US couple accused of selling nuclear sub secrets](https://www.bbc.com/news/world-us-canada-58863678)
 A US navy nuclear engineer and his wife have been charged with trying to sell nuclear secrets to what they thought was a foreign state.
+### [Get used to higher food prices, says Kraft Heinz](https://www.bbc.com/news/business-58847275)
+People will have to get used to higher food prices, the boss of Kraft Heinz has told the BBC.
