@@ -3,6 +3,8 @@
 The old habits of secrecy haven't left Kim Kuk-song.
 ### [US couple accused of selling nuclear sub secrets](https://www.bbc.com/news/world-us-canada-58863678)
 A US navy nuclear engineer and his wife have been charged with trying to sell nuclear secrets to what they thought was a foreign state.
+### [Met to take no further action after Epstein review](https://www.bbc.com/news/uk-58866108)
+The Metropolitan Police will not take any further action following a review prompted by a Jeffrey Epstein accuser who is taking legal action in the US against the Duke of York.
 ### [Condom removal during sex banned in California](https://www.bbc.com/news/world-us-canada-58848000)
 About 30 years ago, just months after starting work as a prostitute, Maxine Doogan became pregnant. 
 ### [The most dangerous man in the world?](https://www.bbc.com/news/world-asia-58857827)
@@ -17,5 +19,3 @@ Poles backing EU membership have taken part in protests across the country, amid
 Police in Guatemala have rescued 126 migrants who were abandoned inside a shipping container at the side of a road. 
 ### [Top designer reveals fireplace explosion injuries](https://www.bbc.com/news/world-europe-58859030)
 Celebrated French fashion designer Olivier Rousteing has revealed he was injured following an accident at his home last year, sharing a picture of himself in heavy bandages. 
-### [Taiwan won't bow to China pressure, leader says](https://www.bbc.com/news/world-asia-58860365)
-Taiwan will not bow to pressure from China and will defend its democratic way of life, President Tsai Ing-wen has said in a defiant speech amid heightened tensions over the island. 
