@@ -1,10 +1,10 @@
 # News
+### [US to reopen land borders for vaccinated travellers](https://www.bbc.com/news/world-us-canada-58893052)
+The US has said it will reopen its land borders with Mexico and Canada to fully vaccinated travellers from November. 
 ### [Star Trek's Shatner blasts into space](https://www.bbc.com/news/science-environment-58885555)
 Hollywood actor William Shatner has become the oldest person to go to space as he blasted off aboard the Blue Origin sub-orbital capsule.
 ### [Putin denies weaponising energy amid Europe crisis](https://www.bbc.com/news/world-europe-58896847)
 Russia has denied using energy as a political weapon, amid surging prices across Europe that have sent gas bills in many households skyrocketing.
-### [US to reopen land borders for vaccinated travellers](https://www.bbc.com/news/world-us-canada-58893052)
-The US has said it will reopen its land borders with Mexico and Canada to fully vaccinated travellers from November. 
 ### [Rolling Stones drop Brown Sugar from US tour](https://www.bbc.com/news/entertainment-arts-58896241)
 The Rolling Stones have dropped Brown Sugar, one of their biggest hits, from their US tour. 
 ### [Indian man jailed for killing wife with cobra](https://www.bbc.com/news/world-asia-india-58839298)
