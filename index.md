@@ -7,15 +7,15 @@ Conservation groups have expressed outrage after the US Department of Agricultur
 A 22-year-old "van life" blogger who went missing on a road trip with her fiancé was strangled to death, a Wyoming coroner has ruled.
 ### [The men going to military jail for their faith](https://www.bbc.com/news/world-asia-58647485)
 Yeo Zheng Ye grew up in Singapore knowing he would have to go to jail.
-### [World leaders pledge to avert Afghan catastrophe](https://www.bbc.com/news/world-asia-58887808)
-Members of the G20 group of major economies have pledged to avert an economic catastrophe in Afghanistan.
+### [Star Trek's Shatner ready to boldly go into space](https://www.bbc.com/news/science-environment-58885555)
+Hollywood actor William Shatner will later become the oldest personto go to space when he takes a ride in the Blue Origin sub-orbital capsule.
 ### [Harry and Meghan join ethical investment firm](https://www.bbc.com/news/business-58891522)
 The Duke and Duchess of Sussex have entered the world of finance, becoming partners at a sustainable investment firm in New York City. 
 ### [Apple shares drop on reports of chip shortage](https://www.bbc.com/news/business-58892176)
 Apple's shares dropped on Tuesday following reports it could slash its iPhone 13 production targets due to the ongoing global computer chip shortage.
+### [EU to reveal new proposals on NI Protocol](https://www.bbc.com/news/uk-northern-ireland-58871221)
+The European Union (EU) is to outline new proposals for the Northern Ireland Protocol later on Wednesday.
 ### ['Adapt or die' warning over UK climate change](https://www.bbc.com/news/science-environment-58883234)
 Hundreds of people could die in floods in the UK, the Environment Agency has warned in a hard-hitting report that says the country is not ready for the impact of climate change. 
-### [Irish author Sally Rooney in Israel boycott row](https://www.bbc.com/news/entertainment-arts-58886915)
-Irish author Sally Rooney is at the centre of a controversy after refusing to allow her new book to be translated into Hebrew by an Israeli company.
-### [Life as one of the world's highest-paid podcasters](https://www.bbc.com/news/newsbeat-58719364)
-"Everyone thinks they want to start a podcast," says Alex Cooper, the host of Call Her Daddy.
+### [Elk with tyre around neck for two years is freed](https://www.bbc.com/news/world-us-canada-58878732)
+An elk roaming the hills of the US state of Colorado with a tyre around its neck for two years has finally been freed, wildlife officials say.
