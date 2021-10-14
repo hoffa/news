@@ -11,10 +11,10 @@ Donald Trump's recent visit to Iowa - a key state in the presidential nomination
 Kenyan world record holder Agnes Tirop has been found stabbed to death at her home in the western town of Iten, with police treating her husband as a suspect.  
 ### [LA port to open round the clock to tackle queues](https://www.bbc.com/news/business-58901777)
 One of biggest US ports will start operating 24 hours a day to try to clear long queues of cargo ships stuck waiting outside.
-### [Most NI checks on British goods to be scrapped](https://www.bbc.com/news/uk-northern-ireland-58871221)
-The EU has released its plan for a reduction of post-Brexit checks on goods and medicines arriving into Northern Ireland from the rest of the UK. 
 ### [Egyptians on trial over Italian student's murder](https://www.bbc.com/news/world-europe-58894878)
 When Giulio Regeni's mutilated body was found in a ditch near Cairo in February 2016, it was so badly disfigured that his mother struggled to identify him.
+### [Most NI checks on British goods to be scrapped](https://www.bbc.com/news/uk-northern-ireland-58871221)
+The EU has released its plan for a reduction of post-Brexit checks on goods and medicines arriving into Northern Ireland from the rest of the UK. 
 ### ['My Covid-stricken mum was used as a guinea pig'](https://www.bbc.com/news/world-latin-america-58891004)
 A Brazilian healthcare provider is accused of giving unproven drugs to Covid-19 patients and conducting experiments on elderly people without their relatives' consent. The allegations have been linked to deaths that, families say, could have been prevented.
 ### ['Mother' of modern medicine Lacks honoured](https://www.bbc.com/news/world-us-canada-58903934)
