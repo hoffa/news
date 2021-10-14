@@ -3,8 +3,6 @@
 A man arrested over a deadly bow and arrow attack in Norway had converted to Islam and there were fears he had been radicalised, police have said.
 ### [Fire at Taiwan tower block kills at least 46](https://www.bbc.com/news/world-asia-58887760)
 At least 46 people have been killed and dozens more seriously injured in a fire at a 13-storey tower block in southern Taiwan, officials say.
-### [Earth should come before space, William says](https://www.bbc.com/news/uk-58903078)
-Prince William has suggested entrepreneurs should focus on saving Earth rather than engaging in space tourism.
 ### [Owners heartbroken after 12 dogs killed over Covid](https://www.bbc.com/news/world-asia-58894320)
 As Covid infections spike, a Vietnamese couple left Long An province on a motorbike along with their pack of pet dogs. 
 ### [Husband a suspect as Tirop found dead](https://www.bbc.com/sport/africa/58896494)
@@ -15,7 +13,9 @@ Donald Trump's recent visit to Iowa - a key state in the presidential nomination
 The World Health Organization (WHO) says a new taskforce may be the last chance to find the origins of Covid-19.
 ### [Child killer escapes from Kenyan police custody](https://www.bbc.com/news/world-africa-58907441)
 A man who confessed to killing more than 10 children in Kenya has escaped from police cells in Nairobi.
-### [One killed in protest over Beirut port blast judge](https://www.bbc.com/news/world-middle-east-58901611)
-One person has been shot dead and several others wounded at a protest in Beirut against the judge investigating last year's blast at the city's port.
+### [Two killed in protest over Beirut port blast judge](https://www.bbc.com/news/world-middle-east-58901611)
+Two people have been shot dead at a protest in the Lebanese capital Beirut against the judge investigating last year's devastating port explosion.
+### [Is Russia constraining Europe's gas supply?](https://www.bbc.com/news/58888451)
+Gas prices have been soaring in countries across Europe, and there have been accusations that Russia may be seeking to exploit the situation for its own advantage.
 ### [Egyptians on trial over Italian student's murder](https://www.bbc.com/news/world-europe-58894878)
-When Giulio Regeni's mutilated body was found in a ditch near Cairo in February 2016, it was so badly disfigured that his mother struggled to identify him.
+Four members of Egypt's security forces have gone on trial in absentia in Rome, accused of kidnapping, torturing and killing an Italian student.
