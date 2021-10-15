@@ -7,6 +7,8 @@ After a slow-burning PR campaign, Adele's first new music in six years has arriv
 At least six people have been killed and 32 others injured by gunfire in the Lebanese capital, Beirut.
 ### [US father charged after toddler fatally shot mum](https://www.bbc.com/news/world-us-canada-58920322)
 A Florida father has been arrested and charged over the fatal shooting of his girlfriend by the couple's two-year-old child in August.
+### [Bill Clinton in hospital for 'non-Covid infection'](https://www.bbc.com/news/world-us-canada-58921615)
+Former US President Bill Clinton has been receiving hospital treatment in California for a "non-Covid-related infection", a spokesman says.
 ### [Banksy's Love is in the Bin sells for record £16m](https://www.bbc.com/news/entertainment-arts-58908768)
 A Banksy artwork which shredded itself at a previous auction has sold for a record £16m.
 ### [Congress plots criminal charge for ex-Trump aide](https://www.bbc.com/news/world-us-canada-58919751)
@@ -15,7 +17,5 @@ A committee investigating the 6 January Capitol riot has said it will pursue cri
 A deadly bow and arrow attack in Norway which left five people dead appears to have been an act of terror, Norway's security service (PST) said. 
 ### [The plus-size musicians making waves in China](https://www.bbc.com/news/world-asia-china-58495677)
 Tune into any television show in China and it's likely that you'll be met with a picture-perfect celebrity.
-### [Microsoft shutting down LinkedIn in China](https://www.bbc.com/news/technology-58911297)
-Microsoft is shutting down its social network, LinkedIn, in China, saying having to comply with the Chinese state has become increasingly challenging.
 ### [Quiz of the week: Why was this Dutch princess in the news?](https://www.bbc.com/news/world-58890241)
 It's the weekly news quiz - how closely have you been paying attention to what's been going on in the world during the past seven days?
