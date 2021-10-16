@@ -1,7 +1,7 @@
 # News
 ### [Colombia sterilises drug lord Escobar's hippos](https://www.bbc.com/news/world-latin-america-58937415)
 A group of hippos - an unwanted legacy following the death of notorious Colombian drug lord Pablo Escobar - are being sterilised.
-### [Killing of MP Sir David Amess was terrorism, say police](https://www.bbc.com/news/uk-58935372)
+### [Killing of MP was terrorism, say police](https://www.bbc.com/news/uk-58935372)
 The killing of Conservative MP Sir David Amess is being treated as a terrorist incident by police.
 ### [Nike executive reveals he murdered a teen in 1965](https://www.bbc.com/news/world-us-canada-58931528)
 A long-time Nike executive in the US has revealed that he shot and killed a teenage boy in the streets of West Philadelphia 56 years ago.
