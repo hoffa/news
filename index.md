@@ -3,10 +3,10 @@
 Detectives are continuing to question a 25-year-old British man who was detained at the scene of Friday's fatal stabbing of MP Sir David Amess.
 ### [Dormice favoured by Italian mafia seized in raid](https://www.bbc.com/news/world-europe-58938494)
 Police carrying out a drugs raid on a cannabis farm in southern Italy have seized a stash of 235 frozen dormice - said to be a mafia delicacy. 
-### [Colombia sterilises drug lord Escobar's hippos](https://www.bbc.com/news/world-latin-america-58937415)
-A group of hippos - an unwanted legacy following the death of notorious Colombian drug lord Pablo Escobar - are being sterilised.
 ### [Australian police make record $104m heroin seizure](https://www.bbc.com/news/world-australia-58940463)
 Australian police have announced the seizure of the largest heroin shipment ever recorded in the country, worth around A$140 million (£76m; $104m). 
+### [Colombia sterilises drug lord Escobar's hippos](https://www.bbc.com/news/world-latin-america-58937415)
+A group of hippos - an unwanted legacy following the death of notorious Colombian drug lord Pablo Escobar - are being sterilised.
 ### [Nike executive reveals he murdered a teen in 1965](https://www.bbc.com/news/world-us-canada-58931528)
 A long-time Nike executive in the US has revealed that he shot and killed a teenage boy in the streets of West Philadelphia 56 years ago.
 ### [Russia's daily Covid deaths hit 1,000 landmark](https://www.bbc.com/news/world-europe-58937582)
