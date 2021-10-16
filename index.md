@@ -1,6 +1,8 @@
 # News
 ### [Colombia sterilises drug lord Escobar's hippos](https://www.bbc.com/news/world-latin-america-58937415)
 A group of hippos - an unwanted legacy following the death of notorious Colombian drug lord Pablo Escobar - are being sterilised.
+### [How do politicians around the world stay safe?](https://www.bbc.com/news/world-58937581)
+The killing of British MP Sir David Amess has highlighted the dilemma facing politicians worldwide.
 ### [Killing of MP was terrorism, say police](https://www.bbc.com/news/uk-58935372)
 The killing of Conservative MP Sir David Amess is being treated as a terrorist incident by police.
 ### [Nike executive reveals he murdered a teen in 1965](https://www.bbc.com/news/world-us-canada-58931528)
@@ -17,5 +19,3 @@ Global supply chains are congested. In California, there have been record-breaki
 The day started out much like every other Friday morning for Sir David Amess. One of Essex's most longstanding MPs, he held meetings with his Southend constituents every second week, in recent years varying the location to meet more of the local residents that relied upon his help. 
 ### [Supreme Court asked to block Texas abortion ban](https://www.bbc.com/news/world-us-canada-58935257)
 US President Joe Biden's administration has said it will ask the Supreme Court to block a Texas law that imposes a near-total ban on abortion.
-### [US offers to pay relatives of Kabul drone victims](https://www.bbc.com/news/world-us-canada-58935260)
-The US government has offered financial compensation to the relatives of 10 people mistakenly killed by the American military in a drone strike on the Afghan capital, Kabul, in August.
