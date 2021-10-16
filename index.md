@@ -1,21 +1,21 @@
 # News
-### [Killing of MP was terrorism, say police](https://www.bbc.com/news/uk-58935372)
-The killing of Conservative MP Sir David Amess is being treated as a terrorist incident by police.
 ### [Colombia sterilises drug lord Escobar's hippos](https://www.bbc.com/news/world-latin-america-58937415)
 A group of hippos - an unwanted legacy following the death of notorious Colombian drug lord Pablo Escobar - are being sterilised.
+### [Killing of MP was terrorism, say police](https://www.bbc.com/news/uk-58935372)
+The killing of Conservative MP Sir David Amess is being treated as a terrorist incident by police.
 ### [Nike executive reveals he murdered a teen in 1965](https://www.bbc.com/news/world-us-canada-58931528)
 A long-time Nike executive in the US has revealed that he shot and killed a teenage boy in the streets of West Philadelphia 56 years ago.
 ### [Russia's daily Covid deaths hit 1,000 landmark](https://www.bbc.com/news/world-europe-58937582)
 Russia on Saturday recorded 1,000 Covid-related deaths in a single day for the first time since the pandemic began.
-### [Nazanin Zaghari-Ratcliffe loses Iran appeal](https://www.bbc.com/news/world-middle-east-58940458)
-The British-Iranian aid worker Nazanin Zaghari-Ratcliffe has lost an appeal against a second jail sentence in Iran. 
 ### [Matt Hancock's United Nations role withdrawn](https://www.bbc.com/news/uk-politics-58940128)
 Former Health Secretary Matt Hancock has had a job offer from the United Nations withdrawn.
+### [Nazanin Zaghari-Ratcliffe loses Iran appeal](https://www.bbc.com/news/world-middle-east-58940458)
+The British-Iranian aid worker Nazanin Zaghari-Ratcliffe has lost an appeal against a second jail sentence in Iran. 
+### [Dormice favoured by Italian mafia seized in raid](https://www.bbc.com/news/world-europe-58938494)
+Police carrying out a drugs raid on a cannabis farm in southern Italy have seized a stash of 235 frozen dormice - said to be a mafia delicacy. 
 ### [Myanmar army general excluded from leaders' summit](https://www.bbc.com/news/world-asia-58938489)
 The army general who seized power in Myanmar in February has been excluded from an annual summit of regional leaders later this month.
 ### [Man Utd defend 100-mile Leicester flight](https://www.bbc.com/sport/football/58938198)
 Manchester United have defended their decision to fly the 100-mile journey to their Premier League game at Leicester.
-### [Dormice favoured by Italian mafia seized in raid](https://www.bbc.com/news/world-europe-58938494)
-Police carrying out a drugs raid on a cannabis farm in southern Italy have seized a stash of 235 frozen dormice - said to be a mafia delicacy. 
-### [How do politicians around the world stay safe?](https://www.bbc.com/news/world-58937581)
-The killing of British MP Sir David Amess has highlighted the dilemma facing politicians worldwide.
+### [Why are so many ships queuing to get to the US?](https://www.bbc.com/news/58926842)
+Global supply chains are congested. In California, there have been record-breaking queues of container ships outside major ports. 
