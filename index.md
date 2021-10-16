@@ -11,11 +11,11 @@ Conservative MP Sir David Amess has died after being stabbed multiple times at h
 Apple has taken down one of the world's most popular Quran apps in China, following a request from officials.
 ### [Supreme Court asked to block Texas abortion ban](https://www.bbc.com/news/world-us-canada-58935257)
 US President Joe Biden's administration has said it will ask the Supreme Court to block a restrictive Texas law that imposes a near-total ban on abortion.
-### [Adele's comeback single: Hit or miss?](https://www.bbc.com/news/entertainment-arts-58910034)
-After a slow-burning PR campaign, Adele's first new music in six years has arrived.
-### [US to lift travel ban on 8 November](https://www.bbc.com/news/world-us-canada-58929441)
-The US has said that it will reopen its borders to fully vaccinated travellers from 33 countries on 8 November.
-### [Virgin Galactic's space tourism debut delayed](https://www.bbc.com/news/business-58930280)
-Shares in Virgin Galactic dived as much as 20% on Friday after the space tourism company said it was postponing its first commercial flight.
+### [Why are so many ships queuing to get to the US?](https://www.bbc.com/news/58926842)
+Global supply chains are congested. In California, there have been record-breaking queues of container ships outside major ports. 
 ### [Mob beats Kenyan child killer to death - police](https://www.bbc.com/news/world-africa-58923592)
 A mob in western Kenya has killed a self-confessed serial killer who escaped from custody two days ago, police say.
+### [US to lift travel ban on 8 November](https://www.bbc.com/news/world-us-canada-58929441)
+The US has said that it will reopen its borders to fully vaccinated travellers from 33 countries on 8 November.
+### [Adele's comeback single: Hit or miss?](https://www.bbc.com/news/entertainment-arts-58910034)
+After a slow-burning PR campaign, Adele's first new music in six years has arrived.
