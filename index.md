@@ -13,9 +13,9 @@ Screaming Trees frontman and former Queens of the Stone Age member Mark Lanegan 
 Hong Kong's government has ordered the compulsory testing of all of its 7.5 million citizens as the city battles surging coronavirus infections.
 ### [What sanctions are being imposed on Russia?](https://www.bbc.com/news/world-europe-60125659)
 The US, UK and some of their allies have imposed sanctions on Russia, after it recognised two rebel-held areas as separate from Ukraine.
-### [Will more police flatten New York's crime wave?](https://www.bbc.com/news/world-us-canada-60484459)
-February always reignites a deep pain in Jackie Rowe-Adams. It was in this month that her two boys, Anthony and Tyrone, were fatally shot, 16 years apart. She recounts with disbelief still that a 13-year-old fired the bullet that killed her second son.
 ### [Putin's Ukraine statement fact-checked](https://www.bbc.com/news/60477712)
 Russian President Vladimir Putin has ordered troops into two rebel-held regions in eastern Ukraine, after recognising them as independent states.
+### [Will more police flatten New York's crime wave?](https://www.bbc.com/news/world-us-canada-60484459)
+February always reignites a deep pain in Jackie Rowe-Adams. It was in this month that her two boys, Anthony and Tyrone, were fatally shot, 16 years apart. She recounts with disbelief still that a 13-year-old fired the bullet that killed her second son.
 ### [Emily Maitlis and Jon Sopel to leave BBC](https://www.bbc.com/news/entertainment-arts-60479609)
 BBC journalists Emily Maitlis and Jon Sopel have announced they are leaving the corporation to launch a new podcast and host a radio show together on LBC.
