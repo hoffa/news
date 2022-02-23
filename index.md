@@ -1,4 +1,4 @@
-# News
+# Newsd
 ### [MP murder suspect detained under Terrorism Act](https://www.bbc.com/news/uk-58943184)
 A man detained after MP Sir David Amess was stabbed to death on Friday is 25-year-old Ali Harbi Ali, Whitehall officials have confirmed to the BBC.
 ### [Millionaire murderer Robert Durst ill with Covid](https://www.bbc.com/news/world-us-canada-58943246)
