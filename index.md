@@ -9,13 +9,13 @@ Russian military forces have seized control of the Chernobyl nuclear power plant
 Russian forces have launched a major assault on Ukraine, firing missiles on cities and military targets. 
 ### [What we know about Ukraine invasion so far](https://www.bbc.com/news/world-europe-60504334)
 Russia has begun a large-scale military attack on Ukraine, its southern neighbour, on the orders of Russian President Vladimir Putin.
-### [Diplomat's daughter beheaded for spurning proposal](https://www.bbc.com/news/world-asia-60514698)
-A court in Pakistan has sentenced a man to death for raping and murdering the daughter of a former diplomat who refused his offer of marriage.
-### [How hard will it be to defend Ukraine?](https://www.bbc.com/news/world-europe-60492860)
-How hard will it be for Ukraine to defend itself now that an attack by Russia has begun? Ukraine is outgunned and outnumbered right across the board - after significant investment and modernisation in Russia's armed forces by President Putin. 
+### [Ex-police officers guilty in George Floyd death](https://www.bbc.com/news/world-us-canada-60512531)
+Three ex-Minneapolis policemen present at the death of George Floyd denied the unarmed black man of his civil rights, a jury has found. 
 ### [Misleading images of Russian attack spread online](https://www.bbc.com/news/60513452)
 The Russian invasion of Ukraine has led to false or misleading videos and photographs being posted on social media claiming to be from the conflict.
+### [How hard will it be to defend Ukraine?](https://www.bbc.com/news/world-europe-60492860)
+How hard will it be for Ukraine to defend itself now that an attack by Russia has begun? Ukraine is outgunned and outnumbered right across the board - after significant investment and modernisation in Russia's armed forces by President Putin. 
+### [Diplomat's daughter beheaded for spurning proposal](https://www.bbc.com/news/world-asia-60514698)
+A court in Pakistan has sentenced a man to death for raping and murdering the daughter of a former diplomat who refused his offer of marriage.
 ### [Ukraine warns of new iron curtain as Russia invades](https://www.bbc.com/news/world-europe-60513116)
 Ukraine's leader has said a "new iron curtain" is falling and closing Russia off from the "civilised world" after it invaded its neighbour. 
-### [Your guide to understanding the Ukraine invasion](https://www.bbc.com/news/world-europe-60513807)
-Russia has launched a full-scale invasion of Ukraine, leaving millions of people fearing for their futures.
