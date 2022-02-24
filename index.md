@@ -1,6 +1,8 @@
 # News
 ### [Life may actually flash before our eyes on death](https://www.bbc.com/news/world-us-canada-60495730)
 New data from a scientific "accident" has suggested that life may actually flash before our eyes as we die. 
+### [Ukraine's leader warns Russia: We will defend ourselves](https://www.bbc.com/news/world-europe-60497510)
+Ukraine's President Volodymyr Zelensky has warned that Russia could start "a major war in Europe" any day now, and called on Russians to oppose it. 
 ### [What's Putin's next move on Ukraine?](https://www.bbc.com/news/world-europe-60497653)
 On the subject of suspense, filmmaker Alfred Hitchcock once advised: "Always make the audience suffer as much as possible."
 ### [Why is Putin ordering troops into Ukraine?](https://www.bbc.com/news/world-europe-56720589)
@@ -11,8 +13,6 @@ A 27-year-old man who launched an hours-long hostage standoff at an Apple store 
 A jury is deciding whether a former detective showed "extreme indifference to human life" during the raid that led to the death of Breonna Taylor.
 ### [National Guard in Washington for trucker protest](https://www.bbc.com/news/world-us-canada-60492051)
 The US is to deploy hundreds of unarmed National Guard troops to Washington ahead of the arrival of trucker convoys protesting against pandemic restrictions.
-### [Ukraine imposes nationwide state of emergency](https://www.bbc.com/news/world-europe-60497510)
-Ukraine has declared a state of emergency and told millions of its citizens living in Russia to return home amid growing fears of war. 
 ### [Metaverse app allows kids into virtual strip clubs](https://www.bbc.com/news/technology-60415317)
 Some apps in the virtual-reality metaverse are "dangerous by design", the NSPCC has warned in response to a BBC News investigation.
 ### [Mothers who helped uncover the biggest NHS maternity scandal](https://www.bbc.com/news/health-60434299)
