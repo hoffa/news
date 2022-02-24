@@ -1,10 +1,10 @@
 # News
-### [Russia unleashes forces on Ukraine on three sides](https://www.bbc.com/news/world-europe-60503037)
-Russian forces have launched a major assault on Ukraine, firing missiles on cities and military targets. 
-### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
-By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. For months President Vladimir Putin had denied he would invade his neighbour, but then he tore up a peace deal, sending forces across borders in Ukraine's north, east and south.
 ### [Ukraine invasion: Russia's attack in maps](https://www.bbc.com/news/world-europe-60506682)
 Russia has launched a major invasion of Ukraine from three main directions.
+### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
+By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. For months President Vladimir Putin had denied he would invade his neighbour, but then he tore up a peace deal, sending forces across borders in Ukraine's north, east and south.
+### [Russia unleashes forces on Ukraine on three sides](https://www.bbc.com/news/world-europe-60503037)
+Russian forces have launched a major assault on Ukraine, firing missiles on cities and military targets. 
 ### [What we know about Ukraine invasion so far](https://www.bbc.com/news/world-europe-60504334)
 Russia has begun a large-scale military attack on Ukraine, its southern neighbour, on the orders of Russian President Vladimir Putin.
 ### [How hard will it be to defend Ukraine?](https://www.bbc.com/news/world-europe-60492860)
