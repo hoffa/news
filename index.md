@@ -3,19 +3,19 @@
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. For months President Vladimir Putin had denied he would invade his neighbour, but then he tore up a peace deal, sending forces across borders in Ukraine's north, east and south.
 ### [Fighting rages near Ukraine's capital after invasion](https://www.bbc.com/news/world-europe-60513116)
 Ukraine's army is trying to repel a full-scale Russian invasion, with fierce battles taking place close to the capital Kyiv.
-### [Russian forces seize Chernobyl nuclear power plant](https://www.bbc.com/news/world-us-canada-60514228)
-Russian military forces have seized control of the Chernobyl nuclear power plant, Ukrainian officials say.
 ### [Misleading images of Russian attack spread online](https://www.bbc.com/news/60513452)
 The Russian invasion of Ukraine has led to false or misleading videos and photographs being posted on social media claiming to be from the conflict.
-### [What we know about Ukraine invasion so far](https://www.bbc.com/news/world-europe-60504334)
-Russia has begun a large-scale military attack on Ukraine, its southern neighbour, on the orders of Russian President Vladimir Putin.
 ### [Diplomat's daughter beheaded for spurning proposal](https://www.bbc.com/news/world-asia-60514698)
 A court in Pakistan has sentenced a man to death for raping and murdering the daughter of a former diplomat who refused his offer of marriage.
+### [Russian forces seize Chernobyl nuclear power plant](https://www.bbc.com/news/world-us-canada-60514228)
+Russian military forces have seized control of the Chernobyl nuclear power plant, Ukrainian officials say.
 ### [Russia unleashes forces on Ukraine on three sides](https://www.bbc.com/news/world-europe-60503037)
 Russian forces have launched a major assault on Ukraine, firing missiles on cities and military targets. 
 ### [Ukraine invasion: Russia's attack in maps](https://www.bbc.com/news/world-europe-60506682)
 Russia has launched a major invasion of Ukraine from three main directions.
-### [Ex-police officers guilty in George Floyd death](https://www.bbc.com/news/world-us-canada-60512531)
-Three ex-Minneapolis policemen present at the death of George Floyd denied the unarmed black man of his civil rights, a jury has found. 
-### [How hard will it be to defend Ukraine?](https://www.bbc.com/news/world-europe-60492860)
-How hard will it be for Ukraine to defend itself now that an attack by Russia has begun? Ukraine is outgunned and outnumbered right across the board - after significant investment and modernisation in Russia's armed forces by President Putin. 
+### [A high society beheading that caused outrage](https://www.bbc.com/news/world-asia-59995097)
+The rape and murder of Noor Muqaddam, by a man from the same circle of rich friends, outraged Pakistan - and it highlighted the shocking levels of violence women there face.
+### [What we know about Ukraine invasion so far](https://www.bbc.com/news/world-europe-60504334)
+Russia has begun a large-scale military attack on Ukraine, its southern neighbour, on the orders of Russian President Vladimir Putin.
+### [Florida House passes 'Don't Say Gay' bill](https://www.bbc.com/news/world-us-canada-60514226)
+Legislation that bans the discussion of sexual orientation and gender identity in primary school classrooms has passed in Florida's statehouse.
