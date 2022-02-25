@@ -3,10 +3,10 @@
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people, and its forces are on the outskirts of the capital, Kyiv. 
 ### [Troops swore at Russian ship before being killed](https://www.bbc.com/news/world-europe-60522454)
 Ukraine has honoured 13 soldiers who were killed defending a tiny island after reportedly swearing at a Russian ship that ordered them to surrender.
-### [Radiation spike at Chernobyl site seized by Russia](https://www.bbc.com/news/science-environment-60528828)
-A radiation spike has been recorded near Chernobyl's nuclear power plant which has been seized by Russian forces, monitoring data shows.
 ### [More false Ukraine conflict images shared online](https://www.bbc.com/news/60528276)
 The second day of the Russian invasion of Ukraine has been accompanied by further false or misleading imagery on social media claiming to be from the conflict.
+### [Radiation spike at Chernobyl site seized by Russia](https://www.bbc.com/news/science-environment-60528828)
+A radiation spike has been recorded near Chernobyl's nuclear power plant which has been seized by Russian forces, monitoring data shows.
 ### [Defiant Ukrainian president asks Europe to do more](https://www.bbc.com/news/world-europe-60527346)
 A defiant Ukrainian President Volodymyr Zelensky has urged European countries to do more to help as he urged his citizens to resist Russian invasion.
 ### [Capitol riot 'podium guy' gets 75 days in prison](https://www.bbc.com/news/world-us-canada-60472474)
