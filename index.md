@@ -1,4 +1,6 @@
 # News
+### [Day four of Russia's war in Ukraine explained](https://www.bbc.com/news/world-europe-60549023)
+The EU is taking the unprecedented step of sending arms to Ukraine following Russia's invasion.
 ### [Kharkiv residents describe intense battle to defend city](https://www.bbc.com/news/world-europe-60543087)
 Ukrainian forces say they have repelled an attack on the country's second city Kharkiv after fierce clashes with Russian forces.
 ### [Putin puts Russian nuclear forces on 'special alert'](https://www.bbc.com/news/world-europe-60547473)
@@ -15,7 +17,5 @@ Excluding Russian banks from Swift and the Russian central bank from internation
 There has been heavy fighting in Kharkiv, Ukraine's second city, in the early hours of Sunday morning, on day four of the full-scale Russian invasion.
 ### [BP to offload stake in Russian oil firm Rosneft](https://www.bbc.com/news/business-60548382)
 BP is to offload its 19.75% stake in Russian state-owned oil firm Rosneft after Russia's "act of aggression in Ukraine".
-### [Truss backs Britons who want to fight for Ukraine](https://www.bbc.com/news/uk-60544838)
-Foreign Secretary Liz Truss has said she supports individuals from the UK who might want to go to Ukraine to join an international force to fight.
 ### [Zelensky: A comedian president rising to the moment](https://www.bbc.com/news/world-europe-59667938)
 Ukrainian President Volodymyr Zelensky, a comedian who had no experience of politics when elected less than three years ago, has suddenly emerged as a convincing war leader.
