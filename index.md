@@ -1,8 +1,10 @@
 # News
 ### [Kharkiv residents describe intense battle to defend city](https://www.bbc.com/news/world-europe-60543087)
 Ukrainian forces say they have repelled an attack on the country's second city Kharkiv after fierce clashes with Russian forces.
-### [Russian planes face near-total airspace ban to west](https://www.bbc.com/news/world-europe-60539303)
-Russian airlines face a near-total airspace blockade to the country's west after an EU official said most European countries are set to impose flight bans.
+### [BP to offload stake in Russian oil firm Rosneft](https://www.bbc.com/news/business-60548382)
+BP is to offload its 19.75% stake in Russian state-owned oil firm Rosneft after Russia's "act of aggression in Ukraine".
+### [EU shuts its airspace to Russian planes](https://www.bbc.com/news/world-europe-60539303)
+The EU has imposed a blanket flight ban on Russian planes, the head of the European Commission, Ursula von der Leyen, has announced. 
 ### [Russia central bank urges calm amid cash run fears](https://www.bbc.com/news/business-60543994)
 Russia's central bank has issued an appeal for calm amid fears that new financial sanctions could spark a run on its banks.
 ### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
@@ -17,5 +19,3 @@ Ukrainian President Volodymyr Zelensky, a comedian who had no experience of poli
 There has been heavy fighting in Kharkiv, Ukraine's second city, in the early hours of Sunday morning, on day four of the full-scale Russian invasion.
 ### [Terrified but coping: A key city jolts into action](https://www.bbc.com/news/world-europe-60542523)
 On the day Vladimir Putin ordered his soldiers into Ukraine, Arina had planned a dance class after work and then a party. Three days later, the English teacher was making Molotov cocktails in a park.
-### [The Ukraine crisis is a major challenge for China](https://www.bbc.com/news/world-asia-china-60492134)
-Hours before Russian President Vladimir Putin announced a military operation in eastern Ukraine, the US accused Moscow and Beijing of combining to create a "profoundly illiberal" world order. 
