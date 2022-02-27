@@ -5,17 +5,17 @@ The EU, US and their allies have agreed to cut off a number of Russian banks fro
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people, and its forces are on the outskirts of the capital, Kyiv. 
 ### [France seizes Russian ship over Ukraine sanctions](https://www.bbc.com/news/world-europe-60539119)
 France has intercepted and impounded a Russian-flagged cargo ship suspected of breaching sanctions imposed because of the invasion of Ukraine. 
-### [Day three of Russia's war in Ukraine explained](https://www.bbc.com/news/world-europe-60541882)
-The Ukrainian capital Kyiv has been under Russian missile fire, but remains in the hands of the government of President Volodymyr Zelensky. 
-### [The Ukraine crisis is a major challenge for China](https://www.bbc.com/news/world-asia-china-60492134)
-Hours before Russian President Vladimir Putin announced a military operation in eastern Ukraine, the US accused Moscow and Beijing of combining to create a "profoundly illiberal" world order. 
 ### [Is Russia's invasion going as expected?](https://www.bbc.com/news/world-europe-60539113)
 History shows that it's much easier to start a war than to end one. 
-### [Day 3: Tracking Russia's invasion in maps](https://www.bbc.com/news/world-europe-60506682)
-Fighting has reached the Ukrainian capital Kyiv after Russians launched a full-scale invasion of the country from three main directions.
+### [Day three of Russia's war in Ukraine explained](https://www.bbc.com/news/world-europe-60541882)
+The Ukrainian capital Kyiv has been under Russian missile fire, but remains in the hands of the government of President Volodymyr Zelensky. 
 ### [Zelensky: A comedian president rising to the moment](https://www.bbc.com/news/world-europe-59667938)
 Ukrainian President Volodymyr Zelensky, a comedian who had no experience of politics when elected less than three years ago, has suddenly emerged as a convincing war leader.
+### [The Ukraine crisis is a major challenge for China](https://www.bbc.com/news/world-asia-china-60492134)
+Hours before Russian President Vladimir Putin announced a military operation in eastern Ukraine, the US accused Moscow and Beijing of combining to create a "profoundly illiberal" world order. 
+### [Avril Lavigne: 'I still do the groceries'](https://www.bbc.com/news/entertainment-arts-60496710)
+You wouldn't want to get on the wrong side of Avril Lavigne.
+### [Day 3: Tracking Russia's invasion in maps](https://www.bbc.com/news/world-europe-60506682)
+Fighting has reached the Ukrainian capital Kyiv after Russians launched a full-scale invasion of the country from three main directions.
 ### [Abramovich hands over Chelsea 'stewardship'](https://www.bbc.com/sport/football/60540278)
 Chelsea's Russian owner Roman Abramovich says he is "giving trustees of Chelsea's charitable foundation the stewardship and care" of the club. 
-### [Ukrainians in 15km queues to flee Russian invasion](https://www.bbc.com/news/world-europe-60539104)
-Tens of thousands of Ukrainians are pouring towards neighbouring countries to flee the Russian invasion.
