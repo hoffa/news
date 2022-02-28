@@ -2,7 +2,7 @@
 ### [Would Putin press the nuclear button?](https://www.bbc.com/news/world-europe-60551140)
 Let me begin with an admission. So many times, I've thought: "Putin would never do this." Then he goes and does it.
 ### [Russia doubles interest rate after rouble slumps](https://www.bbc.com/news/business-60550992)
-Russia has more than doubled its interest rate in a bid to halt a 30% slump in the value of its currency.
+Russia has more than doubled its interest rate to 20% in a bid to halt a slump in the value of its currency.
 ### [Ukrainian sailor tried to sink Russian's yacht](https://www.bbc.com/news/world-europe-60553124)
 A Ukrainian sailor has admitted trying to sink a yacht owned by the head of a Russian state arms firm, in retaliation for the invasion of Ukraine.
 ### [Putin's war prompts dramatic German U-turn](https://www.bbc.com/news/world-europe-60549916)
@@ -17,5 +17,5 @@ Vladimir Putin putting Russia's nuclear forces on high alert is an attempt to di
 1991 was an impressive year for video game releases. 
 ### [Ukrainian cities on alert after night of shelling](https://www.bbc.com/news/world-europe-60551688)
 Cities across Ukraine remain on high alert on the fifth day of the country's fight against Russia's invasion. 
-### [How badly will Russia be hit by new sanctions?](https://www.bbc.com/news/business-60543995)
-Excluding Russian banks from Swift and the Russian central bank from international operations has, up until now, been considered a last resort. 
+### [Some impacts of global warming ‘irreversible’- UN](https://www.bbc.com/news/science-environment-60525591)
+Many of the impacts of global warming are now simply "irreversible" according to the UN's latest assessment.
