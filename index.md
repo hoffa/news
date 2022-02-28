@@ -13,9 +13,9 @@ Dozens of people have been killed in Russian missile strikes on Ukraine's second
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people, and its forces are on the outskirts of the capital, Kyiv. 
 ### [Canada eases travel rules as Covid cases decline](https://www.bbc.com/news/world-us-canada-60559409)
 Canada has eased entry requirements for fully vaccinated international travellers who will no longer need a molecular Covid-19 test to enter. 
-### [UK citizens are advised not to travel to Russia](https://www.bbc.com/news/business-60559513)
-UK citizens have been advised against travelling to Russia due to a lack of flights available and economic problems in the country.
 ### [Day 5: Tracking Russia's invasion in maps](https://www.bbc.com/news/world-europe-60506682)
 Air raid sirens have sounded throughout the night in major cities across Ukraine, as the Russian invasion enters its fifth day.
-### [Ukrainian sailor tried to sink Russian's yacht](https://www.bbc.com/news/world-europe-60553124)
-A Ukrainian sailor has admitted trying to sink a yacht owned by the head of a Russian state arms firm, in retaliation for the invasion of Ukraine.
+### [Fifa and Uefa suspend all Russian teams](https://www.bbc.com/sport/athletics/60560567)
+Russian football clubs and national teams have been suspended from all competitions by Fifa and Uefa after the country's invasion of Ukraine.
+### [What are the nuclear risks?](https://www.bbc.com/news/world-europe-60559574)
+On Sunday, President Putin ordered his military to move Russia's "deterrent forces" - which include nuclear weapons - to a "special mode of combat duty". But what exactly does that mean?
