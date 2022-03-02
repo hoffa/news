@@ -9,13 +9,13 @@ One of Russia's richest men has said imposing sanctions on oligarchs would have 
 Russia has been accused of planning to use thermobaric weapons - also known as vacuum bombs - in its invasion of Ukraine. 
 ### [Ship carrying 4,000 luxury cars sinks](https://www.bbc.com/news/business-60579640)
 A cargo ship that was carrying thousands of luxury cars has sunk off the Portuguese Azores archipelago, nearly two weeks after it caught fire. 
-### [Indian student killed in Ukraine as he bought food](https://www.bbc.com/news/world-asia-india-60567585)
-An Indian medical student was killed in shelling in the Ukrainian city of Kharkiv after he left the bunker he'd been sheltering in to buy food. 
+### [What message was Biden sending to Putin?](https://www.bbc.com/news/world-europe-60517571)
+Joe Biden spent the first 15 minutes of his State of the Union address talking about Russia's invasion of Ukraine, an event that certainly has transfixed the world more than the latest twists and stumbles of his domestic legislative agenda.
 ### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. Its forces are bombing city centres and closing in on the capital, Kyiv, prompting a mass exodus of refugees.
 ### [Why a Ukraine no-fly zone is a no-go for the West](https://www.bbc.com/news/world-europe-60576443)
 "The Ukrainian people are desperately asking for the West to protect our sky. We are asking for a no-fly zone."
+### [ExxonMobil and Boeing take action over Russia ties](https://www.bbc.com/news/business-60582367)
+Energy giant ExxonMobil and aviation group Boeing have joined the growing list of companies to take action over Russia's invasion of Ukraine.
 ### ['I can't pay' - Russians feel the pain of sanctions](https://www.bbc.com/news/world-europe-60558731)
 "If I could leave Russia right now, I would. But I can't quit my job," says Andrey.
-### [How many nuclear weapons does Russia have?](https://www.bbc.com/news/world-europe-60564123)
-President Putin has put Russia's nuclear forces on "special" alert, raising concerns around the world.
