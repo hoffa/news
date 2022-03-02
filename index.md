@@ -1,4 +1,6 @@
 # News
+### [Abramovich says he will sell Chelsea](https://www.bbc.com/sport/football/60585081)
+Chelsea owner Roman Abramovich says he is planning to sell the club.
 ### [Watching the war on Russian TV - a whole different story](https://www.bbc.com/news/world-europe-60571737)
 Never was there a better illustration of the alternative reality presented by Russian state media than at 17:00 GMT on Tuesday. As BBC World TV opened its bulletin with reports of a Russian attack on a TV tower in the capital Kyiv, Russian TV was announcing that Ukraine was responsible for strikes on its own cities.
 ### [Ukrainian city of Mariupol 'near to catastrophe'](https://www.bbc.com/news/world-europe-60585603)
@@ -15,7 +17,5 @@ A new study suggests that Stonehenge once served as a solar calendar.
 The boss of one of the world's biggest crypto-currency exchanges has ruled out restricting ordinary Russians from using the service.
 ### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. Its forces are bombing city centres and closing in on the capital, Kyiv, prompting a mass exodus of refugees.
-### [Day 7: Tracking Russia's invasion in maps](https://www.bbc.com/news/world-europe-60506682)
-One week into Russia's invasion of Ukraine, its troops have made significant advances into the country but have so far failed to take the capital Kyiv and other major cities. 
-### [Ball game back for 822nd year after pandemic break](https://www.bbc.com/news/uk-england-coventry-warwickshire-60570047)
-A Warwickshire town kicked off its ancient Shrove Tuesday ball game following a two-year break due to the coronavirus pandemic.
+### [US central bank boss says he plans to raise rates](https://www.bbc.com/news/business-60593983)
+The US central bank's boss has indicated that he plans to press ahead with interest rate increases this month.
