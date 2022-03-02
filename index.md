@@ -10,12 +10,12 @@ One of Russia's richest men has said imposing sanctions on oligarchs would have 
 ### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. Its forces are bombing city centres and closing in on the capital, Kyiv, prompting a mass exodus of refugees.
 ### [Biden vows 'freedom will triumph over tyranny'](https://www.bbc.com/news/world-us-canada-60582210)
-US President Joe Biden has told Congress his Russian counterpart Vladimir Putin misjudged how the West would hit back when he invaded Ukraine.
-### ['I can't pay' - Russians feel the pain of sanctions](https://www.bbc.com/news/world-europe-60558731)
-"If I could leave Russia right now, I would. But I can't quit my job," says Andrey.
-### [Why a Ukraine no-fly zone is a no-go for the West](https://www.bbc.com/news/world-europe-60576443)
-"The Ukrainian people are desperately asking for the West to protect our sky. We are asking for a no-fly zone."
+US President Joe Biden has told Congress that Vladimir Putin badly misjudged how the West would hit back once he invaded Ukraine.
 ### [How many nuclear weapons does Russia have?](https://www.bbc.com/news/world-europe-60564123)
 President Putin has put Russia's nuclear forces on "special" alert, raising concerns around the world.
-### [Day six of Russia's war in Ukraine explained](https://www.bbc.com/news/world-europe-60576450)
-On day six of the Russian invasion, Ukrainians woke up to the wailing sound of air sirens and news of Russian troops progressing towards the capital Kyiv. 
+### [Why a Ukraine no-fly zone is a no-go for the West](https://www.bbc.com/news/world-europe-60576443)
+"The Ukrainian people are desperately asking for the West to protect our sky. We are asking for a no-fly zone."
+### ['I can't pay' - Russians feel the pain of sanctions](https://www.bbc.com/news/world-europe-60558731)
+"If I could leave Russia right now, I would. But I can't quit my job," says Andrey.
+### [ExxonMobil and Boeing take action over Russia ties](https://www.bbc.com/news/business-60582367)
+Energy giant ExxonMobil and aviation group Boeing have joined the growing list of companies to take action over Russia's invasion of Ukraine.
