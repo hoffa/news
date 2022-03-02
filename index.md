@@ -7,15 +7,15 @@ Russia has been accused of planning to use thermobaric weapons - also known as v
 One of Russia's richest men has said imposing sanctions on oligarchs would have no impact on Moscow's decision to launch a war in Ukraine.
 ### [Ship carrying 4,000 luxury cars sinks](https://www.bbc.com/news/business-60579640)
 A cargo ship that was carrying thousands of luxury cars has sunk off the Portuguese Azores archipelago, nearly two weeks after it caught fire. 
-### [West was ready for Russian invasion, says Biden](https://www.bbc.com/news/world-us-canada-60582210)
-The West was ready for the "unprovoked" and "premeditated" attack by Russia on Ukraine, US President Joe Biden will say in a primetime speech to Congress.
+### [Biden vows 'freedom will triumph over tyranny'](https://www.bbc.com/news/world-us-canada-60582210)
+US President Joe Biden has told Congress his Russian counterpart Vladimir Putin misjudged how the West would hit back when he invaded Ukraine.
 ### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. Its forces are bombing city centres and closing in on the capital, Kyiv, prompting a mass exodus of refugees.
 ### [Why a Ukraine no-fly zone is a no-go for the West](https://www.bbc.com/news/world-europe-60576443)
 "The Ukrainian people are desperately asking for the West to protect our sky. We are asking for a no-fly zone."
-### [Putin's miscalculations mean he could strike harder](https://www.bbc.com/news/world-60574277)
-Ukraine has fought back much harder during the first week than Vladimir Putin expected, or very probably than his generals promised him, it would. But these are still the early stages of what could be a very nasty war.
-### ['I can't pay' - Russians feel the pain of sanctions](https://www.bbc.com/news/world-europe-60558731)
-"If I could leave Russia right now, I would. But I can't quit my job," says Andrey.
 ### [Day six of Russia's war in Ukraine explained](https://www.bbc.com/news/world-europe-60576450)
 On day six of the Russian invasion, Ukrainians woke up to the wailing sound of air sirens and news of Russian troops progressing towards the capital Kyiv. 
+### ['I can't pay' - Russians feel the pain of sanctions](https://www.bbc.com/news/world-europe-60558731)
+"If I could leave Russia right now, I would. But I can't quit my job," says Andrey.
+### [Putin's miscalculations mean he could strike harder](https://www.bbc.com/news/world-60574277)
+Ukraine has fought back much harder during the first week than Vladimir Putin expected, or very probably than his generals promised him, it would. But these are still the early stages of what could be a very nasty war.
