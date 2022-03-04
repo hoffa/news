@@ -7,15 +7,15 @@ Russian missile attacks have devastated cities, towns and villages across Ukrain
 Amid the fog of war, it can be hard to see the way forward. The news from the battlefield, the diplomatic noises off, the emotion of the grieving and displaced; all of this can be overwhelming. So let us step back for a moment and consider how the conflict in Ukraine might play out. What are some of the possible scenarios that politicians and military planners are examining? Few can predict the future with confidence, but here are some potential outcomes. Most are bleak. 
 ### [F-35C fighter jet recovered from South China Sea](https://www.bbc.com/news/world-us-canada-60607784)
 The US Navy has said it has retrieved a stealth fighter jet from the depths of the South China Sea where it sank after a "mishap" in January. 
+### [Asia stocks drop after Ukraine nuclear plant attack](https://www.bbc.com/news/business-60613855)
+Share prices have fallen in Asia after a fire broke out at the Zaporizhzhia nuclear power plant in Ukraine, the largest in Europe.
 ### [Amateurs dig in to fight Russian troops from Kyiv forests](https://www.bbc.com/news/world-europe-60607649)
 Day by day, Kyiv grows more tense.  
 ### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
 By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. Its forces are bombing city centres and closing in on the capital, Kyiv, prompting a mass exodus of refugees.
-### [Who's in Putin's inner circle and running the war?](https://www.bbc.com/news/world-europe-60573261)
-Vladimir Putin cuts a solitary figure, leading Russia's military into a high-risk war that threatens to tear apart his country's economy.
 ### [Biden imposes sanctions on Russian oligarchs](https://www.bbc.com/news/world-us-canada-60607790)
 The US has announced fresh sanctions on Russian oligarchs - the latest attempt to squeeze President Vladimir Putin as his invasion of Ukraine continues. 
 ### [The Germans welcoming trainloads of refugees](https://www.bbc.com/news/world-europe-60611188)
 In Berlin's central railway station the trains arriving from the east come carrying thousands of refugees every day - men, women and children fleeing Vladimir Putin's war in Ukraine.
-### [Estonian cargo ship sinks after blast in Black Sea](https://www.bbc.com/news/world-europe-60606515)
-An Estonian cargo ship has sunk off the Ukrainian Black Sea port of Odesa after an explosion, the ship's owners say.
+### [Who's in Putin's inner circle and running the war?](https://www.bbc.com/news/world-europe-60573261)
+Vladimir Putin cuts a solitary figure, leading Russia's military into a high-risk war that threatens to tear apart his country's economy.
