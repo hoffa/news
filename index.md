@@ -17,5 +17,5 @@ Game Of Thrones actor John Stahl has died at the age of 68, his agent has confir
 Marta Vasyuta is a regular 20-year-old Ukrainian.
 ### [French designer giants suspend sales in Russia](https://www.bbc.com/news/business-60627393)
 French luxury giants have joined other firms in announcing they will suspend sales in Russia amid the ongoing war in Ukraine.
-### [Can China do more to stop Russia's war on Ukraine?](https://www.bbc.com/news/world-asia-china-60615280)
-A month ago, Chinese leader Xi Jinping declared there was "no limit" to Beijing's newly strengthened relationship with Russia. 
+### [Why has Putin invaded Ukraine?](https://www.bbc.com/news/world-europe-56720589)
+By air, land, and sea, Russia has launched a devastating attack on Ukraine, a European democracy of 44 million people. Its forces are bombing city centres and closing in on the capital, Kyiv, prompting a mass exodus of refugees.
