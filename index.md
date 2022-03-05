@@ -7,10 +7,10 @@ At Vaalimaa, Finland's border crossing with Russia - 120 miles east of Helsinki 
 It's more than a week since Russia began its invasion of Ukraine. 
 ### [Zelensky slams Nato over rejection of no-fly zone](https://www.bbc.com/news/world-europe-60629175)
 Ukraine's president has attacked Nato leaders in a fiery speech over their refusal to implement a no-fly zone around the country. 
-### ['Life is crumbling' - Russians on boycotts and sanctions](https://www.bbc.com/news/world-europe-60585720)
-Since last week's invasion, there has been a global cultural and sporting backlash against Russia. But do these bans matter to Russians who are now considering their own future as Western air spaces close down, their currency slumps and curbs intensify on free press?
 ### [Sky journalist shot and wounded in Ukraine ambush](https://www.bbc.com/news/uk-60627841)
 A British journalist covering the war in Ukraine has been shot and wounded after coming under fire in Kyiv.
+### ['Life is crumbling' - Russians on boycotts and sanctions](https://www.bbc.com/news/world-europe-60585720)
+Since last week's invasion, there has been a global cultural and sporting backlash against Russia. But do these bans matter to Russians who are now considering their own future as Western air spaces close down, their currency slumps and curbs intensify on free press?
 ### [Who are the mega-rich Russians facing sanctions?](https://www.bbc.com/news/uk-60593022)
 The UK, EU, and US governments have responded to Russia's invasion of Ukraine with devastating sanctions against the billionaire businessmen perceived to be in President Vladimir Putin's inner circle.
 ### [The TikToker spreading viral Ukraine war videos](https://www.bbc.com/news/technology-60613331)
