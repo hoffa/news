@@ -11,11 +11,11 @@ Oleksandra and her four rescue dogs have been sheltering in the bathroom of her 
 Ukraine's president has attacked Nato leaders in a fiery speech over their refusal to implement a no-fly zone around the country. 
 ### ['Life is crumbling' - Russians on boycotts and sanctions](https://www.bbc.com/news/world-europe-60585720)
 Since last week's invasion, there has been a global cultural and sporting backlash against Russia. But do these bans matter to Russians who are now considering their own future as Western air spaces close down, their currency slumps and curbs intensify on free press?
-### [Who are the mega-rich Russians facing sanctions?](https://www.bbc.com/news/uk-60593022)
-The UK, EU, and US governments have responded to Russia's invasion of Ukraine with devastating sanctions against the billionaire businessmen perceived to be in President Vladimir Putin's inner circle.
 ### [The TikToker spreading viral Ukraine war videos](https://www.bbc.com/news/technology-60613331)
 Marta Vasyuta is a regular 20-year-old Ukrainian.
-### [French designer giants suspend sales in Russia](https://www.bbc.com/news/business-60627393)
-French luxury giants have joined other firms in announcing they will suspend sales in Russia amid the ongoing war in Ukraine.
+### [Who are the mega-rich Russians facing sanctions?](https://www.bbc.com/news/uk-60593022)
+The UK, EU, and US governments have responded to Russia's invasion of Ukraine with devastating sanctions against the billionaire businessmen perceived to be in President Vladimir Putin's inner circle.
+### [Kevin Connolly: European peace seems as fragile as ever](https://www.bbc.com/news/world-60622772)
+There are moments when the tectonic plates of history shift beneath our feet and Europe is violently remade. It is time to recognise that we are at such a moment. Time too, to stop saying that it is somehow unbelievable that this can be happening in 2022.
 ### [Can China do more to stop Russia's war on Ukraine?](https://www.bbc.com/news/world-asia-china-60615280)
 A month ago, Chinese leader Xi Jinping declared there was "no limit" to Beijing's newly strengthened relationship with Russia. 
