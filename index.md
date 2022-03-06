@@ -17,5 +17,5 @@ We are now well into the second week of this war, and I've noticed that I don't 
 On day 10 of the invasion, people hoping to escape besieged cities in Ukraine were forced back to shelters after plans for a brief truce went awry.
 ### [The Russians leaving their country for Finland](https://www.bbc.com/news/world-60624500)
 At Vaalimaa, Finland's border crossing with Russia - 120 miles east of Helsinki - buses and cars stop for passport and customs checks. These aren't Ukrainians, they're Russians, and although the flow isn't heavy, it is constant.
-### [Thousands march in Kherson against occupiers](https://www.bbc.com/news/world-europe-60632587)
-Protests against Russian occupation have broken out in the port city of Kherson, Ukraine's only big city to have been captured in the war so far.
+### [Grozny, Aleppo, Ukraine: Russia's answer is firepower](https://www.bbc.com/news/world-europe-60631433)
+As I write this, the centre of Kyiv and much of its suburbs are largely untouched. Sirens and alerts punctuate the day. 
