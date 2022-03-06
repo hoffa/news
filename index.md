@@ -1,4 +1,6 @@
 # News
+### [Zelensky urges Ukrainians to 'drive this evil out'](https://www.bbc.com/news/world-europe-60636337)
+President Volodymyr Zelensky has told Ukrainians they have "withstood the blow" of Russia's invasion as he urged citizens to continue fighting.
 ### [The free world fights back against Putin](https://www.bbc.com/news/world-us-canada-60597186)
 Successive US presidents have struggled to get the measure of Vladimir Putin but now that Brussels and Berlin have joined the fray with such resolve, it's a different story, writes Nick Bryant.
 ### [Russia's Ukraine war fuels Finnish support for Nato](https://www.bbc.com/news/world-europe-60626536)
@@ -13,9 +15,7 @@ Elizabeth Hurley has paid tribute to former fiance Shane Warne as her "beloved l
 What's it like being a young Ukrainian experiencing war while wading through chaos and misinformation on social media? 
 ### ['My mother called to say she'd managed to buy bread'](https://www.bbc.com/news/world-europe-60633888)
 We are now well into the second week of this war, and I've noticed that I don't cry any more.
-### [Zelensky urges Ukrainians to 'drive this evil out'](https://www.bbc.com/news/world-europe-60636337)
-President Volodymyr Zelensky has told Ukrainians they have "withstood the blow" of Russia's invasion as he urged citizens to continue fighting.
-### [Day 10 of Russia's war in Ukraine explained](https://www.bbc.com/news/world-europe-60634880)
-On day 10 of the invasion, people hoping to escape besieged cities in Ukraine were forced back to shelters after plans for a brief truce went awry.
 ### [Grozny, Aleppo, Ukraine: Russia's answer is firepower](https://www.bbc.com/news/world-europe-60631433)
 As I write this, the centre of Kyiv and much of its suburbs are largely untouched. Sirens and alerts punctuate the day. 
+### [Day 10 of Russia's war in Ukraine explained](https://www.bbc.com/news/world-europe-60634880)
+On day 10 of the invasion, people hoping to escape besieged cities in Ukraine were forced back to shelters after plans for a brief truce went awry.
