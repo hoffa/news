@@ -1,12 +1,12 @@
 # News
 ### [Ukraine war 'catastrophic for global food'](https://www.bbc.com/news/business-60623941)
 The boss of one of the world's biggest fertiliser companies has said the war in Ukraine will deliver a shock to the global supply and cost of food. 
-### [Oil hits 13-year high as US mulls Russia crude ban](https://www.bbc.com/news/business-60642786)
-Oil prices have soared to the highest level since 2008 after the US said it was discussing a potential embargo on Russian supplies with its allies.
 ### [Russian gymnast wears pro-war symbol](https://www.bbc.com/sport/gymnastics/60641891)
 Russian gymnast Ivan Kuliak is being investigated after wearing a national war symbol on his leotard as he stood next to a Ukrainian rival on the podium in Qatar on Saturday.
 ### [Shell defends decision to buy Russian crude oil](https://www.bbc.com/news/business-60638255)
 Shell has defended its decision to purchase Russian crude oil despite the invasion and bombardment of Ukraine.
+### [Oil hits 13-year high as US mulls Russia crude ban](https://www.bbc.com/news/business-60642786)
+Oil prices have soared to the highest level since 2008 after the US said it was discussing a potential embargo on Russian supplies with its allies.
 ### [The TikToker spreading viral Ukraine war videos](https://www.bbc.com/news/technology-60613331)
 Marta Vasyuta is a regular 20-year-old Ukrainian.
 ### [The West fights back against Putin the disruptor](https://www.bbc.com/news/world-us-canada-60597186)
