@@ -15,7 +15,7 @@ Russian gymnast Ivan Kuliak is facing disciplinary proceedings by the Internatio
 Pressure is growing on Western food and drink giants to pull out of Russia due to the invasion of Ukraine.
 ### [UK band make chart history to reach US number one](https://www.bbc.com/news/entertainment-arts-60660186)
 UK band Glass Animals have gone to number one in the US with their sleeper hit Heat Waves, setting a new record for the longest time to reach the top.
-### [War is unleashing 'hell on earth' for food prices](https://www.bbc.com/news/business-60653856)
-The head of the World Food Programme, David Beasley, has warned the conflict in Ukraine could send global food prices soaring, with a catastrophic impact on the world's poorest.
 ### [Chernobyl workers' ordeal under Russian guard](https://www.bbc.com/news/world-europe-60638949)
 More than 100 workers at Ukraine's Chernobyl nuclear power plant - the site of the world's worst nuclear disaster in 1986 - have been stuck there for more than 12 days, unable to leave after Russian forces seized the plant on the first day of the invasion. 
+### [Revolutionary transplant success for baby Easton](https://www.bbc.com/news/health-60648869)
+US doctors say a young boy called Easton has made medical history by becoming the first person in the world to receive a combined heart and thymus transplant. 
