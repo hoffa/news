@@ -15,7 +15,7 @@ The head of the World Food Programme, David Beasley, has warned the conflict in 
 More than 100 workers at Ukraine's Chernobyl nuclear power plant - the site of the world's worst nuclear disaster in 1986 - have been stuck there for more than 12 days, unable to leave after Russian forces seized the plant on the first day of the invasion. 
 ### [Zelensky to address UK MPs in Commons](https://www.bbc.com/news/uk-politics-60655003)
 Ukrainian President Volodymyr Zelensky will address British MPs on Tuesday via video link, the Speaker of the House of Commons has announced.
-### [Blue and yellow flowers as Queen meets Trudeau](https://www.bbc.com/news/uk-60650285)
-The Queen posed in front of blue and yellow flowers, the national colours of Ukraine, as she held her first in-person meeting at Windsor Castle since falling ill with Covid.
+### [Trial due to begin in US governor kidnapping plot](https://www.bbc.com/news/world-us-canada-60656553)
+The trial of four men accused of a plot to kidnap Michigan's Democratic governor is due to begin with jury selection on Tuesday.
 ### [Construction spotted at N Korea nuclear test site](https://www.bbc.com/news/world-asia-60598235)
 North Korea appears to have started repairing a closed nuclear testing site, according to satellite images.
