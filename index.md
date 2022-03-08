@@ -17,5 +17,5 @@ Catching Covid may cause changes to the brain, a study suggests.
 More than 100 workers at Ukraine's Chernobyl nuclear power plant - the site of the world's worst nuclear disaster in 1986 - have been stuck there for more than 12 days, unable to leave after Russian forces seized the plant on the first day of the invasion. 
 ### [Oligarch who said sanctions won't help is frozen out](https://www.bbc.com/news/business-60645278)
 One of Russia's richest men who said imposing sanctions on oligarchs would have no impact on the war in Ukraine has been frozen out of a company.
-### [UK calls for 'step-by-step' move from Russian fuel](https://www.bbc.com/news/uk-60642926)
-Prime Minister Boris Johnson has called for a "step-by-step" move away from dependence on Russian oil and gas as a result of the Ukraine war.
+### [Trial due to begin in US governor kidnapping plot](https://www.bbc.com/news/world-us-canada-60656553)
+The trial of four men accused of a plot to kidnap Michigan's Democratic governor is due to begin with jury selection on Tuesday.
