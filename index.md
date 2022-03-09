@@ -13,9 +13,9 @@ The US and UK are banning Russian oil and the EU is ending its reliance on Russi
 Florida's Senate has passed a bill to ban discussions of sexual orientation or gender identity in primary schools.
 ### [BBC resumes news broadcasts from Russia](https://www.bbc.com/news/entertainment-arts-60667770)
 BBC News journalists in Russia have resumed their broadcasts, days after putting their work on hold after the introduction of a strict new media law.
-### [Revolutionary transplant success for baby Easton](https://www.bbc.com/news/health-60648869)
-US doctors say a young boy called Easton has made medical history by becoming the first person in the world to receive a combined heart and thymus transplant. 
+### [Stool tests might help spot early pancreatic cancer](https://www.bbc.com/news/health-60661260)
+Stool tests might provide a useful way to help doctors spot early pancreatic cancer, say researchers. 
 ### ['How do I get my soldier son back?' - Russian mother's plea](https://www.bbc.com/news/world-europe-60604952)
 President Putin has directly addressed the mothers of soldiers serving in Ukraine, telling them: "I know how worried you are" and trying to reassure them. But some mothers, grandmothers, sisters and girlfriends have been telling the BBC they are desperately anxious about loved ones in the military - young men who appear to have had little idea what they were being sent to do. 
-### [First trial of US Capitol riot ends in conviction](https://www.bbc.com/news/world-us-canada-60670105)
-The first person to face trial over the 6 January storming of the US Capitol has been found guilty on all counts.
+### [Ukrainian troops dig in near Kyiv](https://www.bbc.com/news/world-europe-60671329)
+The commander called himself Johnny Dragan, and he smoked each cigarette as fiercely as if it was going to be his last. 
