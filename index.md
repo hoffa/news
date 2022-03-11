@@ -13,9 +13,9 @@ The scale of the destruction in the besieged Ukrainian city of Mariupol has been
 A Canadian marketer who had planned to raise a humble few hundred dollars for a charity helping relief efforts in Ukraine has found himself the creator of a viral marketing campaign that has so far earned well over C$1m ($783,000; £600,000) using the unlikeliest of images - a rocket-armed saint. 
 ### [N Korea tested intercontinental missile system: US](https://www.bbc.com/news/world-asia-60702463)
 The US says N Korea recently tested parts of a new intercontinental ballistic missile (ICBM) system, in what it called a "serious escalation".
-### [IS confirms leader's death and names successor](https://www.bbc.com/news/world-middle-east-60691511)
-The Islamic State (IS) group has named a new leader after confirming the death of Abu Ibrahim al-Qurayshi.
 ### [Global Covid deaths probably three times higher](https://www.bbc.com/news/health-60690251)
 More than 18 million people - three times higher than official records suggest - have probably died because of Covid, say researchers.
+### [Roman Abramovich sanctioned by UK](https://www.bbc.com/news/uk-politics-60690362)
+Chelsea FC owner Roman Abramovich has been sanctioned by the UK government as part of its response to Russia's invasion of Ukraine.
 ### ['This is not war any more. It is Russia against humanity'](https://www.bbc.com/news/world-europe-60690856)
 People with loved ones trapped inside the besieged city of Mariupol were trying desperately on Thursday to connect to phones inside the city, which has been virtually cut off from the outside world by an escalating and indiscriminate bombing campaign by Russian forces.
