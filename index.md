@@ -15,7 +15,7 @@ Ukrainian President Volodymyr Zelensky has described an attack on a maternity an
 The owner of Facebook and Instagram will allow users in some countries to call for violence against Vladimir Putin and Russian soldiers. 
 ### [Global Covid deaths probably three times higher](https://www.bbc.com/news/health-60690251)
 More than 18 million people - three times higher than official records suggest - have probably died because of Covid, say researchers.
+### [US condemns reports Russia may seize firms' assets](https://www.bbc.com/news/business-60703359)
+The United States has condemned reports that Moscow may seize the assets of businesses which have stopped operating in Russia over the invasion of Ukraine.
 ### [Images reveal Russian destruction in Mariupol](https://www.bbc.com/news/world-europe-60695465)
 The scale of the destruction in the besieged Ukrainian city of Mariupol has been revealed in a series of photos and satellite images.
-### [On the front line of the battle for Kharkiv](https://www.bbc.com/news/world-europe-60693166)
-In the early days of the invasion, Kharkiv in eastern Ukraine fought back a Russian armoured column. Since then, it has suffered nightly Russian airstrikes and shelling, with dozens of civilians killed and hundreds injured. The BBC's Quentin Sommerville and cameraman Darren Conway have spent the week with the Ukrainian forces as they fight to stop a further Russian advance. 
