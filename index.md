@@ -18,4 +18,4 @@ India says it accidentally fired a missile into Pakistan on Wednesday, blaming t
 ### [Texas plan to probe trans children's parents halted](https://www.bbc.com/news/world-us-canada-60710227)
 A Texas judge has extended an order to prevent state officials from investigating allegations of so-called "abuse" against parents seeking gender-transitioning care for their children.
 ### [Under threat of Russian bombs, Lviv hides its heritage](https://www.bbc.com/news/world-europe-60707531)
-In one room of the National Museum of Lviv, an enormous scaffold is bare. In another, brackets hang loosely from the walls. Plinths sit empty along the corridors and wooden pallets and cardboard boxes are strewn on the floors. The staff used whatever they could get their hands on to pack the museum's priceless artefacts in a hurry.
+In one room of the National Museum of Lviv, an enormous scaffold is bare. In another, brackets hang loosely from the walls. Plinths sit empty along the corridors and wooden pallets and cardboard boxes are strewn on the floors. The staff used whatever they could to pack away the museum's priceless artefacts in a hurry.
