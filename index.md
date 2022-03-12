@@ -13,9 +13,9 @@ In one room of the National Museum of Lviv, an enormous scaffold is bare. In ano
 Walt Disney's CEO has apologised for his "painful silence" on a Florida sex education bill critics warn will isolate LGBT youth.
 ### ['We are winning this fight, but not this war'](https://www.bbc.com/news/world-europe-60711659)
 The boom of artillery, muffled by heavy snowfall, echoes across the southern Ukrainian city of Mykolaiv, triggering a series of air raid sirens. 
-### [Abramovich disqualified as Chelsea director](https://www.bbc.com/sport/football/60720343)
-The Premier League has disqualified Chelsea owner Roman Abramovich as a director of the club after the oligarch was sanctioned by the UK government.
 ### [Texas plan to probe trans children's parents halted](https://www.bbc.com/news/world-us-canada-60710227)
 A Texas judge has extended an order to prevent state officials from investigating allegations of so-called "abuse" against parents seeking gender-transitioning care for their children.
+### [India accidentally fires missile into Pakistan](https://www.bbc.com/news/world-asia-india-60711653)
+India says it accidentally fired a missile into Pakistan on Wednesday, blaming the incident on a "technical malfunction" during routine maintenance.
 ### [Day 17 in maps: Russian strikes target new cities](https://www.bbc.com/news/world-europe-60506682)
 Russian troops have expanded their offensive across Ukraine as they continue attempts to encircle and cut off the capital Kyiv.  
