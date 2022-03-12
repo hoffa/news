@@ -7,8 +7,6 @@ The boom of artillery, muffled by heavy snowfall, echoes across the southern Ukr
 Russian President Vladimir Putin has called for foreign volunteers to be able to fight against Ukrainian forces.
 ### ['I woke up to the warmest hug and realised it was war'](https://www.bbc.com/news/technology-60684120)
 Olha Svyripa was woken up at 5.30am on 24 February to what she described as "the warmest hug I ever had from my husband".
-### [Turning Ukraine's capital into a fortress](https://www.bbc.com/news/world-europe-60714515)
-When the Russian offensive started, as sirens sounded in Kyiv for the first time, some people here feared that the city might fall by the afternoon. 
 ### [Spam website set up to reach millions of Russians](https://www.bbc.com/news/technology-60697261)
 A Norwegian computer expert has created a website enabling anyone to send an email about the war in Ukraine to up to 150 Russian email addresses at a time, so that Russian people have a chance to hear the truth their government is hiding.
 ### [Disney apologises for 'silence' on new sex-ed bill](https://www.bbc.com/news/world-us-canada-60714063)
@@ -17,5 +15,7 @@ Walt Disney's CEO has apologised for his "painful silence" on a Florida sex educ
 India says it accidentally fired a missile into Pakistan on Wednesday, blaming the incident on a "technical malfunction" during routine maintenance.
 ### [Texas plan to probe trans children's parents halted](https://www.bbc.com/news/world-us-canada-60710227)
 A Texas judge has extended an order to prevent state officials from investigating allegations of so-called "abuse" against parents seeking gender-transitioning care for their children.
+### [Turning Ukraine's capital into a fortress](https://www.bbc.com/news/world-europe-60714515)
+When the Russian offensive started, as sirens sounded in Kyiv for the first time, some people here feared that the city might fall by the afternoon. 
 ### [Mystery drone from Ukraine war crashes in Croatia](https://www.bbc.com/news/world-europe-60709952)
 People in Croatia's capital Zagreb were rudely awakened to the Ukraine conflict when a military drone crashed in the city late last night.
