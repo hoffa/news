@@ -7,10 +7,10 @@ Social media channels and private messaging groups are being used in Russia to r
 Residents in the Ukrainian city of Melitopol have come out to protest against the alleged abduction of the mayor by Russian forces.
 ### [Ukraine's capital changes into a fortress](https://www.bbc.com/news/world-europe-60714515)
 When the Russian offensive started, as sirens sounded in Kyiv for the first time, some people here feared that the city might fall by the afternoon. 
-### [Lviv protects its priceless art from bomb threats](https://www.bbc.com/news/world-europe-60707531)
-In one room of the National Museum of Lviv, an enormous scaffold is bare. In another, brackets hang loosely from the walls. Plinths sit empty along the corridors and wooden pallets and cardboard boxes are strewn on the floors. The staff used whatever they could to pack away the museum's priceless artefacts in a hurry.
 ### [Disney apologises for 'silence' on new sex-ed bill](https://www.bbc.com/news/world-us-canada-60714063)
 Walt Disney's CEO has apologised for his "painful silence" on a Florida sex education bill critics warn will isolate LGBT youth.
+### [Lviv protects its priceless art from bomb threats](https://www.bbc.com/news/world-europe-60707531)
+In one room of the National Museum of Lviv, an enormous scaffold is bare. In another, brackets hang loosely from the walls. Plinths sit empty along the corridors and wooden pallets and cardboard boxes are strewn on the floors. The staff used whatever they could to pack away the museum's priceless artefacts in a hurry.
 ### ['We are winning this fight, but not this war'](https://www.bbc.com/news/world-europe-60711659)
 The boom of artillery, muffled by heavy snowfall, echoes across the southern Ukrainian city of Mykolaiv, triggering a series of air raid sirens. 
 ### [Texas plan to probe trans children's parents halted](https://www.bbc.com/news/world-us-canada-60710227)
