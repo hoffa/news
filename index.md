@@ -15,7 +15,7 @@ Just over a week ago I met a group of young men who had volunteered at a centre 
 Smiling down the camera from his parent's home in southern India, with his dog Leo on his lap, it's hard to believe that only a few days have passed since Vishnu thought he was going to die as he sheltered from Russian shelling in the Ukrainian city of Vinnytsia.
 ### [Stars prepare to return to in-person Bafta Awards](https://www.bbc.com/news/entertainment-arts-60675263)
 The Bafta Film Awards will take place later, marking a return to a full-capacity in-person ceremony.
-### [What happened on day 17 of the Russia-Ukraine war](https://www.bbc.com/news/world-europe-60723567)
-On day 17 of Russia's invasion of Ukraine, civilians made fresh attempts to flee besieged cities amid heavy shelling by Russian forces, while intense fighting was reported on the outskirts of the capital Kyiv. 
+### [Day 17 in maps: Russian strikes target new cities](https://www.bbc.com/news/world-europe-60506682)
+Russian troops have expanded their offensive across Ukraine as they continue attempts to encircle and cut off the capital Kyiv.
 ### [UK offers £350 a month to Ukrainian refugee hosts](https://www.bbc.com/news/uk-60724111)
 Households in the UK will be offered £350 a month to open their homes to people fleeing the war in Ukraine.
