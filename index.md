@@ -5,6 +5,8 @@ Outside Georgia's parliament, Yevgeny Lyamin heaves boxes of clothes and food pa
 The US, UK and EU have put in place unprecedented financial penalties on Russia over its invasion of Ukraine, and hundreds of international companies have pulled out of the country.
 ### [Rabbi investigated over Abramovich citizenship](https://www.bbc.com/news/world-europe-60724509)
 A rabbi who helped Russian billionaire Roman Abramovich obtain his Portuguese citizenship has been told he cannot leave Portugal and must present himself to authorities when required.
+### [Osaka in tears after being heckled](https://www.bbc.com/sport/tennis/60726023)
+Former world number one Naomi Osaka was brought to tears by a heckler during her 6-0 6-4 defeat by Veronika Kudermetova at Indian Wells.
 ### [Saudis execute 81 men in one day](https://www.bbc.com/news/world-middle-east-60722057)
 Saudi Arabia says it executed 81 men on Saturday - more than during the whole of last year.
 ### ['No one wants to die' - Ukraine's teenage soldiers](https://www.bbc.com/news/world-europe-60724560)
@@ -15,7 +17,5 @@ Smiling down the camera from his parent's home in southern India, with his dog L
 The Bafta Film Awards will take place later, marking a return to a full-capacity in-person ceremony.
 ### [What happened on day 17 of the Russia-Ukraine war](https://www.bbc.com/news/world-europe-60723567)
 On day 17 of Russia's invasion of Ukraine, civilians made fresh attempts to flee besieged cities amid heavy shelling by Russian forces, while intense fighting was reported on the outskirts of the capital Kyiv. 
-### [Osaka in tears after being heckled](https://www.bbc.com/sport/tennis/60726023)
-Former world number one Naomi Osaka was brought to tears by a heckler during her 6-0 6-4 defeat by Veronika Kudermetova at Indian Wells.
-### [How mercenaries for Ukraine are being recruited in Russia](https://www.bbc.com/news/world-europe-60711211)
-Social media channels and private messaging groups are being used in Russia to recruit a new brigade of mercenaries to fight in Ukraine alongside the army, the BBC has learned. 
+### [UK offers £350 a month to Ukrainian refugee hosts](https://www.bbc.com/news/uk-60724111)
+Households in the UK will be offered £350 a month to open their homes to people fleeing the war in Ukraine.
