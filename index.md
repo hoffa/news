@@ -7,15 +7,15 @@ The US, UK and EU have put in place unprecedented financial penalties on Russia 
 Former world number one Naomi Osaka was brought to tears by a heckler during her 6-0 6-4 defeat by Veronika Kudermetova at Indian Wells.
 ### [Rabbi investigated over Abramovich citizenship](https://www.bbc.com/news/world-europe-60724509)
 A rabbi who helped Russian billionaire Roman Abramovich obtain his Portuguese citizenship has been told he cannot leave Portugal and must present himself to authorities when required.
-### [Ukraine accuses Russia of abducting second mayor](https://www.bbc.com/news/world-europe-60725962)
-Ukraine's government has accused the Russian military of abducting another mayor in an area that it has captured.
+### ['Sky turned red' as missiles hit Lviv military base](https://www.bbc.com/news/world-europe-60728208)
+A witness to a deadly Russian attack on a Ukrainian military base has told how "the sky turned red" as missiles struck the site near the Polish border.
 ### [Missiles from Iran hit Iraqi city of Irbil - US](https://www.bbc.com/news/world-middle-east-60725959)
 Several ballistic missiles launched from Iran have struck the northern Iraqi city of Irbil, US officials say.
+### [Ukraine accuses Russia of abducting second mayor](https://www.bbc.com/news/world-europe-60725962)
+Ukraine's government has accused the Russian military of abducting another mayor in an area that it has captured.
 ### [Saudis execute 81 men in one day](https://www.bbc.com/news/world-middle-east-60722057)
 Saudi Arabia says it executed 81 men on Saturday - more than during the whole of last year.
+### [Uni to uniform - 3-day training for teens to fight](https://www.bbc.com/news/world-europe-60724560)
+Just over a week ago I met a group of young men who had volunteered at a centre in Kyiv to fight for Ukraine. 
 ### ['The kindness of Ukrainians saved my life'](https://www.bbc.com/news/world-asia-india-60650018)
 Smiling down the camera from his parent's home in southern India, with his dog Leo on his lap, it's hard to believe that only a few days have passed since Vishnu thought he was going to die as he sheltered from Russian shelling in the Ukrainian city of Vinnytsia.
-### [Stars prepare to return to in-person Bafta Awards](https://www.bbc.com/news/entertainment-arts-60675263)
-The Bafta Film Awards will take place later, marking a return to a full-capacity in-person ceremony.
-### [Uni to uniform - Ukraine's teenage army recruits](https://www.bbc.com/news/world-europe-60724560)
-Just over a week ago I met a group of young men who had volunteered at a centre in Kyiv to fight for Ukraine. 
