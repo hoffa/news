@@ -7,15 +7,15 @@ Two young indigenous boys rescued after almost four weeks lost in Brazil's Amazo
 A 13-year-old was behind the wheel of a pickup truck that slammed head on into a van carrying university athletes in a collision that killed nine on Tuesday. 
 ### [Deepfake presidents used in Russia-Ukraine war](https://www.bbc.com/news/technology-60780142)
 A deepfake video shared on Twitter, appearing to show Russian President Vladimir Putin declaring peace, has resurfaced.
-### [What weapons will US give Ukraine?](https://www.bbc.com/news/world-us-canada-60774098)
-The burnt-up wreckage of a Russian tank lies in the dirt, while in an accompanying photo next to it, a Ukrainian soldier carries the armaments said to have caused the destruction.
 ### [Elizabeth Holmes' former partner goes on trial](https://www.bbc.com/news/technology-60716448)
 When Elizabeth Holmes dropped out of college at 19 to found her company, Theranos, she needed someone with more experience. Based on an idea that hundreds of diseases could be diagnosed with just a few drops of blood, her venture had begun to attract interest, and investment.
+### [What weapons will US give Ukraine?](https://www.bbc.com/news/world-us-canada-60774098)
+The burnt-up wreckage of a Russian tank lies in the dirt, while in an accompanying photo next to it, a Ukrainian soldier carries the armaments said to have caused the destruction.
 ### [Airline giant Delta warns ticket prices will rise](https://www.bbc.com/news/business-60781625)
 Higher oil prices are set to lead to a 10% increase in air fares, according to the boss of one of the world's biggest airlines.
-### [On the front line as Ukraine's army stands firm](https://www.bbc.com/news/world-europe-60785679)
-Ukraine's second city Kharkiv has been the constant target of Russian attacks for three weeks. The BBC's Quentin Sommerville and cameraman Darren Conway report from the front line where Ukrainian troops continue to repel the enemy advance.
 ### [Burger King Russia partner 'refuses' to shut shops](https://www.bbc.com/news/business-60789772)
 The owner of Burger King said the operator of its 800 stores in Russia has "refused" to close the sites despite demands to suspend trading.  
 ### [How a jetpack led to a jet-powered flying motorbike](https://www.bbc.com/news/business-60333565)
 At around the age of 12, David Mayman tried to build a helicopter out of fence posts and an old lawn mower.
+### [On the front line as Ukraine's army stands firm](https://www.bbc.com/news/world-europe-60785679)
+Ukraine's second city Kharkiv has been the constant target of Russian attacks for three weeks. The BBC's Quentin Sommerville and cameraman Darren Conway report from the front line where Ukrainian troops continue to repel the enemy advance.
