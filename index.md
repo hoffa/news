@@ -13,9 +13,9 @@ Two young indigenous boys rescued after almost four weeks lost in Brazil's Amazo
 A 13-year-old was behind the wheel of a pickup truck that slammed head on into a van carrying university athletes in a collision that killed nine on Tuesday. 
 ### [In maps: Russia 'tightening noose' around Mariupol](https://www.bbc.com/news/world-europe-60506682)
 Russian advances have ground to a halt in many areas, with Ukrainian forces holding out in several cities and also launching effective counterattacks. 
+### [UK seeing rising number of Covid infections](https://www.bbc.com/news/health-60792087)
+Covid cases have continued to rise in the UK, with an estimated one in every 20 people infected, figures from the Office for National Statistic suggest. 
+### [Ukrainian ballet star dies after Russian shelling](https://www.bbc.com/news/entertainment-arts-60794419)
+Leading Ukrainian ballet dancer Artem Datsyshyn has died, almost three weeks after being injured in Russian shelling in Kyiv, according to reports.
 ### [Elegant Odesa is transformed by efforts to deter Russians](https://www.bbc.com/news/world-europe-60785791)
 While Russian advances across Ukraine have slowed in recent days, people in the strategic port city of Odesa are preparing for an expected and imminent Russian attack.
-### [Elizabeth Holmes' former partner goes on trial](https://www.bbc.com/news/technology-60716448)
-When Elizabeth Holmes dropped out of college at 19 to found her company, Theranos, she needed someone with more experience. Based on an idea that hundreds of diseases could be diagnosed with just a few drops of blood, her venture had begun to attract interest, and investment.
-### [Russia destroys aircraft plant in western Ukraine](https://www.bbc.com/news/world-europe-60791471)
-Russian missiles have hit an aircraft repair plant near Lviv in western Ukraine, a city that has become a safe haven for people fleeing the war.
