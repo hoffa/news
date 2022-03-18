@@ -15,7 +15,7 @@ When Elizabeth Holmes dropped out of college at 19 to found her company, Therano
 Higher oil prices are set to lead to a 10% increase in air fares, according to the boss of one of the world's biggest airlines.
 ### [On the front line as Ukraine's army stands firm](https://www.bbc.com/news/world-europe-60785679)
 Ukraine's second city Kharkiv has been the constant target of Russian attacks for three weeks. The BBC's Quentin Sommerville and cameraman Darren Conway report from the front line where Ukrainian troops continue to repel the enemy advance.
+### [Burger King Russia partner 'refuses' to shut shops](https://www.bbc.com/news/business-60789772)
+The owner of Burger King said the operator of its 800 stores in Russia has "refused" to close the sites despite demands to suspend trading.  
 ### [How a jetpack led to a jet-powered flying motorbike](https://www.bbc.com/news/business-60333565)
 At around the age of 12, David Mayman tried to build a helicopter out of fence posts and an old lawn mower.
-### [Kanye West suspended from Instagram for bullying](https://www.bbc.com/news/newsbeat-60777185)
-Kanye West has been suspended from Instagram for 24 hours after using a racial slur in reference to comedian Trevor Noah.
