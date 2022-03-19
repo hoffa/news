@@ -13,9 +13,9 @@ Efforts to rescue hundreds of people trapped in the basement of a bombed theatre
  America is learning the art of humility. That's a good thing for the rest of the world. 
 ### [Canada police force in racism row over boy's death](https://www.bbc.com/news/world-us-canada-60797948)
 A Canada police force has been accused of ignoring an indigenous mother's warning about leaving her toddler with the man now charged with his death.
-### [Seven charged over armed heist on set of Lupin](https://www.bbc.com/news/world-europe-60804051)
-Seven people have been charged after an armed robbery was staged last month on the French film set of hit Netflix series 'Lupin'.
 ### [What have been Russia's military mistakes?](https://www.bbc.com/news/world-60798352)
 Russia has one of the largest and most powerful armed forces in the world, but that has not been apparent in its initial invasion of Ukraine. Many military analysts in the West have been surprised by its performance on the battlefield so far, with one describing it as "dismal".  
-### [US military plane crashes in Norway](https://www.bbc.com/news/world-us-canada-60804943)
-A US military plane has crashed in northern Norway, killing all four passengers on board.
+### [Seven charged over armed heist on set of Lupin](https://www.bbc.com/news/world-europe-60804051)
+Seven people have been charged after an armed robbery was staged last month on the French film set of hit Netflix series 'Lupin'.
+### [UK holds plane with possible Russian ties - Shapps](https://www.bbc.com/news/uk-60808690)
+The UK has grounded another plane as authorities investigate its "possible Russian links", the transport secretary has said.
