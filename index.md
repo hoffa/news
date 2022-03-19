@@ -1,6 +1,6 @@
 # News
 ### [Russians arrive in space wearing Ukrainian colours](https://www.bbc.com/news/world-europe-60804949)
-Russian cosmonauts have arrived at the International Space Station wearing Ukrainian colours, in what appears to be a statement opposing the invasion.
+Russian cosmonauts have arrived at the International Space Station wearing Ukrainian colours, in what may be a statement opposing the invasion.
 ### [Putin has redrawn the world - but not the way he wanted](https://www.bbc.com/news/world-europe-60767454)
 Vladimir's Putin's invasion of Ukraine has changed the world. We are living in new and more dangerous times - the post-Cold War era that began with the fall of the Berlin Wall is over.
 ### [Scores of soldiers feared dead after barracks hit](https://www.bbc.com/news/world-europe-60807636)
