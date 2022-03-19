@@ -5,10 +5,10 @@ Russian cosmonauts have arrived at the International Space Station wearing Ukrai
 Vladimir's Putin's invasion of Ukraine has changed the world. We are living in new and more dangerous times - the post-Cold War era that began with the fall of the Berlin Wall is over.
 ### [Katty Kay: America is learning the art of humility](https://www.bbc.com/news/world-us-canada-60799659)
  America is learning the art of humility. That's a good thing for the rest of the world. 
-### [What have been Russia's military mistakes?](https://www.bbc.com/news/world-60798352)
-Russia has one of the largest and most powerful armed forces in the world, but that has not been apparent in its initial invasion of Ukraine. Many military analysts in the West have been surprised by its performance on the battlefield so far, with one describing it as "dismal".  
 ### [Canada police force in racism row over boy's death](https://www.bbc.com/news/world-us-canada-60797948)
 A Canada police force has been accused of ignoring an indigenous mother's warning about leaving her toddler with the man now charged with his death.
+### [What have been Russia's military mistakes?](https://www.bbc.com/news/world-60798352)
+Russia has one of the largest and most powerful armed forces in the world, but that has not been apparent in its initial invasion of Ukraine. Many military analysts in the West have been surprised by its performance on the battlefield so far, with one describing it as "dismal".  
 ### [Arnie's anti-war film trends on Russian social media](https://www.bbc.com/news/world-us-canada-60794809)
 A video address by Hollywood actor Arnold Schwarzenegger to the Russian people was trending on Russian Twitter on Friday and has sparked reaction. 
 ### [Seven charged over armed heist on set of Lupin](https://www.bbc.com/news/world-europe-60804051)
