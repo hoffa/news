@@ -11,11 +11,11 @@ Russia's military has fired a hypersonic ballistic missile and destroyed a big u
 Scores of Ukrainian soldiers are feared to have been killed after an attack on a military barracks on Friday.
 ### [Katty Kay: America is learning the art of humility](https://www.bbc.com/news/world-us-canada-60799659)
  America is learning the art of humility. That's a good thing for the rest of the world. 
+### [Fury after PM compares Ukraine resistance to Brexit](https://www.bbc.com/news/uk-politics-60809454)
+Boris Johnson has been criticised for comparing the struggle of Ukrainians fighting Russia's invasion to people in Britain voting for Brexit.
 ### [Canada police force in racism row over boy's death](https://www.bbc.com/news/world-us-canada-60797948)
 A Canada police force has been accused of ignoring an indigenous mother's warning about leaving her toddler with the man now charged with his death.
 ### [Seven charged over armed heist on set of Lupin](https://www.bbc.com/news/world-europe-60804051)
 Seven people have been charged after an armed robbery was staged last month on the French film set of hit Netflix series 'Lupin'.
 ### [What have been Russia's military mistakes?](https://www.bbc.com/news/world-60798352)
 Russia has one of the largest and most powerful armed forces in the world, but that has not been apparent in its initial invasion of Ukraine. Many military analysts in the West have been surprised by its performance on the battlefield so far, with one describing it as "dismal".  
-### [UK holds plane with possible Russian ties - Shapps](https://www.bbc.com/news/uk-60808690)
-A private jet has been grounded while "possible Russian links" are probed, the transport secretary has said.
