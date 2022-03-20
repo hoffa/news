@@ -11,10 +11,10 @@ Vladimir's Putin's invasion of Ukraine has changed the world. We are living in n
 Russia's military has fired a hypersonic ballistic missile and destroyed a big underground arms depot in western Ukraine, the defence ministry in Moscow has said.
 ### [Russia denies cosmonauts arrived in Ukraine colours](https://www.bbc.com/news/world-europe-60804949)
 Russia's space agency has rejected claims that three Russian cosmonauts boarded the International Space Station wearing Ukrainian colours, in a possible statement against the war.
-### [Scores of soldiers feared dead after barracks hit](https://www.bbc.com/news/world-europe-60807636)
-Scores of Ukrainian soldiers are feared to have been killed after an attack on a military barracks on Friday.
 ### [Anonymous: How hackers are trying to undermine Putin](https://www.bbc.com/news/technology-60784526)
 The Anonymous hacktivist collective has been bombarding Russia with cyber-attacks since declaring "cyber war" on President Vladimir Putin in retaliation for the invasion of Ukraine. Several people operating under its banner spoke to the BBC about their motives, tactics and plans. 
+### [Scores of soldiers feared dead after barracks hit](https://www.bbc.com/news/world-europe-60807636)
+Scores of Ukrainian soldiers are feared to have been killed after an attack on a military barracks on Friday.
 ### [Katty Kay: America is learning the art of humility](https://www.bbc.com/news/world-us-canada-60799659)
  America is learning the art of humility. That's a good thing for the rest of the world. 
 ### [Fury after PM compares Ukraine resistance to Brexit](https://www.bbc.com/news/uk-politics-60809454)
