@@ -9,13 +9,13 @@ The Anonymous hacktivist collective has been bombarding Russia with cyber-attack
 Boris Johnson has been criticised for comparing the struggle of Ukrainians fighting Russia's invasion to people in Britain voting for Brexit.
 ### [Russians are losing their jobs for opposing the war](https://www.bbc.com/news/world-europe-60793446)
 For 28-year-old geography teacher Kamran Manafly, it all began with an Instagram post. 
-### [Four killed after car rams into crowd in Belgium](https://www.bbc.com/news/world-europe-60811591)
-At least four people have been killed after a car rammed into a crowd in southern Belgium.
-### [Russia denies cosmonauts arrived in Ukraine colours](https://www.bbc.com/news/world-europe-60804949)
-Russia's space agency has rejected claims that three Russian cosmonauts boarded the International Space Station wearing Ukrainian colours, in a possible statement against the war.
-### [Woman jailed after fatal YouTube stunt](https://www.bbc.com/news/world-us-canada-43410816)
-A US woman has been sentenced to six months' imprisonment for shooting dead her boyfriend in a botched stunt they hoped would go viral on YouTube.
+### [Six killed after car drives into crowd in Belgium](https://www.bbc.com/news/world-europe-60811591)
+At least six people have been killed after a car drove into a crowd in southern Belgium.
 ### [William and Kate land in Belize for Caribbean tour](https://www.bbc.com/news/uk-60805565)
 The Duke and Duchess of Cambridge have arrived in Belize for their week-long tour of the Caribbean - their first joint overseas trip since the start of the pandemic.
-### [Scores of soldiers feared dead after barracks hit](https://www.bbc.com/news/world-europe-60807636)
-Scores of Ukrainian soldiers are feared to have been killed after an attack on a military barracks on Friday.
+### [Woman jailed after fatal YouTube stunt](https://www.bbc.com/news/world-us-canada-43410816)
+A US woman has been sentenced to six months' imprisonment for shooting dead her boyfriend in a botched stunt they hoped would go viral on YouTube.
+### [Katty Kay: America is learning the art of humility](https://www.bbc.com/news/world-us-canada-60799659)
+ America is learning the art of humility. That's a good thing for the rest of the world. 
+### [Russia denies cosmonauts arrived in Ukraine colours](https://www.bbc.com/news/world-europe-60804949)
+Russia's space agency has rejected claims that three Russian cosmonauts boarded the International Space Station wearing Ukrainian colours, in a possible statement against the war.
