@@ -7,6 +7,10 @@ Seventeen-year-old Robin West is an anomaly among her peers - she doesn't have a
 A few days after Russia's invasion of Ukraine, one of Russia's largest media companies, Russian Media Group (RMG), released a statement explaining why it would no longer be playing certain artists on its popular radio stations or music TV channel. 
 ### [The hunt for Nigerians who can change into cats](https://www.bbc.com/news/world-africa-60749496)
 Armed with a sharp knife, a megaphone and dressed all in black, Gbenga Adewoyin could have passed for a medieval witch hunter, a herbal salesman or an urban preacher as he walked around a market in the south-western Nigerian city of Ibadan. 
+### [Moscow stock market reopens for limited trading](https://www.bbc.com/news/business-60821258)
+The Moscow stock exchange has partially reopened after a nearly month-long suspension over the war in Ukraine.
+### [UN chief: fossil fuel rush due to war is 'madness'](https://www.bbc.com/news/science-environment-60815547)
+The UN Secretary General says the rush to use fossil fuels because of the war in Ukraine is "madness" and threatens global climate targets. 
 ### [The lonely funeral of a young soldier in Ukraine](https://www.bbc.com/news/world-europe-60801586)
 There was no family around Dmytro Kotenko when they put him in the ground. His parents did not hear the gunshots that rang out over his grave. They did not hear the sound of the ribbon tied to the wooden cross above him as it fluttered in the wind. They did not see the rough earth that first landed on his coffin and they did not lay a flower over him when he was completely covered by the earth.
 ### ['I was not supposed to bury my children'](https://www.bbc.com/news/world-europe-60814913)
@@ -15,7 +19,3 @@ In his hospital bed, little Artem stares into space. He clutches a small yellow 
 US Supreme Court Justice Clarence Thomas has been hospitalised with "flu-like" symptoms and will work in absentia for several days.
 ### [William and Kate dance and try chocolate in Belize](https://www.bbc.com/news/uk-60814541)
 The Duke and Duchess of Cambridge have been dancing with locals and sampling chocolate at a cocoa farm as they explored Belize.
-### [Moscow stock market reopens for limited trading](https://www.bbc.com/news/business-60821258)
-The Moscow stock exchange has partially reopened after a nearly month-long suspension over the war in Ukraine.
-### [UN chief: fossil fuel rush due to war is 'madness'](https://www.bbc.com/news/science-environment-60815547)
-The UN Secretary General says the rush to use fossil fuels because of the war in Ukraine is "madness" and threatens global climate targets. 
