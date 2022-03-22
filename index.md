@@ -13,9 +13,9 @@ A number of Apple services experienced outages on Monday, Apple's support page h
 A jailed Corsican nationalist, whose prison assault sparked protests on the French Mediterranean island, has died.
 ### [Not smart but clever? The return of 'dumbphones'](https://www.bbc.com/news/business-60763168)
 Seventeen-year-old Robin West is an anomaly among her peers - she doesn't have a smartphone.
-### [Australia state MP charged with sexual abuse](https://www.bbc.com/news/world-australia-60830935)
-A former minister in Australia's New South Wales (NSW) state government has been charged with sexually abusing a man and a teenage boy.
 ### [Why Mariupol is so important to Russia's plan](https://www.bbc.com/news/world-europe-60825226)
 Mariupol has become the most heavily bombed and damaged city in Ukraine's war with Russia - having suffered the brunt of sustained Russian attacks. It is key to Moscow's military campaign in Ukraine. But why? 
-### [New P&O crew on less than £2 an hour, union claims](https://www.bbc.com/news/business-60821266)
-Indian agency workers hired to replace P&O Ferries crews in Dover are being paid £1.81 an hour, a union claims.
+### [Australia state MP charged with sexual abuse](https://www.bbc.com/news/world-australia-60830935)
+A former minister in Australia's New South Wales (NSW) state government has been charged with sexually abusing a man and a teenage boy.
+### [Terror of Africans in Russian-occupied town](https://www.bbc.com/news/world-africa-60777284)
+About 100 African students are pleading for help to leave the Ukrainian port city of Kherson, more than two weeks after it was captured by Russian forces. 
