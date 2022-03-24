@@ -13,9 +13,9 @@ It is not a surprise when Sean O'Brien tells the BBC that he plans to take one o
 Boris Becker, the six-time Grand Slam tennis champion, offered his wedding ring in a bid to pay off his debts, a court has heard.
 ### [US Capitol riot suspect gets asylum in Belarus](https://www.bbc.com/news/world-us-canada-60843262)
 A California man suspected of taking part in the US Capitol riots last year has been granted asylum in Belarus.
-### [Ukrainian fightback gains ground west of Kyiv](https://www.bbc.com/news/world-europe-60847188)
-Ukrainian troops are counter-attacking Russian forces in some areas of the country, with reports that they have gained ground near the capital, Kyiv.
+### [Julian Assange gets married in Belmarsh prison](https://www.bbc.com/news/uk-60852832)
+Wikileaks founder Julian Assange has married his long-term partner at a high-security prison in London.
 ### [The small town which blocked Russia's big plans](https://www.bbc.com/news/world-europe-60840081)
 It was one of the most decisive battles of the war so far - a ferocious two-day struggle for control of the farming town of Voznesensk and its strategically important bridge. 
-### [Nato to send more troops to eastern Europe](https://www.bbc.com/news/world-europe-60853052)
-Nato is set to approve big increases in the forces deployed on its eastern flank, its secretary-general Jens Stoltenberg has said.
+### [Ukrainian fightback gains ground west of Kyiv](https://www.bbc.com/news/world-europe-60847188)
+Ukrainian troops are counter-attacking Russian forces in some areas of the country, with reports that they have gained ground near the capital, Kyiv.
