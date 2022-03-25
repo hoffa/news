@@ -15,7 +15,7 @@ It is a month since Vladimir Putin's forces invaded Ukraine with nearly 200,000 
 Australia says it would be concerned if China signed a pact that could let it establish a military presence in the Solomon Islands.
 ### [Mass bleaching event hits Great Barrier Reef](https://www.bbc.com/news/world-australia-60870239)
 Australia's Great Barrier Reef is being devastated by another mass bleaching event, officials have confirmed. 
-### [World leaders show united front - Ukraine daily roundup](https://www.bbc.com/news/world-europe-60865088)
-It was a busy day of international diplomacy, with several major summits that saw leaders from around the world displaying solidarity with Ukraine.
+### [N Korea claims successful test of 'monster missile'](https://www.bbc.com/news/world-asia-60860441)
+North Korea has announced that it successfully launched its largest intercontinental ballistic missile (ICBM) in a test on Thursday.
 ### [Italy stunned in World Cup play-offs](https://www.bbc.com/sport/football/60869125)
 European champions Italy will not play in the 2022 World Cup after being stunned by North Macedonia in their play-off in Palermo.
