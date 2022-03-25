@@ -11,10 +11,10 @@ It is a month since Vladimir Putin's forces invaded Ukraine with nearly 200,000 
 Former US President Donald Trump has sued Hillary Clinton and several other Democrats, accusing them of trying to rig the 2016 US presidential election by linking his campaign to Russia.
 ### [World leaders show united front - Ukraine daily roundup](https://www.bbc.com/news/world-europe-60865088)
 It was a busy day of international diplomacy, with several major summits that saw leaders from around the world displaying solidarity with Ukraine.
-### [The 76-year-old artist taking on Putin](https://www.bbc.com/news/world-europe-60866283)
-In her tiny St Petersburg apartment, 76-year-old artist Elena Osipova shows me the anti-war placards she's made. 
 ### [Italy stunned in World Cup play-offs](https://www.bbc.com/sport/football/60869125)
 European champions Italy will not play in the 2022 World Cup after being stunned by North Macedonia in their play-off in Palermo.
+### [The 76-year-old artist taking on Putin](https://www.bbc.com/news/world-europe-60866283)
+In her tiny St Petersburg apartment, 76-year-old artist Elena Osipova shows me the anti-war placards she's made. 
 ### [Russian ship destroyed in occupied port - Ukraine](https://www.bbc.com/news/world-europe-60859337)
 A Russian landing ship has been destroyed and two other vessels have been damaged in the occupied Ukrainian port city of Berdyansk, say Ukrainian officials.
 ### [Netflix boss says top Oscar win would be the dream](https://www.bbc.com/news/entertainment-arts-60848382)
