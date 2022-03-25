@@ -11,11 +11,11 @@ The US and the EU have announced a major deal on liquified natural gas, in an at
 Ukrainians are being arbitrarily detained and subjected to enforced disappearances in Russian-controlled areas, the UN has told the BBC. 
 ### [Is North America's Arctic vulnerable to Russia?](https://www.bbc.com/news/world-us-canada-60837944)
 Fears of body parts lost to frostbite, ferocious winds and freezing temperatures that make aircraft parts brittle and useless are just some of the challenges that retired Canadian colonel Pierre Leblanc has faced in the nearly 10 years he's spent in the Arctic.
-### [Solomons confirm China pact, alarming Australia](https://www.bbc.com/news/world-australia-60870238)
-Solomon Islands has confirmed it is drafting a security deal with China - a move that's triggered alarm in neighbouring Australia and other Western allies in the Indo-Pacific.
-### [Mixed responses to second Bridgerton series](https://www.bbc.com/news/entertainment-arts-60872729)
-The second series of Bridgerton is "a bit tamer" without its star from the first season, Regé-Jean Page, according to TV critics. 
 ### [UK Covid infections climb by a million in a week](https://www.bbc.com/news/health-60872687)
 Covid cases have climbed by a million in a week in the UK, data from the Office for National Statistics reveals.
+### [Mixed responses to second Bridgerton series](https://www.bbc.com/news/entertainment-arts-60872729)
+The second series of Bridgerton is "a bit tamer" without its star from the first season, Regé-Jean Page, according to TV critics. 
+### [Solomons confirm China pact, alarming Australia](https://www.bbc.com/news/world-australia-60870238)
+Solomon Islands has confirmed it is drafting a security deal with China - a move that's triggered alarm in neighbouring Australia and other Western allies in the Indo-Pacific.
 ### [Biden: We'll respond if Russia uses chemical weapons](https://www.bbc.com/news/world-europe-60870771)
 US President Joe Biden has said Nato "would respond" if Russia used chemical weapons in Ukraine.
