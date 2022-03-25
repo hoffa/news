@@ -5,10 +5,10 @@ Ukraine's Prosecutor General Iryna Venediktova has said the country is in the pr
 Ukrainians are being arbitrarily detained and subjected to enforced disappearances in Russian-controlled areas, the UN has told the BBC. 
 ### [Is North America's Arctic vulnerable to Russia?](https://www.bbc.com/news/world-us-canada-60837944)
 Fears of body parts lost to frostbite, ferocious winds and freezing temperatures that make aircraft parts brittle and useless are just some of the challenges that retired Canadian colonel Pierre Leblanc has faced in the nearly 10 years he's spent in the Arctic.
-### [Defiant troops to Russians: 'Go home while you're alive'](https://www.bbc.com/news/world-europe-60860548)
-It is a month since Vladimir Putin's forces invaded Ukraine with nearly 200,000 men. One of the first cities to feel the full force of the invasion was Kharkiv in the north-east. Our correspondent Quentin Sommerville and cameraman Darren Conway have spent time with two fighters who have been at the front line since the very beginning.
 ### [Trump sues Clinton over Russian collusion claims](https://www.bbc.com/news/world-us-canada-60868795)
 Former US President Donald Trump has sued Hillary Clinton and several other Democrats, accusing them of trying to rig the 2016 US presidential election by linking his campaign to Russia.
+### [Defiant troops to Russians: 'Go home while you're alive'](https://www.bbc.com/news/world-europe-60860548)
+It is a month since Vladimir Putin's forces invaded Ukraine with nearly 200,000 men. One of the first cities to feel the full force of the invasion was Kharkiv in the north-east. Our correspondent Quentin Sommerville and cameraman Darren Conway have spent time with two fighters who have been at the front line since the very beginning.
 ### [World leaders show united front - Ukraine daily roundup](https://www.bbc.com/news/world-europe-60865088)
 It was a busy day of international diplomacy, with several major summits that saw leaders from around the world displaying solidarity with Ukraine.
 ### [Italy stunned in World Cup play-offs](https://www.bbc.com/sport/football/60869125)
