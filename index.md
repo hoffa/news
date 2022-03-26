@@ -3,8 +3,6 @@
 Ukraine's defence ministry says another Russian general, Lt Gen Yakov Rezantsev, was killed in a strike near the southern city of Kherson. 
 ### [Red lights and painted arrows fuel fear of Russian agents](https://www.bbc.com/news/world-60879945)
 Suspicion thrives on conflict and after a month of war in Ukraine, the fear that Russian saboteurs may be operating is hardening into a certainty. But how much is fact, backed up by intelligence reports and arrests, and how much is something closer to mass hysteria, fuelled by social media rumours about mysterious lights and signs?
-### [Foo Fighters' drummer Taylor Hawkins dies aged 50](https://www.bbc.com/news/entertainment-arts-60884259)
-The drummer with US rock group Foo Fighters, Taylor Hawkins, has died aged 50, the band have announced.
 ### [Taylor Hawkins, a drummer who 'served the song'](https://www.bbc.com/news/in-pictures-60885675)
 Taylor Hawkins, drummer with one of the world's biggest rock bands, Foo Fighters, has died aged 50.
 ### [Explosions hit western city of Lviv](https://www.bbc.com/news/world-europe-60887974)
@@ -17,5 +15,7 @@ Is the Russian military having to change its plans? Perhaps even reduce the scal
 A US lawmaker could face expulsion from Congress for lying about funding ties to an African billionaire.
 ### [1,000-year-old oaks used to create 'super forest'](https://www.bbc.com/news/science-environment-60617810)
 Planting more trees is one of a combination of solutions to combating climate change, but some trees are far better than others. Which ones though? ​​Scientists have designed an experimental forest in England to work out the best formula for achieving ambitious tree planting targets.
+### [Foo Fighters' drummer Taylor Hawkins dies aged 50](https://www.bbc.com/news/entertainment-arts-60884259)
+The drummer with US rock group Foo Fighters, Taylor Hawkins, has died aged 50, the band have announced.
 ### [Ukrainian band Antytila refused fundraiser slot](https://www.bbc.com/news/uk-england-birmingham-60885635)
 A Ukrainian band who appealed to Ed Sheeran to take part in a benefit concert have been told they cannot feature.
