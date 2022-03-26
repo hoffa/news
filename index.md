@@ -15,7 +15,7 @@ JK Rowling has hit back at Vladimir Putin, after the Russian president cited her
 Private jets owned by a sanctioned Russian oligarch have been detained indefinitely by the British government. 
 ### [Ukrainian band Antytila refused fundraiser slot](https://www.bbc.com/news/uk-england-birmingham-60885635)
 A Ukrainian band who appealed to Ed Sheeran to take part in a benefit concert have been told they cannot feature.
-### [Court hears of violent plot to abduct US governor](https://www.bbc.com/news/world-us-canada-60876858)
-Four men accused of wanting to kidnap Michigan's governor were ready to use machine guns and grenade launchers as part of the plot, a US court has heard.
+### [Could Coda cause an Oscars upset?](https://www.bbc.com/news/entertainment-arts-60825096)
+Statistically, Coda should not be such a strong contender to win best picture at Sunday's Oscars.
 ### [Relationships evolve, William says on Caribbean tour](https://www.bbc.com/news/uk-60884446)
 Any decision Jamaica, Belize and the Bahamas make on their futures will be supported with "pride and respect", the Duke of Cambridge has said.
