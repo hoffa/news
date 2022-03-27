@@ -13,9 +13,9 @@ Ukraine's defence ministry says another Russian general, Lt Gen Yakov Rezantsev,
 US Secretary of State Antony Blinken has denied that the United States has any plans to bring about regime change in Russia or anywhere else. 
 ### [Ukraine war is our war, say British ex-squaddies](https://www.bbc.com/news/world-europe-60886295)
 The road to war for CJ, Elliott and Kieran ran through Facebook, a cheap flight to Poland, and a cold night sleeping outside a railway station.
-### [How the sex trade preys on Ukraine's refugees](https://www.bbc.com/news/world-europe-60891801)
-Five weeks into Russia's brutal invasion of Ukraine, imagine for a moment what it's like to live there now. 
 ### [Gang murders prompt El Salvador state of emergency](https://www.bbc.com/news/world-latin-america-60893048)
 El Salvador's parliament has approved a state of emergency after the Central American country recorded dozens of gang-related murders in a single day.
+### [How the sex trade preys on Ukraine's refugees](https://www.bbc.com/news/world-europe-60891801)
+Five weeks into Russia's brutal invasion of Ukraine, imagine for a moment what it's like to live there now. 
 ### [Soul-searching in Sweden over school stabbings](https://www.bbc.com/news/world-europe-60867754)
 A string of violent attacks at schools in Sweden has a nation not used to such tragedies now looking for answers.
