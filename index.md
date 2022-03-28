@@ -9,13 +9,13 @@ Russian opposition politician Boris Nemtsov was shadowed by an agent linked to a
 After last year's Oscars red carpet was somewhat limited thanks to Covid-19, the event was back to being the usual full-on fashion bonanza as Hollywood stars returned in their droves.
 ### [How the feel-good film Coda caused an Oscars upset](https://www.bbc.com/news/entertainment-arts-60825096)
 Statistically, Coda should not have been a strong contender to win best picture at the Oscars.
-### [Oil prices fall after Shanghai starts lockdown](https://www.bbc.com/news/business-60896794)
-Global oil prices have fallen as China starts to implement a city-wide lockdown in Shanghai, an important financial and manufacturing hub. 
-### [Why Biden's off-script remarks are so dangerous](https://www.bbc.com/news/world-us-canada-60895392)
-Over the past week, US President Joe Biden has made a series of unscripted remarks that have upped the temperature of US-Russia relations to near boiling point. 
 ### [Gunmen kill 19 at Mexican cockfighting pit](https://www.bbc.com/news/world-latin-america-60900854)
 At least 19 people have been killed in an armed attack in the state of Michoacán, in western Mexico, officials say.
+### [Oil prices fall after Shanghai starts lockdown](https://www.bbc.com/news/business-60896794)
+Global oil prices have fallen as China starts to implement a city-wide lockdown in Shanghai, an important financial and manufacturing hub. 
 ### [Beatings, forced abortions: Life in a N Korea prison](https://www.bbc.com/news/world-asia-60870739)
 After crawling into her cell, Lee Young-joo was ordered to sit cross-legged with her hands on her knees. 
-### [Israel on alert after second deadly attack in days](https://www.bbc.com/news/world-middle-east-60895393)
-Two police officers have been killed in an attack by two Israeli Arab gunmen in the northern Israeli city of Hadera. 
+### [Why Biden's off-script remarks are so dangerous](https://www.bbc.com/news/world-us-canada-60895392)
+Over the past week, US President Joe Biden has made a series of unscripted remarks that have upped the temperature of US-Russia relations to near boiling point. 
+### [Doorstep threats and abuse hit anti-war Russians](https://www.bbc.com/news/world-europe-60886147)
+Russian activists and journalists speaking out against their country's so-called "special military operation" in Ukraine have had their homes vandalised by unknown pro-Kremlin figures.
