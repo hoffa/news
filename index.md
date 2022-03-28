@@ -15,7 +15,7 @@ Ukraine's president has said his government is prepared to discuss adopting a ne
 Statistically, Coda should not have been a strong contender to win best picture at the Oscars.
 ### [Gunmen kill 19 at Mexican cockfighting pit](https://www.bbc.com/news/world-latin-america-60900854)
 At least 19 people have been killed in an armed attack in the state of Michoacán, in western Mexico, officials say.
-### [Oil prices fall after Shanghai starts lockdown](https://www.bbc.com/news/business-60896794)
-Global oil prices have fallen as China starts to implement a city-wide lockdown in Shanghai, an important financial and manufacturing hub. 
 ### [Beatings, forced abortions: Life in a N Korea prison](https://www.bbc.com/news/world-asia-60870739)
 After crawling into her cell, Lee Young-joo was ordered to sit cross-legged with her hands on her knees. 
+### [Oil prices fall after Shanghai starts lockdown](https://www.bbc.com/news/business-60896794)
+Global oil prices have fallen as China starts to implement a city-wide lockdown in Shanghai, an important financial and manufacturing hub. 
