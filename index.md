@@ -11,11 +11,11 @@ Global oil prices have fallen as China starts to implement a city-wide lockdown 
 Over the past week, US President Joe Biden has made a series of unscripted remarks that have upped the temperature of US-Russia relations to near boiling point. 
 ### [Beatings, forced abortions: Life in a N Korea prison](https://www.bbc.com/news/world-asia-60870739)
 After crawling into her cell, Lee Young-joo was ordered to sit cross-legged with her hands on her knees. 
+### [Gunmen kill 19 at Mexican cockfighting pit](https://www.bbc.com/news/world-latin-america-60900854)
+At least 19 people have been killed in an armed attack in the state of Michoacán, in western Mexico, officials say.
 ### [Israel on alert after second deadly attack in days](https://www.bbc.com/news/world-middle-east-60895393)
 Two police officers have been killed in an attack by two Israeli Arab gunmen in the northern Israeli city of Hadera. 
-### [Doorstep threats and abuse hit anti-war Russians](https://www.bbc.com/news/world-europe-60886147)
-Russian activists and journalists speaking out against their country's so-called "special military operation" in Ukraine have had their homes vandalised by unknown pro-Kremlin figures.
-### [Thousands of Mariupol civilians taken to Russia](https://www.bbc.com/news/world-europe-60894142)
-Ukraine has accused Russia of forcibly relocating thousands of civilians from Mariupol, the strategic port city devastated by Russian shelling.
 ### [Canada pledges to help states stop using Russian oil](https://www.bbc.com/news/business-60879685)
 Canada says it can provide more oil, gas and uranium to help solve the global energy crisis.
+### [Doorstep threats and abuse hit anti-war Russians](https://www.bbc.com/news/world-europe-60886147)
+Russian activists and journalists speaking out against their country's so-called "special military operation" in Ukraine have had their homes vandalised by unknown pro-Kremlin figures.
