@@ -13,9 +13,9 @@ Over the past week, US President Joe Biden has made a series of unscripted remar
 After crawling into her cell, Lee Young-joo was ordered to sit cross-legged with her hands on her knees. 
 ### [Doorstep threats and abuse hit anti-war Russians](https://www.bbc.com/news/world-europe-60886147)
 Russian activists and journalists speaking out against their country's so-called "special military operation" in Ukraine have had their homes vandalised by unknown pro-Kremlin figures.
-### [Two police officers shot dead in Israel gun attack](https://www.bbc.com/news/world-middle-east-60895393)
-Two police officers have been shot dead in an attack in the northern Israeli city of Hadera. 
 ### [Canada pledges to help states stop using Russian oil](https://www.bbc.com/news/business-60879685)
 Canada says it can provide more oil, gas and uranium to help solve the global energy crisis.
+### [Oscars 2022: All the winners and nominees](https://www.bbc.com/news/entertainment-arts-60290065)
+This year's Oscars have been handed out in Los Angeles, honouring the movie industry's finest from the past 12 months. Here is the list of winners and all the nominees at the 94th Academy Awards.
 ### [Thousands of Mariupol civilians taken to Russia](https://www.bbc.com/news/world-europe-60894142)
 Ukraine has accused Russia of forcibly relocating thousands of civilians from Mariupol, the strategic port city devastated by Russian shelling.
