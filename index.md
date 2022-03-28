@@ -1,14 +1,14 @@
 # News
 ### [Oscars condemns Will Smith slap and launches review](https://www.bbc.com/news/entertainment-arts-60908869)
-The Oscars film academy has said it "condemns" Will Smith's slapping of Chris Rock at the ceremony, and has launched a formal review of the incident.
+The Oscars film academy has condemned Will Smith for slapping Chris Rock at Sunday's ceremony, and has launched a formal review of the incident.
 ### [Abramovich suffered suspected poisoning at talks](https://www.bbc.com/news/world-europe-60904676)
-Russian billionaire Roman Abramovich suffered symptoms of suspected poisoning at talks in Kyiv earlier this month, sources close to him say.
-### [Why did Will Smith hit Chris Rock?](https://www.bbc.com/news/entertainment-arts-60896604)
-After years of declining viewing figures, the Academy were desperate for more people to watch the 2022 Oscars.
+Russian billionaire Roman Abramovich suffered symptoms of suspected poisoning at talks on the Ukraine-Belarus border earlier this month, sources close to him say.
 ### [Oscar winner Will Smith hits Chris Rock on stage](https://www.bbc.com/news/entertainment-arts-60897004)
 Will Smith slapped Chris Rock in the face on stage at the Oscars after the comic made a joke about the actor's wife Jada Pinkett Smith.
 ### [Boris Becker reveals bankruptcy embarrassment](https://www.bbc.com/news/uk-60904392)
 Ex-tennis star Boris Becker has spoken of his shock and embarrassment at being declared bankrupt, as a trial into his alleged failure to declare assets continues.
+### [Why did Will Smith hit Chris Rock?](https://www.bbc.com/news/entertainment-arts-60896604)
+After years of declining viewing figures, the Academy were desperate for more people to watch the 2022 Oscars.
 ### [Luxury Swiss watches 'seized' in Russia](https://www.bbc.com/news/world-europe-60900694)
 Russian officials have reportedly confiscated millions of dollars worth of luxury Audemars Piguet watches.
 ### [Secret hit squad linked to murdered Putin rival](https://www.bbc.com/news/world-europe-60878663)
