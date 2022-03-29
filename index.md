@@ -1,18 +1,18 @@
 # News
 ### [What Will Smith's slap says about him - and us](https://www.bbc.com/news/world-us-canada-60909449)
 Almost four decades ago it was "one little fight" that landed the Fresh Prince in trouble and saw the fictional Will moving to live with his auntie and uncle in Bel Air.  
-### [Will Smith apologises to Chris Rock after slap](https://www.bbc.com/news/entertainment-arts-60909487)
-Will Smith has apologised to Chris Rock after he slapped him at the Oscars, saying his behaviour was "unacceptable and inexcusable".
-### ['Odesa is coming alive - the fear is going away'](https://www.bbc.com/news/world-europe-60901032)
-Amid the whining air raid sirens, the checkpoints, neighbourhood patrols, and enduring fears of Russian attacks - from the sea, air, or land - the historic and cosmopolitan Ukrainian resort city of Odesa is gently trying to reconnect with its famously relaxed holiday spirit, as if embracing it were a form of defiance against the Kremlin. 
-### [Roman Abramovich appears at Istanbul peace talks](https://www.bbc.com/news/world-europe-60912474)
-Russian billionaire Roman Abramovich has appeared at peace negotiations between Russia and Ukraine in Turkey.
-### [UK seizes first superyacht in British waters](https://www.bbc.com/news/business-60912754)
-The UK has seized its first superyacht in British waters as part of sanctions against Russia.
 ### [Does video show Russian prisoners being shot?](https://www.bbc.com/news/60907259)
 Ukrainian authorities are investigating video footage which has been claimed to show Ukrainian soldiers shooting Russian prisoners of war in the legs. 
+### [Roman Abramovich appears at Istanbul peace talks](https://www.bbc.com/news/world-europe-60912474)
+Russian billionaire Roman Abramovich has appeared at peace negotiations between Russia and Ukraine in Turkey.
+### [Will Smith apologises to Chris Rock after slap](https://www.bbc.com/news/entertainment-arts-60909487)
+Will Smith has apologised to Chris Rock after he slapped him at the Oscars, saying his behaviour was "unacceptable and inexcusable".
+### [UK seizes first superyacht in British waters](https://www.bbc.com/news/business-60912754)
+The UK has seized its first superyacht in British waters as part of sanctions against Russia.
+### ['Odesa is coming alive - the fear is going away'](https://www.bbc.com/news/world-europe-60901032)
+Amid the whining air raid sirens, the checkpoints, neighbourhood patrols, and enduring fears of Russian attacks - from the sea, air, or land - the historic and cosmopolitan Ukrainian resort city of Odesa is gently trying to reconnect with its famously relaxed holiday spirit, as if embracing it were a form of defiance against the Kremlin. 
 ### [Queen and family celebrate 'remarkable' Philip](https://www.bbc.com/news/uk-60902088)
-The Queen has joined family members to celebrate the life of the Duke of Edinburgh in a memorial service that noted his devotion to duty.
+The Queen has joined her family to celebrate the life of the Duke of Edinburgh in a memorial service.
 ### [Decathlon backtracks on Russia after boycott calls](https://www.bbc.com/news/business-60912746)
 French sportswear retailer Decathlon has backtracked and suspended its activities in Russia following criticism of its decision to stay. 
 ### [The former Amazon worker who could make history](https://www.bbc.com/news/business-60825216)
