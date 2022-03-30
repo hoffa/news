@@ -9,13 +9,13 @@ The governor of Ukraine's Chernihiv region says there is no let-up in attacks by
 Russia says it doesn't target civilians - the buildings in which they live and work, or the people themselves.  
 ### [Panic buying in divided Shanghai under lockdown](https://www.bbc.com/news/world-asia-china-60912846)
 Residents in Shanghai are scrambling to stock up on supplies while thousands quarantine in offices, as a lockdown rolls out in the divided city.
-### [Does video show Russian prisoners being shot?](https://www.bbc.com/news/60907259)
-Ukrainian authorities are investigating video footage which has been claimed to show Ukrainian soldiers shooting Russian prisoners of war in the legs. 
 ### [Germany warns on gas supply over Russia payment row](https://www.bbc.com/news/business-60925016)
 Germany has declared an "early warning" over possible gas supply disruption amid a payments stand-off with Russia.
+### [Does video show Russian prisoners being shot?](https://www.bbc.com/news/60907259)
+Ukrainian authorities are investigating video footage which has been claimed to show Ukrainian soldiers shooting Russian prisoners of war in the legs. 
 ### [Top UK judges resign from Hong Kong court](https://www.bbc.com/news/world-asia-60926831)
 The UK has announced that two of its Supreme Court judges will no longer be sitting on Hong Kong's top court.
-### [Trump's 6 January call logs show seven-hour gap](https://www.bbc.com/news/world-us-canada-60799663)
-Official White House logs from 6 January, 2021 - the day the US Capitol was breached by a mob of Donald Trump's supporters - show a seven hour and 37-minute gap in presidential phone activity while the assault was at its height.
 ### [Dyson headphones come with air vacuum for mouth](https://www.bbc.com/news/technology-60927032)
 Dyson has taken its first step into wearable technology, with an eye-catching pair of over-ear headphones that come with an air-purifying mouth visor.
+### [Five killed in latest deadly attack in Israel](https://www.bbc.com/news/world-middle-east-60902330)
+Five people have been shot dead by a Palestinian gunman in a suburb of the Israeli city of Tel Aviv, in the third deadly attack of its kind in a week.
