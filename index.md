@@ -3,10 +3,10 @@
 Chris Rock has made his first public appearance since Will Smith slapped him during Sunday night's Oscars ceremony. 
 ### ['Most Russian troops' leaving Chernobyl](https://www.bbc.com/news/world-europe-60945666)
 Many of the Russian troops occupying the former nuclear power plant at Chernobyl have left, Ukraine's state nuclear company says.
-### [Russia threatens gas cuts if not paid in roubles](https://www.bbc.com/news/business-60945248)
-Russia has told "unfriendly" foreign countries they must start paying for gas in roubles or it will cut supplies.
 ### [French intelligence chief fired over war failings](https://www.bbc.com/news/world-europe-60938538)
 The head of French military intelligence, Gen Eric Vidaud, is losing his job after failing to predict Russia's war in Ukraine, reports say.
+### [Russia threatens gas cuts if not paid in roubles](https://www.bbc.com/news/business-60945248)
+Russia has told "unfriendly" foreign countries they must start paying for gas in roubles or it will cut supplies.
 ### [I know how Will Smith felt at Oscars, says Sunak](https://www.bbc.com/news/uk-politics-60941902)
 Rishi Sunak has said he finds it "very upsetting" that his wife has faced criticism over shares she owns in a tech company operating in Russia.
 ### [Why are so many people catching Covid again?](https://www.bbc.com/news/health-60913637)
