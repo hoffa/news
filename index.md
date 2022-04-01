@@ -15,7 +15,7 @@ Five foetuses have been discovered in a Washington home reportedly belonging to 
 Canada's top court has imposed a C$9.1m ($7.3m; £5.5m) fine on a man behind one of the country's stickiest crimes - the theft of 3,000 tonnes of maple syrup.
 ### [Ukraine round-up: Russia sets gas deadline for West](https://www.bbc.com/news/world-europe-60939320)
 More than five weeks into Russia's war on Ukraine, Moscow has threatened to cut off Western nations from natural gas supplies - something that could affect energy prices across Europe.
-### [Bill shock for millions as energy price rise hits](https://www.bbc.com/news/business-60943192)
-Millions of people will now feel the impact of an unprecedented £700-a-year rise in energy costs - at the same time as a host of bill hikes take effect.
+### [Pope apologises for Canada residential school harm](https://www.bbc.com/news/world-us-canada-60954568)
+Pope Francis has apologised to a Canadian indigenous delegation for the Catholic Church's role in the country's residential school system. 
 ### [They came 5,000 miles - to ask Pope to say sorry](https://www.bbc.com/news/world-us-canada-60905547)
 A delegation of indigenous Canadians is at the Vatican this week in search of an elusive apology from the Catholic Church for its role in the operation of the country's residential school system. 
