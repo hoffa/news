@@ -3,12 +3,12 @@
 Footage of Russian troops shooting a man with his hands up on a highway outside Kyiv at the beginning of March was shared around the world. Now the Russians have been pushed out of the area and the BBC's Jeremy Bowen has been to see the grim aftermath of their short-lived occupation. 
 ### [Kremlin responds to Depardieu's Putin jibe](https://www.bbc.com/news/world-europe-60954565)
 The Kremlin has hit back after French actor Gerard Depardieu accused Russian President Vladimir Putin of "crazy, unacceptable excesses" in Ukraine.
-### [Police offered to arrest Smith - Oscars producer](https://www.bbc.com/news/entertainment-arts-60952217)
-Police were ready to arrest Will Smith at the Oscars after the actor slapped comedian Chris Rock on stage, the ceremony's producer has said.
-### [Russia accuses Ukraine of attacking oil depot](https://www.bbc.com/news/world-europe-60952125)
-An oil storage depot is on fire in a Russian city just north of Ukraine after what the local governor said was an attack by two Ukrainian helicopters.
 ### [Bruce Willis 'worst performance' award cancelled](https://www.bbc.com/news/entertainment-arts-60952358)
 Organisers of the Razzie Awards, which are given to the year's worst films, have cancelled the recent "honour" they gave to actor Bruce Willis after the announcement about his health issues.
+### [Rock did not want Smith ejected - Oscars producer](https://www.bbc.com/news/entertainment-arts-60952217)
+The producer of the Oscars has said he prevented Will Smith from being "physically removed" from the ceremony because "Chris Rock did not want that".
+### [Russia accuses Ukraine of attacking oil depot](https://www.bbc.com/news/world-europe-60952125)
+An oil storage depot is on fire in a Russian city just north of Ukraine after what the local governor said was an attack by two Ukrainian helicopters.
 ### [Foetuses found at home of anti-abortion activist](https://www.bbc.com/news/world-us-canada-60950016)
 Five foetuses have been discovered in a Washington home reportedly belonging to an anti-abortion activist, police say.
 ### [Court upholds C$9m fine on maple syrup thief](https://www.bbc.com/news/world-us-canada-60947470)
