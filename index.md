@@ -5,17 +5,17 @@
 US actor Will Smith has resigned from the Oscars Academy after slapping comedian Chris Rock on stage during last Sunday's ceremony.
 ### [Prince Andrew repays cash amid financial dispute](https://www.bbc.com/news/uk-60961791)
 The Duke and Duchess of York have been named in a court case in which a Turkish millionaire is claiming £38m has been "dishonestly misappropriated" by a business adviser.
-### [What next for Will Smith after Oscars attack?](https://www.bbc.com/news/entertainment-arts-60953787)
-Will Smith went from beloved film favourite to Hollywood villain when he slapped Chris Rock on stage at the Oscars last weekend. Has he done permanent damage to his image and career, and what might happen next?
 ### [Sarah Palin announces US Congress bid](https://www.bbc.com/news/world-us-canada-60964852)
 Sarah Palin has announced a run for the Alaska's only seat in the US House of Representatives, her first bid for political office in more than a decade.
-### [Bruce Willis 'worst performance' award cancelled](https://www.bbc.com/news/entertainment-arts-60952358)
-Organisers of the Razzie Awards, which are given to the year's worst films, have cancelled the recent "honour" they gave to actor Bruce Willis after the announcement about his health issues.
-### [Russians leave devastation in Ukraine's new 'Hero City'](https://www.bbc.com/news/world-europe-60959667)
-The battle-scarred town of Irpin now stands as an example of Ukrainian resistance, and of Russian defeat. President Putin's forces managed to enter the town but didn't manage to push through it. If they had, Kyiv would have been their next stop - the capital is just a short drive away, 13 miles (21km) down the road. Blocking the Russian advance here was critical.
 ### [How returning $50,000 changed a taxi driver's life](https://www.bbc.com/news/world-africa-60915170)
 The story of what happened to Liberian Emmanuel Tuloe has the quality of a modern fable.
-### [What we now know about long Covid](https://www.bbc.com/news/world-60708123)
-The initial emergency of Covid may feel like it's over, but thousands of people are still suffering from ongoing symptoms known as long Covid. So are we any closer to understanding the causes of this debilitating condition or to finding the best way of treating it?
+### [Russians leave devastation in Ukraine's new 'Hero City'](https://www.bbc.com/news/world-europe-60959667)
+The battle-scarred town of Irpin now stands as an example of Ukrainian resistance, and of Russian defeat. President Putin's forces managed to enter the town but didn't manage to push through it. If they had, Kyiv would have been their next stop - the capital is just a short drive away, 13 miles (21km) down the road. Blocking the Russian advance here was critical.
+### [Bruce Willis 'worst performance' award cancelled](https://www.bbc.com/news/entertainment-arts-60952358)
+Organisers of the Razzie Awards, which are given to the year's worst films, have cancelled the recent "honour" they gave to actor Bruce Willis after the announcement about his health issues.
+### [What next for Will Smith after Oscars attack?](https://www.bbc.com/news/entertainment-arts-60953787)
+Will Smith went from beloved film favourite to Hollywood villain when he slapped Chris Rock on stage at the Oscars last weekend. Has he done permanent damage to his image and career, and what might happen next?
 ### [War ignites Hungary's tightest election challenge](https://www.bbc.com/news/world-europe-60952882)
 "Peace or War" is at stake screams the headline in the tabloid Metropol, handed out to morning commuters flocking through the Western Station in Budapest. And there's a neat blue cross in the box next to the "peace" option. 
+### ['I've had long Covid for two years now'](https://www.bbc.com/news/world-60708123)
+The initial emergency of Covid may feel like it's over, but thousands of people are still suffering from ongoing symptoms known as long Covid. So are we any closer to understanding the causes of this debilitating condition or to finding the best way of treating it?
