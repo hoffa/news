@@ -13,9 +13,9 @@ The battle-scarred town of Irpin now stands as an example of Ukrainian resistanc
 The story of what happened to Liberian Emmanuel Tuloe has the quality of a modern fable.
 ### [What next for Will Smith after Oscars attack?](https://www.bbc.com/news/entertainment-arts-60953787)
 Will Smith went from beloved film favourite to Hollywood villain when he slapped Chris Rock on stage at the Oscars last weekend. Has he done permanent damage to his image and career, and what might happen next?
-### [Bruce Willis 'worst performance' award cancelled](https://www.bbc.com/news/entertainment-arts-60952358)
-Organisers of the Razzie Awards, which are given to the year's worst films, have cancelled the recent "honour" they gave to actor Bruce Willis after the announcement about his health issues.
-### [War ignites Hungary's tightest election challenge](https://www.bbc.com/news/world-europe-60952882)
-"Peace or War" is at stake screams the headline in the tabloid Metropol, handed out to morning commuters flocking through the Western Station in Budapest. And there's a neat blue cross in the box next to the "peace" option. 
+### ['I've had long Covid for two years now'](https://www.bbc.com/news/world-60708123)
+The initial emergency of Covid may feel like it's over, but thousands of people are still suffering from ongoing symptoms known as long Covid. So are we any closer to understanding the causes of this debilitating condition or to finding the best way of treating it?
+### [Gruesome evidence points to war crimes on road to Kyiv](https://www.bbc.com/news/world-europe-60949791)
+Footage of Russian troops shooting a man with his hands up on a highway outside Kyiv at the beginning of March was shared around the world. Now the Russians have been pushed out of the area and the BBC's Jeremy Bowen has been to see the grim aftermath of their short-lived occupation. 
 ### [Sri Lanka curfew to stop food shortage protests](https://www.bbc.com/news/world-asia-60962185)
 A 36-hour curfew has been announced in Sri Lanka as a state of emergency is enforced amid violent protests against food and fuel shortages.
