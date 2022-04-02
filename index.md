@@ -15,7 +15,7 @@ Footage of Russian troops shooting a man with his hands up on a highway outside 
 The battle-scarred town of Irpin now stands as an example of Ukrainian resistance, and of Russian defeat. President Putin's forces managed to enter the town but didn't manage to push through it. If they had, Kyiv would have been their next stop - the capital is just a short drive away, 13 miles (21km) down the road. Blocking the Russian advance here was critical.
 ### ['I've had long Covid for two years now'](https://www.bbc.com/news/world-60708123)
 The initial emergency of Covid may feel like it's over, but thousands of people are still suffering from ongoing symptoms known as long Covid. So are we any closer to understanding the causes of this debilitating condition or to finding the best way of treating it?
-### [Sri Lanka curfew to stop food shortage protests](https://www.bbc.com/news/world-asia-60962185)
-A 36-hour curfew has been announced in Sri Lanka as a state of emergency is enforced amid violent protests against food and fuel shortages.
 ### [What next for Will Smith after Oscars attack?](https://www.bbc.com/news/entertainment-arts-60953787)
 Will Smith went from beloved film favourite to Hollywood villain when he slapped Chris Rock on stage at the Oscars last weekend. Has he done permanent damage to his image and career, and what might happen next?
+### [Sri Lanka curfew to stop food shortage protests](https://www.bbc.com/news/world-asia-60962185)
+A 36-hour curfew has been announced in Sri Lanka as a state of emergency is enforced amid violent protests against food and fuel shortages.
