@@ -1,8 +1,8 @@
 # News
-### [Bucha's street of burned-out tanks and corpses](https://www.bbc.com/news/world-europe-60970818)
-A suburban avenue in Bucha became one of the first graveyards for Russia's hopes of encircling and entering Kyiv and then deposing the government of President Volodymyr Zelensky. 
 ### [Jordan's Prince Hamzah renounces title of prince](https://www.bbc.com/news/world-middle-east-60976314)
 Prince Hamzah bin Hussein, the former heir to the throne of Jordan, has said he is renouncing his title of prince.
+### [Bucha's street of burned-out tanks and corpses](https://www.bbc.com/news/world-europe-60970818)
+A suburban avenue in Bucha became one of the first graveyards for Russia's hopes of encircling and entering Kyiv and then deposing the government of President Volodymyr Zelensky. 
 ### [Six people shot dead in Sacramento city centre](https://www.bbc.com/news/world-us-canada-60974119)
 At least six people have been killed and 10 injured in a shooting in the centre of Sacramento, police in California's state capital say.
 ### [Pakistan PM dissolves parliament to evade ousting](https://www.bbc.com/news/world-asia-60972186)
@@ -17,5 +17,5 @@ The drone footage shows three cars speeding along an empty main road just outsid
 The Grammy Awards are upon us once again, after a three-month delay due to the surge of Covid cases in the US.
 ### ['I've had long Covid for two years now'](https://www.bbc.com/news/world-60708123)
 The initial emergency of Covid may feel like it's over, but thousands of people are still suffering from ongoing symptoms known as long Covid. So are we any closer to understanding the causes of this debilitating condition or to finding the best way of treating it?
-### [Guantanamo inmate sent home after almost 20 years](https://www.bbc.com/news/world-africa-60970825)
-Guantanamo Bay inmate Sufiyan Barhoumi has been repatriated to Algeria, US officials say, after spending nearly 20 years at the detention facility.
+### [All of Sri Lanka's ministers quit after protests](https://www.bbc.com/news/world-asia-60975941)
+Sri Lanka's cabinet ministers have resigned en masse after protests over the government's handling of the worst economic crisis in decades.
