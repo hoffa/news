@@ -13,9 +13,9 @@ The Duke and Duchess of York have been named in a court case in which a Turkish 
 A small plane flying from the UK has vanished over the English Channel, prompting a search for debris.
 ### [Sarah Palin announces US Congress bid](https://www.bbc.com/news/world-us-canada-60964852)
 Sarah Palin has announced a run for the Alaska's only seat in the US House of Representatives, her first bid for political office in more than a decade.
-### [Russians leave devastation in Ukraine's new 'Hero City'](https://www.bbc.com/news/world-europe-60959667)
-The battle-scarred town of Irpin now stands as an example of Ukrainian resistance, and of Russian defeat. President Putin's forces managed to enter the town but didn't manage to push through it. If they had, Kyiv would have been their next stop - the capital is just a short drive away, 13 miles (21km) down the road. Blocking the Russian advance here was critical.
 ### [Will Smith resigns from Oscars Academy over slap](https://www.bbc.com/news/world-us-canada-60963054)
 US actor Will Smith has resigned from the Oscars Academy after slapping comedian Chris Rock on stage during last Sunday's ceremony.
-### [How returning $50,000 changed a taxi driver's life](https://www.bbc.com/news/world-africa-60915170)
-The story of what happened to Liberian Emmanuel Tuloe has the quality of a modern fable.
+### [Russians leave devastation in Ukraine's new 'Hero City'](https://www.bbc.com/news/world-europe-60959667)
+The battle-scarred town of Irpin now stands as an example of Ukrainian resistance, and of Russian defeat. President Putin's forces managed to enter the town but didn't manage to push through it. If they had, Kyiv would have been their next stop - the capital is just a short drive away, 13 miles (21km) down the road. Blocking the Russian advance here was critical.
+### [Gruesome evidence points to war crimes on road to Kyiv](https://www.bbc.com/news/world-europe-60949791)
+Footage of Russian troops shooting a man with his hands up on a highway outside Kyiv at the beginning of March was shared around the world. Now the Russians have been pushed out of the area and the BBC's Jeremy Bowen has been to see the grim aftermath of their short-lived occupation. 
