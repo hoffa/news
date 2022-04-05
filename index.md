@@ -9,13 +9,13 @@ Russian forces have killed a village head, her husband and her son, Ukrainian of
 Two "stolen" notebooks written by Charles Darwin have been mysteriously returned to Cambridge University, 22 years after they were last seen.
 ### [Senate panel deadlocks on Biden Supreme Court pick](https://www.bbc.com/news/world-us-canada-60986427)
 A US Senate panel has deadlocked in a vote to approve President Joe Biden's nominee for the Supreme Court, but she is set to be confirmed anyway later this week.
-### [Ukraine round-up: Evidence of atrocities mounts](https://www.bbc.com/news/world-europe-60987358)
-On Day 40 of the invasion evidence was mounting of atrocities carried out in areas of Ukraine abandoned by Russian forces.
 ### [UK father and son, 9, die in Australian landslide](https://www.bbc.com/news/world-australia-60991775)
 Two members of a British family have died and two others are critically injured after a landslide in Australia.
 ### [Biden calls for Putin to face war crimes trial](https://www.bbc.com/news/world-europe-60990934)
 US President Joe Biden has called for Russian President Vladimir Putin to be tried for war crimes as evidence emerges of atrocities allegedly committed by Russian forces in Ukraine.
-### [Sri Lanka MPs leave Rajapaksa-led coalition](https://www.bbc.com/news/world-asia-60978795)
-More than 40 MPs have left Sri Lankan president Gotabaya Rajapaksa's coalition government.
 ### [Britney Spears says she will publish new memoir](https://www.bbc.com/news/entertainment-arts-60991853)
 Britney Spears has confirmed that she is in the process of writing a book, confirming recent reports in US media that the star intended to pen a new tell-all memoir. 
+### [Ukraine round-up: Evidence of atrocities mounts](https://www.bbc.com/news/world-europe-60987358)
+On Day 40 of the invasion evidence was mounting of atrocities carried out in areas of Ukraine abandoned by Russian forces.
+### [One arrest made in deadly Sacramento shooting](https://www.bbc.com/news/world-us-canada-60990658)
+Police have arrested one suspect in connection with a shooting in the centre of Sacramento, California's capital, on Sunday, that left six dead.
