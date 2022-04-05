@@ -11,11 +11,11 @@ A US Senate panel has deadlocked in a vote to approve President Joe Biden's nomi
 US President Joe Biden has called for Russian President Vladimir Putin to be tried for war crimes as evidence emerges of atrocities allegedly committed by Russian forces in Ukraine.
 ### [UK father and son, 9, die in Australian landslide](https://www.bbc.com/news/world-australia-60991775)
 Two members of a British family have died and two others are critically injured after a landslide in Australia.
-### [Britney Spears says she will publish new memoir](https://www.bbc.com/news/entertainment-arts-60991853)
-Britney Spears has confirmed that she is in the process of writing a book, confirming recent reports in US media that the star intended to pen a new tell-all memoir. 
 ### [Trump's Truth Social app branded a disaster](https://www.bbc.com/news/technology-60922717)
 In October, Donald Trump announced he was planning to launch a revolutionary technology company.
-### [Putin hails Hungary PM's election victory](https://www.bbc.com/news/world-europe-60981648)
-Hungary's nationalist Prime Minister Viktor Orban has been congratulated by Russian President Vladimir Putin after he won a fourth term by a landslide in the country's general election.
 ### [Ukraine round-up: Evidence of atrocities mounts](https://www.bbc.com/news/world-europe-60987358)
 On Day 40 of the invasion evidence was mounting of atrocities carried out in areas of Ukraine abandoned by Russian forces.
+### [Britney Spears says she will publish new memoir](https://www.bbc.com/news/entertainment-arts-60991853)
+Britney Spears has confirmed that she is in the process of writing a book, confirming recent reports in US media that the star intended to pen a new tell-all memoir. 
+### [Putin hails Hungary PM's election victory](https://www.bbc.com/news/world-europe-60981648)
+Hungary's nationalist Prime Minister Viktor Orban has been congratulated by Russian President Vladimir Putin after he won a fourth term by a landslide in the country's general election.
