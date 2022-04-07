@@ -13,9 +13,9 @@ After a Covid infection, there is an increased risk of developing a serious bloo
 The course of the war in Ukraine has taken many by surprise, not least the Russian leadership. But as our world affairs editor John Simpson reports from the western city of Lviv, Ukraine's politicians are cautioning against too much optimism.
 ### [Asteroid-strike dinosaur fossil found - scientists](https://www.bbc.com/news/science-environment-61013740)
 Scientists have presented a stunningly preserved leg of a dinosaur.
-### [Shanghai lockdown residents 'running out of food'](https://www.bbc.com/news/world-asia-china-61019975)
-Some residents under lockdown in Shanghai say they are running out of food, amid the city's biggest-ever Covid outbreak.
 ### [Secret Service agents targeted in influence operation](https://www.bbc.com/news/world-us-canada-61019127)
 US officials have arrested two men who had spent thousands of dollars seeking to influence Secret Service agents. 
+### [Shanghai lockdown residents 'running out of food'](https://www.bbc.com/news/world-asia-china-61019975)
+Some residents under lockdown in Shanghai say they are running out of food, amid the city's biggest-ever Covid outbreak.
 ### [Russians hear one voice on war - that of Putin](https://www.bbc.com/news/world-europe-61008293)
 The Kremlin denies it all: the footage of bodies lying in the streets in Bucha, the mass graves and the terrible testimony of witnesses. And state TV parrots the narrative. 
