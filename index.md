@@ -17,5 +17,5 @@ When the luxury liner Oceanos started taking on water in rough seas during a voy
 An American aid worker killed by the Islamic State wrote of knowing that "his time had come" before his execution by captors, his father told a US court.
 ### [Ed Sheeran condemns 'baseless' copyright claims](https://www.bbc.com/news/entertainment-arts-61008849)
 Ed Sheeran has warned that pop stars should not be allowed to be "easy targets" for copyright claims after winning his court battle with the writers of a song they claimed he had plagiarised.
-### [How police shut down world's largest darknet market](https://www.bbc.com/news/technology-61002904)
-"It gave us all goosebumps" says Sebastian Zwiebel, as he describes the moment his team shut down Hydra, the world's largest darknet marketplace.
+### [An execution-style killing on a street in Bucha](https://www.bbc.com/news/world-europe-61003878)
+Volodymyr Abramov was trying desperately to put out the fire in his home, in the Kyiv suburb of Bucha, calling out for his son-in-law to help. 
