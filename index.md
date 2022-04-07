@@ -1,21 +1,21 @@
 # News
+### [Russian troops discussed killings in Bucha - report](https://www.bbc.com/news/world-europe-61028380)
+Russian troops were heard discussing killing civilians in the Ukrainian town of Bucha, in messages intercepted by German intelligence, German media say.
 ### [Video appears to show killing of captive Russian soldier](https://www.bbc.com/news/61025388)
 A video has emerged which purports to show Ukrainian forces shooting and killing a captive Russian soldier. 
 ### [Secret Service agents targeted in influence operation](https://www.bbc.com/news/world-us-canada-61019127)
 US officials have arrested two men who had spent thousands of dollars seeking to influence Secret Service agents. 
 ### [Who are Putin's daughters?](https://www.bbc.com/news/world-europe-61011141)
 Russia's President, Vladimir Putin, has always been guarded when it comes to questions over his family.
-### ['Russian soldiers held us as human shields'](https://www.bbc.com/news/world-europe-61020565)
-Clear evidence of Russian troops rounding up Ukrainian civilians and using them as human shields has been found by the BBC. In multiple interviews in Obukhovychi, villagers say they were taken from their homes at gunpoint and held in a school by Russians trying to stop advancing Ukrainian forces. Local people also gave accounts of Russian troops shooting civilians and holding others captive in and around Ivankiv, the neighbouring town.
 ### [Sunak under pressure over wife's non-dom status](https://www.bbc.com/news/uk-politics-61017993)
 Chancellor Rishi Sunak is facing calls to "come clean" on his family's financial affairs after it emerged his wife benefits from a tax-saving scheme.
-### [Russians hear one voice on war - that of Putin](https://www.bbc.com/news/world-europe-61008293)
-The Kremlin denies it all: the footage of bodies lying in the streets in Bucha, the mass graves and the terrible testimony of witnesses. And state TV parrots the narrative. 
-### [Troops ready for Russian onslaught on eastern front](https://www.bbc.com/news/world-europe-61018959)
-The sound of Russian artillery grew louder as we drove to a Ukrainian frontline position in Luhansk. The rumble of shelling interspersed with the occasional burst of small arms fire. We were within 500 metres of the Russian positions.
-### [Asteroid-strike dinosaur fossil found - scientists](https://www.bbc.com/news/science-environment-61013740)
-Scientists have presented a stunningly preserved leg of a dinosaur.
 ### [Court orders vote into Pakistan PM Khan leadership](https://www.bbc.com/news/world-asia-60978798)
 Pakistan's top court has ruled that a move to block a parliamentary vote against Prime Minister Imran Khan was unconstitutional, paving the way for his possible removal.
+### [Troops ready for Russian onslaught on eastern front](https://www.bbc.com/news/world-europe-61018959)
+The sound of Russian artillery grew louder as we drove to a Ukrainian frontline position in Luhansk. The rumble of shelling interspersed with the occasional burst of small arms fire. We were within 500 metres of the Russian positions.
 ### [Shanghai lockdown residents 'running out of food'](https://www.bbc.com/news/world-asia-china-61019975)
 Some residents under lockdown in Shanghai say they are running out of food, amid the city's biggest-ever Covid outbreak.
+### [Asteroid-strike dinosaur fossil found - scientists](https://www.bbc.com/news/science-environment-61013740)
+Scientists have presented a stunningly preserved leg of a dinosaur.
+### ['Russian soldiers held us as human shields'](https://www.bbc.com/news/world-europe-61020565)
+Clear evidence of Russian troops rounding up Ukrainian civilians and using them as human shields has been found by the BBC. In multiple interviews in Obukhovychi, villagers say they were taken from their homes at gunpoint and held in a school by Russians trying to stop advancing Ukrainian forces. Local people also gave accounts of Russian troops shooting civilians and holding others captive in and around Ivankiv, the neighbouring town.
