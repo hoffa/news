@@ -11,11 +11,11 @@ Accounts of atrocities committed by Russian troops against Ukrainian civilians a
 Will Smith has been banned from the Oscars gala and other Academy events for 10 years after the US actor slapped comic Chris Rock at the Oscars.
 ### [FBI's Michigan governor kidnap plot case collapses](https://www.bbc.com/news/world-us-canada-60999431)
 A US federal jury has acquitted two men accused of plotting to kidnap Michigan's governor and failed to reach a verdict for two other defendants.
+### [Katty Kay: The most exciting thing about becoming Swiss](https://www.bbc.com/news/world-us-canada-61033126)
+Last year I became a Swiss citizen. It was a three-year battle of will (mine) over bureaucracy (theirs). I won. I have my grandmother to thank. 
 ### [Macron calls Polish PM 'a far-right anti-Semite'](https://www.bbc.com/news/world-europe-61043344)
 French President Emmanuel Macron has called Polish PM Mateusz Morawiecki "a far-right anti-Semite who bans LGBT people", after being criticised for his talks with Russia's Vladimir Putin. 
 ### [Where are Bridgerton's Indians really from?](https://www.bbc.com/news/world-asia-india-61022232)
 "Have you read Ghaleeb?" Edwina Sharma asks a suitor vying for her hand in the latest season of Netflix's hit period drama Bridgerton. 
-### [Katty Kay: The most exciting thing about becoming Swiss](https://www.bbc.com/news/world-us-canada-61033126)
-Last year I became a Swiss citizen. It was a three-year battle of will (mine) over bureaucracy (theirs). I won. I have my grandmother to thank. 
 ### [British man safe but son missing after diving trip](https://www.bbc.com/news/uk-61049323)
 A British man and a French woman have been found safe two-and-a-half days after they went missing while diving off Malaysia.
