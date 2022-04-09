@@ -9,13 +9,13 @@ Will Smith has been banned from the Oscars gala and other Academy events for 10 
 French President Emmanuel Macron has called Polish PM Mateusz Morawiecki "a far-right anti-Semite who bans LGBT people", after being criticised for his talks with Russia's Vladimir Putin. 
 ### [Katty Kay: The most exciting thing about becoming Swiss](https://www.bbc.com/news/world-us-canada-61033126)
 Last year I became a Swiss citizen. It was a three-year battle of will (mine) over bureaucracy (theirs). I won. I have my grandmother to thank. 
-### [Ukraine's six weeks of devastation and defiance](https://www.bbc.com/news/world-europe-61027292)
-Predictions at the start of the invasion of a quick Russian victory have been upended by the Ukrainians' willingness to fight, but the war is settling into a long struggle that could still endanger the wider world too.
+### [Behind the spies’ attempts to stop the war](https://www.bbc.com/news/world-europe-61044063)
+Traditionally, it is the job of a spy to keep secrets - but as the invasion of Ukraine loomed, Western intelligence officials made the unusual decision to tell the world what they knew.
 ### [Pink Floyd reunite for Ukraine protest song](https://www.bbc.com/news/entertainment-arts-61037080)
 Pink Floyd have reunited to record their first new material in 28 years, a protest song against the Ukraine war.
-### [Inside the spies’ attempts to stop the war](https://www.bbc.com/news/world-europe-61044063)
-Traditionally, it is the job of a spy to keep secrets - but as the invasion of Ukraine loomed, Western intelligence officials made the unusual decision to tell the world what they knew.
+### [Ukraine, the UN and history's greatest broken promise](https://www.bbc.com/news/world-europe-61021862)
+Accounts of atrocities committed by Russian troops against Ukrainian civilians are emerging daily. There are calls for President Putin and others to be prosecuted for war crimes - but how likely is that to happen? Given its past record, and failure to stop this war which has seen more than 11 million people flee their homes, the BBC's Fergal Keane considers whether the international community will be able to unite. 
+### [Ukraine's six weeks of devastation and defiance](https://www.bbc.com/news/world-europe-61027292)
+Predictions at the start of the invasion of a quick Russian victory have been upended by the Ukrainians' willingness to fight, but the war is settling into a long struggle that could still endanger the wider world too.
 ### [Xi hails zero-Covid as Shanghai cases hit record](https://www.bbc.com/news/world-asia-china-61043346)
 China's President Xi Jinping has praised his country's handling of the Covid pandemic, even as Shanghai reported record case numbers.
-### ['This means the world for every little black girl'](https://www.bbc.com/news/world-us-canada-61018765)
-Judge Ketanji Brown Jackson is the first black woman to become a justice on the US Supreme Court in its 233-year history.
