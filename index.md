@@ -9,10 +9,10 @@ Merseyside Police are investigating an alleged assault after Manchester United f
 Pakistan's Prime Minister Imran Khan has been ousted from power after losing a no-confidence vote in his leadership.
 ### [Is Russia deliberately targeting civilians?](https://www.bbc.com/news/world-europe-61036880)
 There have been urgent calls for investigations into allegations of war crimes in previously Russian-held areas of Ukraine after shocking footage of murdered civilians. 
-### [Macron faces far-right challenge as France votes](https://www.bbc.com/news/world-europe-61049717)
-French voters are casting their ballots in the opening round of a presidential race that could become a cliffhanger.
 ### [The Eagle has Landed author dies aged 92](https://www.bbc.com/news/entertainment-arts-61054455)
 Henry Patterson, the best-selling author of The Eagle has Landed, has died aged 92, his publisher has said.
+### [Macron faces far-right challenge as France votes](https://www.bbc.com/news/world-europe-61049717)
+French voters are casting their ballots in the opening round of a presidential race that could become a cliffhanger.
 ### [How will Russia attack Ukraine's new front line?](https://www.bbc.com/news/world-europe-61023869)
 The conflict in Ukraine has shifted to the east of the country where Ukrainian forces are battle-hardened and well-prepared.
 ### [Sunak: Inquiry into leak of wife's taxes begins](https://www.bbc.com/news/uk-politics-61055789)
