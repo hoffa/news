@@ -7,14 +7,14 @@ It is thought that Russia has lost hundreds of tanks within two months of invadi
 A mother who scrawled contact details on her two-year-old daughter's back while fleeing Ukraine has described to the BBC her desperation in that moment.
 ### [Inside Johnny Depp and Amber Heard's legal battle](https://www.bbc.com/news/world-us-canada-61070988)
 The sequel to Johnny Depp and ex-wife Amber Heard's bitter legal battle is coming to Virginia. 
-### [White House tight-lipped on missing WNBA star](https://www.bbc.com/news/world-us-canada-61075220)
-When the WNBA season tips off next month, one of the league's biggest stars will still be missing.
-### [Russia warns Sweden and Finland against Nato bid](https://www.bbc.com/news/world-europe-61066503)
-Russia has warned Finland and Sweden against joining Nato, arguing the move would not bring stability to Europe. 
 ### [Hidden wealth of one of Putin’s 'inner circle' revealed](https://www.bbc.com/news/world-europe-61028866)
 Leaked documents seen by BBC News show how a sanctioned oligarch from Putin's "inner circle" hid his wealth.
+### [White House tight-lipped on missing WNBA star](https://www.bbc.com/news/world-us-canada-61075220)
+When the WNBA season tips off next month, one of the league's biggest stars will still be missing.
 ### [Ukraine round-up: Austria pessimistic after Putin talks](https://www.bbc.com/news/world-europe-61071164)
 After suffering some of the worst fighting in Ukraine's conflict, could the port city of Mariupol be about to fall to Russia?
+### [Russia warns Sweden and Finland against Nato bid](https://www.bbc.com/news/world-europe-61066503)
+Russia has warned Finland and Sweden against joining Nato, arguing the move would not bring stability to Europe. 
 ### [Britney reveals pregnancy after conservatorship](https://www.bbc.com/news/entertainment-arts-61075379)
 Britney Spears has announced she is pregnant, months after she escaped the legal arrangement that gave her father control over many aspects of her life.
 ### [Why Shanghai did a U-turn on its Covid approach](https://www.bbc.com/news/world-asia-china-61023811)
