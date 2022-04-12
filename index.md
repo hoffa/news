@@ -9,13 +9,13 @@ It is thought that Russia has lost hundreds of tanks within two months of invadi
 A mother who scrawled contact details on her two-year-old daughter's back while fleeing Ukraine has described to the BBC her desperation in that moment.
 ### [Inside Johnny Depp and Amber Heard's legal battle](https://www.bbc.com/news/world-us-canada-61070988)
 The sequel to Johnny Depp and ex-wife Amber Heard's bitter legal battle is coming to Virginia. 
-### [White House tight-lipped on missing WNBA star](https://www.bbc.com/news/world-us-canada-61075220)
-When the WNBA season tips off next month, one of the league's biggest stars will still be missing.
-### [Britney reveals pregnancy after conservatorship](https://www.bbc.com/news/entertainment-arts-61075379)
-Britney Spears has announced she is pregnant, months after she escaped the legal arrangement that gave her father control over many aspects of her life.
 ### [Hidden wealth of one of Putin’s 'inner circle' revealed](https://www.bbc.com/news/world-europe-61028866)
 Leaked documents seen by BBC News show how a sanctioned oligarch from Putin's "inner circle" hid his wealth.
 ### [Ukraine round-up: Austria pessimistic after Putin talks](https://www.bbc.com/news/world-europe-61071164)
 After suffering some of the worst fighting in Ukraine's conflict, could the port city of Mariupol be about to fall to Russia?
+### [White House tight-lipped on missing WNBA star](https://www.bbc.com/news/world-us-canada-61075220)
+When the WNBA season tips off next month, one of the league's biggest stars will still be missing.
+### [Britney reveals pregnancy after conservatorship](https://www.bbc.com/news/entertainment-arts-61075379)
+Britney Spears has announced she is pregnant, months after she escaped the legal arrangement that gave her father control over many aspects of her life.
 ### [Ukrainian bride who fled war for love in India](https://www.bbc.com/news/world-asia-india-61034754)
 Last month, as bombs rained down on Ukraine's capital Kyiv, Anna Horodetska locked up her rented apartment and fled to India, carrying just a couple of T-shirts and a coffee machine - a wedding present from her grandmother.
