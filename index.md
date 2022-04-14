@@ -11,11 +11,11 @@ Russia says more than 1,000 Ukrainian marines have surrendered in the besieged p
 Nearly three million people around the world have multiple sclerosis. Scientists think they have now uncovered a mystery cause of this incurable disease. It is a virus that nearly every one of us can expect to catch. So what does it mean for treating and even preventing MS?
 ### [Finland to decide on Nato bid in weeks, says PM](https://www.bbc.com/news/world-europe-61093302)
 Finnish Prime Minister Sanna Marin says her country will decide whether to apply to join Nato "within weeks". 
-### [Russia building up troops ahead of new offensive](https://www.bbc.com/news/world-europe-60506682)
-Russia is building up troops and military equipment along Ukraine's eastern border ahead of an expected offensive in the Donbas region. 
 ### [Jersey court freezes $7bn of Abramovich assets](https://www.bbc.com/news/business-61098873)
 Russian billionaire Roman Abramovich has had $7bn (£5.4bn) of assets linked to him frozen by a Jersey court.
+### [Russia building up troops ahead of new offensive](https://www.bbc.com/news/world-europe-60506682)
+Russia is building up troops and military equipment along Ukraine's eastern border ahead of an expected offensive in the Donbas region. 
 ### [Ukraine round-up: US and France divided on genocide](https://www.bbc.com/news/world-europe-61100091)
 The United States has historically been reluctant to accuse states of genocide.
-### [UK to send asylum seekers to Rwanda for processing](https://www.bbc.com/news/uk-politics-61097114)
-Some asylum seekers will be flown to Rwanda to have their applications processed, under new government plans.
+### [Ukraine focus shows bias against black lives - WHO](https://www.bbc.com/news/world-61101732)
+The head of the World Health Organisation (WHO) says the world does not give equal attention to emergencies affecting black and white people.
