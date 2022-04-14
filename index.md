@@ -9,13 +9,13 @@ Nearly three million people around the world have multiple sclerosis. Scientists
 Police in New York City have arrested a man suspected of shooting 10 commuters in a rush hour attack at a Brooklyn subway station.
 ### [Mass surrender of troops in Mariupol, says Russia](https://www.bbc.com/news/world-europe-61092953)
 Russia says more than 1,000 Ukrainian marines have surrendered in the besieged port of Mariupol, but Ukraine denies this.
+### [NZ court allows China extradition in landmark case](https://www.bbc.com/news/world-asia-61102805)
+New Zealand's top court has ruled that a man can be extradited to China to face a murder charge, in what activists have called a "deeply disturbing precedent". 
 ### [Finland to decide on Nato bid in weeks, says PM](https://www.bbc.com/news/world-europe-61093302)
 Finnish Prime Minister Sanna Marin says her country will decide whether to apply to join Nato "within weeks". 
+### [Video shows fatal US police shooting of black man](https://www.bbc.com/news/world-us-canada-61102065)
+Police video has been released of a white officer fatally shooting a black man in the back of the head after a scuffle over a stun gun. 
 ### [Ukraine focus shows bias against black lives - WHO](https://www.bbc.com/news/world-61101732)
 The head of the World Health Organisation (WHO) says the world does not give equal attention to emergencies affecting black and white people.
-### [Russia building up troops ahead of new offensive](https://www.bbc.com/news/world-europe-60506682)
-Russia is building up troops and military equipment along Ukraine's eastern border ahead of an expected offensive in the Donbas region. 
 ### [Beauty firm L'Occitane keeps Russian shops open](https://www.bbc.com/news/business-61096823)
 The French beauty brand L'Occitane says it will keep its shops in Russia open despite the invasion of Ukraine.
-### [Ukraine round-up: US and France divided on genocide](https://www.bbc.com/news/world-europe-61100091)
-The United States has historically been reluctant to accuse states of genocide.
