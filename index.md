@@ -1,10 +1,10 @@
 # News
 ### [Russian warship Moskva has sunk - defence ministry](https://www.bbc.com/news/world-europe-61114843)
 A Russian warship that was damaged by an explosion on Wednesday has sunk, Russia's defence ministry has said.
-### [Harry and Meghan visit Queen on way to Invictus](https://www.bbc.com/news/uk-61114969)
-The Duke and Duchess of Sussex met the Queen on Thursday after flying into the UK, a spokesperson for the couple confirmed to the BBC.
 ### ['I'm shocked by my church leaders in Moscow'](https://www.bbc.com/news/world-europe-61109104)
 The Russian Orthodox Church has echoed the rhetoric of the Kremlin in justifying the war in Ukraine. It is a stance that appears to be driving large numbers of Ukrainian priests and parishioners to turn their backs on Moscow.
+### [Harry and Meghan visit Queen on way to Invictus](https://www.bbc.com/news/uk-61114969)
+The Duke and Duchess of Sussex met the Queen on Thursday after flying into the UK, a spokesperson for the couple confirmed to the BBC.
 ### [The battle for control of Ukraine's skies](https://www.bbc.com/news/world-europe-61106245)
 Much of the focus of the war in Ukraine has so far been about the battle on the ground - but the fight to dominate the skies is just as important. The BBC has been given an exclusive interview with a Ukrainian air defence officer about the battle for control of Ukraine's skies.  
 ### [Depp and Heard marriage ended in 'mutual abuse'](https://www.bbc.com/news/world-us-canada-61114768)
