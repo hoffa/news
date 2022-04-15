@@ -7,10 +7,10 @@ The Duke and Duchess of Sussex met the Queen on Thursday after flying into the U
 The Russian Orthodox Church has echoed the rhetoric of the Kremlin in justifying the war in Ukraine. It is a stance that appears to be driving large numbers of Ukrainian priests and parishioners to turn their backs on Moscow.
 ### [Depp and Heard marriage ended in 'mutual abuse'](https://www.bbc.com/news/world-us-canada-61114768)
 Johnny Depp and Amber Heard's former couples therapist said the pair engaged in "mutual abuse" during the final months of their stormy marriage. 
-### [Behind the scenes in Zelensky's modern HQ](https://www.bbc.com/news/world-europe-61113079)
-The soldiers at the checkpoint scrutinised our passports, then waved us on. We were inside the grounds of the building that was being used as the headquarters of the resistance against Russia's invasion. 
 ### [The battle for control of Ukraine's skies](https://www.bbc.com/news/world-europe-61106245)
 Much of the focus of the war in Ukraine has so far been about the battle on the ground - but the fight to dominate the skies is just as important. The BBC has been given an exclusive interview with a Ukrainian air defence officer about the battle for control of Ukraine's skies.  
+### [Behind the scenes in Zelensky's modern HQ](https://www.bbc.com/news/world-europe-61113079)
+The soldiers at the checkpoint scrutinised our passports, then waved us on. We were inside the grounds of the building that was being used as the headquarters of the resistance against Russia's invasion. 
 ### [Le Pen angered by French protest over ties to Putin](https://www.bbc.com/news/world-europe-61105322)
 France's two rivals for the presidency have traded accusations after a woman was manhandled for protesting against far-right candidate Marine Le Pen's ties to Russia's Vladimir Putin.
 ### [Sunken Russian warship: What do we know?](https://www.bbc.com/news/world-europe-61103927)
