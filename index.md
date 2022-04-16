@@ -11,11 +11,11 @@ The Russian Orthodox Church has echoed the rhetoric of the Kremlin in justifying
 Moscow says it will respond to any Ukrainian attacks on Russian territory by striking Kyiv with more missiles. 
 ### [Russian warship Moskva sinks in Black Sea](https://www.bbc.com/news/world-europe-61114843)
 A Russian warship that was damaged by an explosion on Wednesday has sunk, Russia's defence ministry has said.
-### [Twitter board takes action to fight Musk bid](https://www.bbc.com/news/world-us-canada-61123200)
-Twitter's board has armed itself against a possible hostile takeover - a day after billionaire Elon Musk made a $43bn (£33bn) offer to buy the platform.
-### [Clashes in Shanghai over Covid lockdown evictions](https://www.bbc.com/news/world-asia-china-61117528)
-Video has emerged of clashes between police and people being forced out of their homes in Shanghai, as the city enters a third week of Covid lockdown.
+### [India's forgotten Hollywood star who hid her identity](https://www.bbc.com/news/world-asia-india-61079732)
+Merle Oberon, a Hollywood star of the black and white era, is a forgotten icon in India, the country of her birth.
 ### [The battle for control of Ukraine's skies](https://www.bbc.com/news/world-europe-61106245)
 Much of the focus of the war in Ukraine has so far been about the battle on the ground - but the fight to dominate the skies is just as important. The BBC has been given an exclusive interview with a Ukrainian air defence officer about the battle for control of Ukraine's skies.  
-### [Behind the scenes in Zelensky's modern HQ](https://www.bbc.com/news/world-europe-61113079)
-The soldiers at the checkpoint scrutinised our passports, then waved us on. We were inside the grounds of the building that was being used as the headquarters of the resistance against Russia's invasion. 
+### [Twitter board takes action to fight Musk bid](https://www.bbc.com/news/world-us-canada-61123200)
+Twitter's board has armed itself against a possible hostile takeover - a day after billionaire Elon Musk made a $43bn (£33bn) offer to buy the platform.
+### [Elderly deaths contradict Shanghai Covid figures](https://www.bbc.com/news/world-asia-china-61117738)
+Dozens of elderly patients at a hospital in Shanghai have died after contracting Covid-19, but official government figures claim no deaths in the city have been caused by the disease since 2020.
