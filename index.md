@@ -1,14 +1,14 @@
 # News
 ### [Russia bans Johnson from country over Ukraine war](https://www.bbc.com/news/world-europe-61126391)
 Russia has banned Prime Minister Boris Johnson and other senior ministers from entering Russia over the UK's "hostile" stance on the war in Ukraine.
-### [The multi-million-pound homes of sanctioned oligarchs](https://www.bbc.com/news/world-europe-61080536)
-A dozen sanctioned Russians are linked to an estimated £800m worth of property in the UK, analysis by the BBC reveals. 
 ### [India's forgotten Hollywood star who hid her identity](https://www.bbc.com/news/world-asia-india-61079732)
 Merle Oberon, a Hollywood star of the black and white era, is a forgotten icon in India, the country of her birth.
-### [Undocumented lotto winner struggles to claim prize](https://www.bbc.com/news/world-europe-61120574)
-An Algerian man who won €250,000 (£206,000; $270,000) on a €5 scratchcard in Belgium is struggling to claim his winnings because of his undocumented status.
+### [The multi-million-pound homes of sanctioned oligarchs](https://www.bbc.com/news/world-europe-61080536)
+A dozen sanctioned Russians are linked to an estimated £800m worth of property in the UK, analysis by the BBC reveals. 
 ### [Elderly deaths contradict Shanghai Covid figures](https://www.bbc.com/news/world-asia-china-61117738)
 Dozens of elderly patients at a hospital in Shanghai have died after contracting Covid-19, but official government figures claim no deaths in the city have been caused by the disease since 2020.
+### [Undocumented lotto winner struggles to claim prize](https://www.bbc.com/news/world-europe-61120574)
+An Algerian man who won €250,000 (£206,000; $270,000) on a €5 scratchcard in Belgium is struggling to claim his winnings because of his undocumented status.
 ### [Sunken Russian warship: What we know](https://www.bbc.com/news/world-europe-61103927)
 Russia's flagship Black Sea missile cruiser, the Moskva, has sunk after being "seriously damaged". 
 ### [Almost 200 animals found in Arizona man's freezer](https://www.bbc.com/news/world-us-canada-61122990)
