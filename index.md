@@ -11,11 +11,11 @@ In our series of letters from African journalists, to mark eight years since the
 Russia's flagship Black Sea missile cruiser, the Moskva, has sunk after being "seriously damaged". 
 ### [Elderly deaths contradict Shanghai Covid figures](https://www.bbc.com/news/world-asia-china-61117738)
 Dozens of elderly patients at a hospital in Shanghai have died after contracting Covid-19, but official government figures claim no deaths in the city have been caused by the disease since 2020.
-### [Charles remembers victims of war in Easter message](https://www.bbc.com/news/uk-61129126)
-Prince Charles has highlighted the suffering of "innocent victims of conflict" in his Easter message. 
 ### [The multi-million-pound homes of sanctioned oligarchs](https://www.bbc.com/news/world-europe-61080536)
 A dozen sanctioned Russians are linked to an estimated £800m worth of property in the UK, analysis by the BBC reveals. 
+### [Charles remembers victims of war in Easter message](https://www.bbc.com/news/uk-61129126)
+Prince Charles has highlighted the suffering of "innocent victims of conflict" in his Easter message. 
 ### [Johnson to visit India in bid to boost defence ties](https://www.bbc.com/news/uk-61130758)
 Prime Minister Boris Johnson is set to make a long-delayed trip to India this week in a bid to strengthen security ties with the country.
-### [Archbishop to criticise UK's Rwanda asylum plan](https://www.bbc.com/news/uk-61130841)
-The government's plan to send some asylum seekers from the UK to Rwanda is "the opposite of the nature of God", the Archbishop of Canterbury is to say.
+### [Key UN climate finding widely misinterpreted](https://www.bbc.com/news/science-environment-61110406)
+A key finding in the latest IPCC climate report has been widely misinterpreted, according to scientists involved in the study. 
