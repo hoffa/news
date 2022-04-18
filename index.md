@@ -13,9 +13,9 @@ Two former Doctor Who companions will appear in Jodie Whittaker's final adventur
 Piers Morgan has said his controversial exit from ITV's Good Morning Britain last year was "a farce" but it "focused everyone's minds" on free speech.
 ### [China reports first Covid deaths in Shanghai](https://www.bbc.com/news/world-asia-china-61036737)
 China has reported the deaths of three people from Covid in Shanghai for the first time since the financial hub entered lockdown in late March.
-### [Royal children join parents at Easter service](https://www.bbc.com/news/uk-61134007)
-The Duke and Duchess of Cambridge were accompanied by two of their children as they joined other royals for the Easter Sunday service at Windsor Castle.
 ### [Jordan's drug fight becomes deadly undeclared war](https://www.bbc.com/news/world-middle-east-61040359)
 A man in his 20s with cropped hair agitatedly paces the corridor of the drug rehabilitation unit as he grapples with the agonies of early withdrawal. 
 ### [Why was this freed Chibok girl treated differently?](https://www.bbc.com/news/world-africa-61092882)
 In our series of letters from African journalists, to mark eight years since the Chibok school abductions, Nigerian journalist and novelist Adaobi Tricia Nwaubani speaks to a rescued girl who has been treated very differently to her former classmates who were freed earlier.
+### [Rwanda asylum critics have no solutions - Patel](https://www.bbc.com/news/uk-61137081)
+Home Secretary Priti Patel has hit back at critics of the government's plan to send asylum seekers to Rwanda, saying they have failed to offer solutions.
