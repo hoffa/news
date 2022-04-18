@@ -1,8 +1,8 @@
 # News
-### [Unrest in Sweden over planned Quran burnings](https://www.bbc.com/news/world-europe-61134734)
-Clashes have taken place for a fourth day in several Swedish cities, sparked by the apparent burning of a Quran by a far-right, anti-immigrant group. 
 ### [War forces Germany to burn bridges with Russia](https://www.bbc.com/news/world-europe-61118706)
 Repenting historical wrongs is a national pastime in Germany. But even by German standards, the soul-searching over Berlin's Russia policy is remarkable. 
+### [Unrest in Sweden over planned Quran burnings](https://www.bbc.com/news/world-europe-61134734)
+Clashes have taken place for a fourth day in several Swedish cities, sparked by the apparent burning of a Quran by a far-right, anti-immigrant group. 
 ### [Ex-Doctor Who stars to join Whittaker's farewell](https://www.bbc.com/news/entertainment-arts-61111999)
 Two former Doctor Who companions will appear in Jodie Whittaker's final adventure later this year.
 ### [Trucks stuck for miles to meet deadline to leave EU](https://www.bbc.com/news/world-europe-61133439)
@@ -17,5 +17,5 @@ China has reported the deaths of three people from Covid in Shanghai for the fir
 One of Wales' most popular mountain paths was "covered in human stools" and litter as visitors flocked to the area for Easter, a mountain guide has said.
 ### [Royal children join parents at Easter service](https://www.bbc.com/news/uk-61134007)
 The Duke and Duchess of Cambridge were accompanied by two of their children as they joined other royals for the Easter Sunday service at Windsor Castle.
-### [Rwanda asylum critics have no solutions - Patel](https://www.bbc.com/news/uk-61137081)
-Home Secretary Priti Patel has hit back at critics of the government's plan to send asylum seekers to Rwanda, saying they have failed to offer solutions.
+### [Jordan's drug fight becomes deadly undeclared war](https://www.bbc.com/news/world-middle-east-61040359)
+A man in his 20s with cropped hair agitatedly paces the corridor of the drug rehabilitation unit as he grapples with the agonies of early withdrawal. 
