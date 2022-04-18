@@ -3,6 +3,10 @@
 Dramatic pictures - and a credible video - showing the Russian warship Moskva before it sank last week have appeared online.
 ### [Man wins $450k suit after unwanted office birthday](https://www.bbc.com/news/world-us-canada-61141421)
 A Kentucky man has been awarded $450,000 (£345,314) after his company threw him a surprise birthday party despite his warnings that it would trigger stress and anxiety. 
+### [Ronaldo and partner announce death of baby boy](https://www.bbc.com/sport/football/61143808)
+Manchester United footballer Cristiano Ronaldo and partner Georgina Rodriguez have announced the death of their baby boy, saying it is the "greatest pain that any parents can feel".
+### [Captured Britons on Russian TV appeal for UK help](https://www.bbc.com/news/uk-61139735)
+Two British men reportedly captured by Russian forces while fighting in Ukraine have appeared on Russian state TV appealing to Boris Johnson for help.
 ### [War forces Germany to burn bridges with Russia](https://www.bbc.com/news/world-europe-61118706)
 Repenting historical wrongs is a national pastime in Germany. But even by German standards, the soul-searching over Berlin's Russia policy is remarkable. 
 ### [Beautiful tourist town braces for Russian assault](https://www.bbc.com/news/world-europe-61139415)
@@ -15,7 +19,3 @@ An Egyptian TikTok star has been sentenced to three years in prison after a cour
 More than 40 people have been arrested after violent clashes in Sweden between police and people angry at plans by a far-right group to burn copies of the Quran. 
 ### [Death sentences over Pakistan blasphemy killing](https://www.bbc.com/news/world-asia-61144442)
 Six men have been sentenced to death over the mob killing of a Sri Lankan man accused of blasphemy in Pakistan.
-### [Emirates will fly to Russia unless owner stops it](https://www.bbc.com/news/business-61140802)
-Emirates' boss says the airline will keep flying to Russia unless its owner, the Dubai government, tells it not to.
-### [Captured Britons on Russian TV appeal for UK help](https://www.bbc.com/news/uk-61139735)
-Two British men reportedly captured by Russian forces while fighting in Ukraine have appeared on Russian state TV appealing to Boris Johnson for help.
