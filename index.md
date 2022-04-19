@@ -11,11 +11,11 @@ Manchester United footballer Cristiano Ronaldo and partner Georgina Rodriguez ha
 Evhen Ryabukon patted the coffin gently, and appeared to be having a final conversation with his son. He broke down, over and over again, before he could finish. 
 ### [Khan 'robbed at gunpoint' in London for watch](https://www.bbc.com/sport/boxing/61145668)
 Former world champion Amir Khan says he has been robbed at gunpoint while out with his wife in Leyton, east London.
-### [EU awaits French election outcome with trepidation](https://www.bbc.com/news/world-europe-61144679)
-European Union officials return to work on Tuesday after basking in a balmy bank holiday. But, just over the border, the EU's future is being fought over in the French presidential election.
+### [Deadly blasts target Kabul school for boys](https://www.bbc.com/news/world-asia-61148248)
+Two bomb blasts at a boys' school in the Afghan capital Kabul have killed at least six people and wounded more than 20, officials say.
 ### [Why Russia wants to seize Ukraine's eastern Donbas](https://www.bbc.com/news/world-europe-60938544)
 Russia has moved most of the focus of its war to eastern Ukraine, after pulling back its forces from near the capital Kyiv. Ukraine's leader Volodymyr Zelensky says the battle for the area known as Donbas has begun and a very large part of Russia's army is taking part. 
-### [Deadly blasts target Kabul school for boys](https://www.bbc.com/news/world-asia-61148248)
-A suspected twin suicide bombing outside a boys' school in the Afghan capital Kabul has killed at least six people and wounded 11, officials say.
-### [Battle for Donbas has begun, says Zelensky](https://www.bbc.com/news/world-europe-61145578)
-Ukraine's President Volodymyr Zelensky has said Russia has launched an assault to seize the eastern Donbas region. 
+### [Wiggins says he was groomed by a coach as a child](https://www.bbc.com/sport/cycling/61143244)
+Five-time Olympic champion and Tour de France winner Sir Bradley Wiggins says he was groomed by a coach when he was a child, and that he "buried it".
+### [Images appear to show sinking Russian warship](https://www.bbc.com/news/world-europe-61141118)
+Dramatic pictures - and a credible video - showing the Russian warship Moskva before it sank last week have appeared online.
