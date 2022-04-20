@@ -11,11 +11,11 @@ Ukraine's allies have pledged to send more weapons to help it defend against a r
  "How old are you"? It's a simple question with a clear answer. But for those in South Korea, answering this question is anything but straightforward. 
 ### [US spring snow storm leaves 300,000 in the dark](https://www.bbc.com/news/world-us-canada-61156861)
 A spring storm has caused power outages across states in the north-eastern US, with over a foot of snow falling in some places. 
-### [In maps: Russia begins a new offensive in Ukraine](https://www.bbc.com/news/world-europe-60506682)
-Russian forces have launched a new offensive in Ukraine's eastern Donbas region, having spent recent weeks concentrating troops and military equipment in the area.
+### [Nigerians sharing ‘school sex tape’ face 14 years](https://www.bbc.com/news/world-africa-61148189)
+Nigerians have been warned that sharing images of child pornography is an offence that carries a 14-year jail term after a video alleged to involve schoolchildren went viral.
 ### [PM sorry for party as Labour calls apology a joke](https://www.bbc.com/news/uk-politics-61154461)
 Boris Johnson has faced fury in the Commons after receiving a fine from the police for breaking lockdown laws.
 ### [Killed as he escaped, Elisei is one of 200 child victims](https://www.bbc.com/news/world-europe-61146084)
 Evhen Ryabukon patted the coffin gently, and appeared to be having a final conversation with his son. He broke down, over and over again, before he could finish. 
-### [US woman pleads guilty to faking 2016 kidnapping](https://www.bbc.com/news/world-us-canada-61153137)
-A California woman has pleaded guilty to faking her own high-profile kidnapping and lying to authorities in 2016. 
+### [In maps: Russia begins a new offensive in Ukraine](https://www.bbc.com/news/world-europe-60506682)
+Russian forces have launched a new offensive in Ukraine's eastern Donbas region, having spent recent weeks concentrating troops and military equipment in the area.
