@@ -1,21 +1,21 @@
 # News
 ### [Russian oligarch lambasts country's 'massacre'](https://www.bbc.com/news/business-61163546)
 A Russian oligarch has lambasted the country's "massacre" in Ukraine and called for an end to the "crazy war". 
-### [Ukraine round-up: Civilians trapped as fighter gives 'last address'](https://www.bbc.com/news/world-europe-61165278)
-Thousands of civilians remain trapped in the besieged city of Mariupol after an evacuation attempt to get them out stalled.
+### [Queen celebrates 96th birthday in Sandringham](https://www.bbc.com/news/uk-61167593)
+The Queen will celebrate her 96th birthday on Thursday in Sandringham. 
 ### ['This may be our last address' - Mariupol commander](https://www.bbc.com/news/world-europe-61159812)
 A Ukrainian marine commander in Mariupol has made what he described as his troops' "last address to the world" as they try to resist overwhelming Russian forces in the city.
 ### [French rivals for presidency clash in TV debate](https://www.bbc.com/news/world-europe-61166601)
 Four days before France votes on its next president, the two remaining candidates are going head to head in their only televised debate.
+### [Ukraine round-up: Civilians trapped as fighter gives 'last address'](https://www.bbc.com/news/world-europe-61165278)
+Thousands of civilians remain trapped in the besieged city of Mariupol after an evacuation attempt to get them out stalled.
 ### [Maximum fine for producers over Baldwin film death](https://www.bbc.com/news/entertainment-arts-61169495)
 The producers of a film whose cinematographer was accidentally shot dead on set by Alec Baldwin have been fined and strongly criticised by authorities for failing to follow safety guidelines.
-### [Germany rules out immediate ban on Russian oil](https://www.bbc.com/news/business-61164894)
-Germany is moving "as fast as possible" to end its reliance on Russian energy, but it will take time, the country's finance minister has said.
+### [Depp faces questioning in case against ex-wife](https://www.bbc.com/news/world-us-canada-61168837)
+Johnny Depp has sought to paint ex-wife Amber Heard as a volatile spouse who abused and demeaned him.
 ### [Netflix hints at password sharing crackdown](https://www.bbc.com/news/business-61153252)
 Netflix has hinted it will crack down on households sharing passwords as it seeks to sign up new members following a sharp fall in subscribers. 
+### [Germany rules out immediate ban on Russian oil](https://www.bbc.com/news/business-61164894)
+Germany is moving "as fast as possible" to end its reliance on Russian energy, but it will take time, the country's finance minister has said.
 ### [Holocaust survivor, 91, dead in Mariupol - reports](https://www.bbc.com/news/world-europe-61165270)
 An elderly Jewish woman who survived the Holocaust has died in the siege of Mariupol, her daughter told the Chabad.org news site.
-### [Ezra Miller arrested for second time in weeks](https://www.bbc.com/news/newsbeat-61161384)
-US actor Ezra Miller has been arrested after allegedly assaulting a woman in Hawaii.
-### [Why Koreans could soon become a year younger](https://www.bbc.com/news/world-asia-61117434)
- "How old are you"? It's a simple question with a clear answer. But for those in South Korea, answering this question is anything but straightforward. 
