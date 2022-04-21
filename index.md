@@ -9,13 +9,13 @@ A Ukrainian marine commander in Mariupol has made what he described as his troop
 The producers of a film whose cinematographer was accidentally shot dead on set by Alec Baldwin have been fined and strongly criticised by authorities for failing to follow safety guidelines.
 ### [Tesla profits soar as customers pay more](https://www.bbc.com/news/business-61170691)
 Tesla has been raising prices - but that hasn't seemed to dent demand for its electric cars.
-### [French rivals for presidency clash in TV debate](https://www.bbc.com/news/world-europe-61166601)
-Four days before France votes on its next president, the two remaining candidates have gone head to head in their only televised debate.
 ### [Depp faces questioning in case against ex-wife](https://www.bbc.com/news/world-us-canada-61168837)
 Johnny Depp has sought to paint ex-wife Amber Heard as a volatile spouse who abused and demeaned him.
+### [French rivals for presidency clash in TV debate](https://www.bbc.com/news/world-europe-61166601)
+Four days before France votes on its next president, the two remaining candidates have gone head to head in their only televised debate.
+### [Woman caught Covid twice within record 20 days](https://www.bbc.com/news/health-61161529)
+A 31-year-old healthcare worker caught Covid twice within 20 days - the shortest-known gap between infections, Spanish researchers have claimed. 
+### [Attenborough named 'Champion of the Earth' by UN](https://www.bbc.com/news/science-environment-61167925)
+Sir David Attenborough has been named a Champion of the Earth by the UN's Environment Programme.
 ### [Netflix hints at password sharing crackdown](https://www.bbc.com/news/business-61153252)
 Netflix has hinted it will crack down on households sharing passwords as it seeks to sign up new members following a sharp fall in subscribers. 
-### [Ukraine round-up: Civilians trapped as fighter gives 'last address'](https://www.bbc.com/news/world-europe-61165278)
-Thousands of civilians remain trapped in the besieged city of Mariupol after an evacuation attempt to get them out stalled.
-### [Germany rules out immediate ban on Russian oil](https://www.bbc.com/news/business-61164894)
-Germany is moving "as fast as possible" to end its reliance on Russian energy, but it will take time, the country's finance minister has said.
