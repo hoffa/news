@@ -1,21 +1,21 @@
 # News
 ### [Russian tycoon lambasts country's 'massacre'](https://www.bbc.com/news/business-61163546)
 A Russian tycoon has lambasted the country's "massacre" in Ukraine and called for an end to the "crazy war". 
+### [Queen celebrates 96th birthday in Sandringham](https://www.bbc.com/news/uk-61167593)
+The Queen is celebrating her 96th birthday on Thursday in Sandringham. 
+### [French rivals for presidency clash in TV debate](https://www.bbc.com/news/world-europe-61166601)
+The two candidates for the French presidency have gone head to head in their only televised debate, ahead of Sunday's second-round run-off vote.
 ### [Depp says ex-wife abused and demeaned him](https://www.bbc.com/news/world-us-canada-61168837)
 Johnny Depp has sought to paint ex-wife Amber Heard as a volatile spouse who abused and demeaned him.
 ### [Woman caught Covid twice within record 20 days](https://www.bbc.com/news/health-61161529)
 A 31-year-old healthcare worker caught Covid twice within 20 days - the shortest-known gap between infections, Spanish researchers have claimed. 
-### [French rivals for presidency clash in TV debate](https://www.bbc.com/news/world-europe-61166601)
-The two candidates for the French presidency have gone head to head in their only televised debate, ahead of Sunday's second-round run-off vote.
-### [Queen celebrates 96th birthday in Sandringham](https://www.bbc.com/news/uk-61167593)
-The Queen is celebrating her 96th birthday on Thursday in Sandringham. 
+### [A$AP Rocky arrested in connection with shooting](https://www.bbc.com/news/entertainment-arts-61174333)
+The rapper A$AP Rocky has been arrested in connection with a shooting last November, Los Angeles police have said.
 ### [Working with assertive China a must: Jacinda Ardern](https://www.bbc.com/news/world-asia-61160207)
 New Zealand has been aware for some time now of a "growing assertiveness" and a "growing interest" in its region - explicitly from China, according to Prime Minister Jacinda Ardern. 
-### [Tesla profits soar as customers pay more](https://www.bbc.com/news/business-61170691)
-Tesla has been raising prices - but that hasn't seemed to dent demand for its electric cars.
-### [Maximum fine for producers over Baldwin film death](https://www.bbc.com/news/entertainment-arts-61169495)
-The producers of a film whose cinematographer was accidentally shot dead on set by Alec Baldwin have been fined and strongly criticised by authorities for failing to follow safety guidelines.
 ### [Australia PM in disability row over word 'blessed'](https://www.bbc.com/news/world-australia-61171449)
 Australian Prime Minister Scott Morrison has been criticised for telling an audience he is "blessed" not to have children with disabilities.
-### [Tory donor’s ‘link’ to sanctioned oligarch’s firm](https://www.bbc.com/news/uk-politics-61080537)
-A major Conservative Party donor was listed as a director of a company secretly owned by a Russian oligarch close to President Putin.
+### [Tesla profits soar as customers pay more](https://www.bbc.com/news/business-61170691)
+Tesla has been raising prices - but that hasn't seemed to dent demand for its electric cars.
+### [Russians who denounce war 'should play Wimbledon'](https://www.bbc.com/sport/tennis/61172686)
+Russian and Belarusian players who speak out against Russia's invasion of Ukraine "should be allowed" to compete at Wimbledon, says Elina Svitolina.
