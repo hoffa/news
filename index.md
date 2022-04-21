@@ -15,7 +15,7 @@ The two candidates for the French presidency have gone head to head in their onl
 Belgian Foreign Minister Sophie Wilmès says she will temporarily step down to care for her husband, who has been diagnosed with brain cancer. 
 ### [Woman caught Covid twice within record 20 days](https://www.bbc.com/news/health-61161529)
 A 31-year-old healthcare worker caught Covid twice within 20 days - the shortest-known gap between infections, Spanish researchers have claimed. 
-### [Six die after plane crashes on to busy road](https://www.bbc.com/news/world-latin-america-61176973)
-A small plane has crashed on to a major road in the Haitian capital, Port-au-Prince, killing at least six people.
 ### [Working with assertive China a must: Jacinda Ardern](https://www.bbc.com/news/world-asia-61160207)
 New Zealand has been aware for some time now of a "growing assertiveness" and a "growing interest" in its region - explicitly from China, according to Prime Minister Jacinda Ardern. 
+### [Six die after plane crashes on to busy road](https://www.bbc.com/news/world-latin-america-61176973)
+A small plane has crashed on to a major road in the Haitian capital, Port-au-Prince, killing at least six people.
