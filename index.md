@@ -8,7 +8,7 @@ A 31-year-old healthcare worker caught Covid twice within 20 days - the shortest
 ### [French rivals for presidency clash in TV debate](https://www.bbc.com/news/world-europe-61166601)
 The two candidates for the French presidency have gone head to head in their only televised debate, ahead of Sunday's second-round run-off vote.
 ### [Queen celebrates 96th birthday in Sandringham](https://www.bbc.com/news/uk-61167593)
-The Queen will celebrate her 96th birthday on Thursday in Sandringham. 
+The Queen is celebrating her 96th birthday on Thursday in Sandringham. 
 ### [Working with assertive China a must: Jacinda Ardern](https://www.bbc.com/news/world-asia-61160207)
 New Zealand has been aware for some time now of a "growing assertiveness" and a "growing interest" in its region - explicitly from China, according to Prime Minister Jacinda Ardern. 
 ### [Tesla profits soar as customers pay more](https://www.bbc.com/news/business-61170691)
@@ -17,5 +17,5 @@ Tesla has been raising prices - but that hasn't seemed to dent demand for its el
 The producers of a film whose cinematographer was accidentally shot dead on set by Alec Baldwin have been fined and strongly criticised by authorities for failing to follow safety guidelines.
 ### [Australia PM in disability row over word 'blessed'](https://www.bbc.com/news/world-australia-61171449)
 Australian Prime Minister Scott Morrison has been criticised for telling an audience he is "blessed" not to have children with disabilities.
-### ['This may be our last address' - Mariupol commander](https://www.bbc.com/news/world-europe-61159812)
-A Ukrainian marine commander in Mariupol has made what he described as his troops' "last address to the world" as they try to resist overwhelming Russian forces in the city.
+### [Tory donor’s ‘link’ to sanctioned oligarch’s firm](https://www.bbc.com/news/uk-politics-61080537)
+A major Conservative Party donor was listed as a director of a company secretly owned by a Russian oligarch close to President Putin.
