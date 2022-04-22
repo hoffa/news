@@ -9,13 +9,13 @@ Deep underground amidst the Alps, scientists are barely able to contain their ex
 UK scientists have undertaken a huge "archaeological dig" of cancer in the UK, analysing the complete genetic make-up - or whole genome sequence - of tumours from about 12,000 patients.
 ### [CNN streaming service to shut a month after launch](https://www.bbc.com/news/business-61185298)
 CNN's new owner says it will close the US-based news channel's streaming service just a month after it launched. 
-### [Mariupol: 'We have wounded and dead inside the bunkers'](https://www.bbc.com/news/world-europe-61183062)
-One of the last Ukrainian defenders in Mariupol has told the BBC that the besieged steelworks where they are holed up is largely destroyed above ground and civilians are trapped under collapsed buildings.
-### [Tom Grennan recovering after NYC attack](https://www.bbc.com/news/entertainment-arts-61186012)
-UK singer Tom Grennan is recovering from an "unprovoked attack" which has left him with injuries including a torn ear-drum, his manager has announced.
 ### [Shanghai escalates Covid lockdown restrictions](https://www.bbc.com/news/world-asia-china-61137649)
 Authorities in Shanghai have said they will tighten the enforcement of lockdown measures, as a Covid surge continues in China's financial capital.
-### [‘Driving into the hell of Mariupol to save my parents’](https://www.bbc.com/news/world-europe-61178199)
-As Russian forces encircled Mariupol, a Ukrainian woman undertook an extraordinary journey into the besieged city to rescue her parents. She is among a small number of people who have braved the risk of attack or abduction to drive in through front lines and a blockade. She has told the BBC of the "apocalypse" she witnessed there. 
+### [Tom Grennan recovering after NYC attack](https://www.bbc.com/news/entertainment-arts-61186012)
+UK singer Tom Grennan is recovering from an "unprovoked attack" which has left him with injuries including a torn ear-drum, his manager has announced.
+### [Mariupol: 'We have wounded and dead inside the bunkers'](https://www.bbc.com/news/world-europe-61183062)
+One of the last Ukrainian defenders in Mariupol has told the BBC that the besieged steelworks where they are holed up is largely destroyed above ground and civilians are trapped under collapsed buildings.
 ### [Bride arrested for 'adding cannabis to wedding food'](https://www.bbc.com/news/world-us-canada-61181606)
 Police in Florida have arrested a bride and her caterer after finding they allegedly added cannabis to food that was later served to wedding guests. 
+### [‘Driving into the hell of Mariupol to save my parents’](https://www.bbc.com/news/world-europe-61178199)
+As Russian forces encircled Mariupol, a Ukrainian woman undertook an extraordinary journey into the besieged city to rescue her parents. She is among a small number of people who have braved the risk of attack or abduction to drive in through front lines and a blockade. She has told the BBC of the "apocalypse" she witnessed there. 
