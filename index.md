@@ -17,5 +17,5 @@ Video footage has emerged from the city of Mariupol in Ukraine showing the bodie
 Guns overtook car crashes to become the leading cause of death for US children and teenagers in 2020, new research shows.
 ### [French rivals trade taunts in final bid to voters](https://www.bbc.com/news/world-europe-61194641)
 The two candidates fighting for the French presidency have launched bitter attacks on each other in a final bid to win over millions of undecided voters before Sunday's election.
-### [Russia plans to take southern Ukraine - commander](https://www.bbc.com/news/world-europe-61188943)
-Russia is aiming to take full control of southern Ukraine as well as the eastern Donbas region, a senior Russian commander says.
+### [Why Grenada wanted to talk to royals about slavery](https://www.bbc.com/news/uk-61195471)
+Negative headlines followed the Duke and Duchess of Cambridge's tour of the Caribbean, while hours before they landed for their own tour, the Earl and Countess of Wessex cancelled a visit to Grenada. So what did Grenadians want to tell the royals about Britain's past?
