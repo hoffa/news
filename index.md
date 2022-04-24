@@ -1,10 +1,10 @@
 # News
 ### [French vote as Macron aims to beat far-right Le Pen](https://www.bbc.com/news/world-europe-61204543)
 French voters are heading to the polls to decide whether to give centrist Emmanuel Macron five more years as president or replace him with far-right candidate Marine Le Pen.
-### [First trans MP says part of him died after rape](https://www.bbc.com/news/uk-wales-politics-61207083)
-The first MP to come out as transgender has said he hopes to begin transitioning "as quickly as possible".
 ### ['My negative online review was blocked'](https://www.bbc.com/news/business-60252909)
 The UK has proposed new rules making fake reviews of goods illegal. But experts say that's not the only way companies are skewing buyer perception.
+### [First trans MP says part of him died after rape](https://www.bbc.com/news/uk-wales-politics-61207083)
+The first MP to come out as transgender has said he hopes to begin transitioning "as quickly as possible".
 ### [Ten confirmed dead from missing Japan tourist boat](https://www.bbc.com/news/world-asia-61202599)
 At least 10 people have been killed after a tourist boast went missing off the northern Japanese island of Hokkaido, the Japan Coast Guard says.
 ### [Censors try to block viral Shanghai lockdown video](https://www.bbc.com/news/world-asia-china-61202603)
