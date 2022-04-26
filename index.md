@@ -1,10 +1,12 @@
 # News
-### [Russia to suspend gas supplies to Poland](https://www.bbc.com/news/business-61237519)
-Russia will stop sending gas to Poland from Wednesday, the Polish state gas company PGNiG has said.
-### [Gaza farmer finds 4,500-year-old statue of goddess](https://www.bbc.com/news/world-middle-east-61228553)
-A stone statue of an ancient goddess of beauty, love and war has been found in the Gaza Strip.  
+### [Ukraine round-up: UN diplomacy and gas shutdown](https://www.bbc.com/news/world-europe-61233794)
+It was a day of diplomacy over Ukraine as the UN's Secretary General António Guterres travelled to Russia and met President Vladimir Putin while Russia showed the first signs of following through on threats to restrict gas supplies to EU states.
+### [Russia to halt gas supplies to Poland and Bulgaria](https://www.bbc.com/news/business-61237519)
+Russian energy firm Gazprom has told Poland and Bulgaria it will stop sending gas to the two countries from Wednesday. 
 ### [Biden pardons 86-year-old ex-Secret Service agent](https://www.bbc.com/news/world-us-canada-61232241)
 The first African American to serve on a presidential security detail is among three people to have been pardoned by US President Joe Biden.
+### [Gaza farmer finds 4,500-year-old statue of goddess](https://www.bbc.com/news/world-middle-east-61228553)
+A stone statue of an ancient goddess of beauty, love and war has been found in the Gaza Strip.  
 ### [Ukraine war to cause 'worst price shock in 50 years'](https://www.bbc.com/news/business-61235528)
 The war in Ukraine is set to cause the "largest commodity shock" since the 1970s, the World Bank has warned. 
 ### [Russia accuses UK of provoking attacks on its soil](https://www.bbc.com/news/uk-61235301)
@@ -15,7 +17,5 @@ Oscar-winning actress Viola Davis has hit back at critics over her portrayal of 
 Twitter is usually awash with topics for discussion, but over the past couple of days one has stood out on the platform above others - what does the future hold for Twitter itself?
 ### [Aftermath video of Baldwin shooting on set released](https://www.bbc.com/news/world-us-canada-61226637)
 Police have released footage from the set of the film Rust, including of the aftermath of the fatal shooting of a cinematographer by actor Alec Baldwin.
-### [Elon Musk warned he must protect Twitter users](https://www.bbc.com/news/business-61225355)
-Elon Musk has been warned he must protect Twitter users from harmful content after he struck a $44bn deal to buy the social media giant.
-### [Ukraine can hit Russia with UK weapons - minister](https://www.bbc.com/news/uk-61226431)
-It would be acceptable for Ukrainian forces to use Western weapons to attack military targets on Russian soil, a UK defence minister has said.
+### [Chinese tutors killed in Karachi university attack](https://www.bbc.com/news/world-asia-61229589)
+Three Chinese language teachers and their Pakistani driver were killed in a suspected suicide bombing in the southern city of Karachi, police say.
