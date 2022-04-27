@@ -17,5 +17,5 @@ A former US marine held in a Russian jail since 2019 has been released in a pris
 Tesla shares have fallen after investor concerns that boss Elon Musk may have to sell shares in the electric car maker to help pay for the takeover of Twitter.
 ### [Kebab seller image wins world food photo contest](https://www.bbc.com/news/in-pictures-61222913)
 A photo of a street food vendor working at a smoke-covered oven has won a major food photography award. 
-### [Soldiers passed off killed civilians as rebels](https://www.bbc.com/news/world-latin-america-61241880)
-Eleven Colombian ex-soldiers are giving details about extrajudicial killings carried out by the army during Colombia's armed conflict.
+### [Humanity's 'insatiable greed' degrading lands - UN](https://www.bbc.com/news/science-environment-61221666)
+Human activities are damaging and degrading the lands of the Earth in an unsustainable fashion according to a new UN report. 
