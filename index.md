@@ -15,7 +15,7 @@ Israel's Prime Minister Naftali Bennett says he will now pay for his family's fo
 The Central African Republic (CAR) has approved Bitcoin as legal tender - just the second country to do so.
 ### [Lottery winner 'addicted' to giving away millions](https://www.bbc.com/news/uk-england-tees-61241436)
 A lottery winner who scooped a £115m fortune and has given away more than half her winnings said she is "addicted" to helping others.
-### [Duke of York loses Freedom of City honour](https://www.bbc.com/news/uk-england-york-north-yorkshire-61247885)
-The Duke of York has been stripped of his Freedom of the City of York honour following a vote by councillors.
 ### [The Paralympian who posed for Playboy](https://www.bbc.com/sport/disability-sport/61245516)
 Elena Krawzow dives off the blocks. There's half a beat of silence. A moment of stillness. Then her hands cut the surface. A rush of water, a crash of noise. She submerges and starts counting.
+### [Tory MP accused of watching porn in Commons](https://www.bbc.com/news/uk-politics-61245040)
+An independent investigation could be launched into claims a Tory MP watched porn on his phone while in the Commons.
