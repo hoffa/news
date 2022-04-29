@@ -17,5 +17,5 @@ A US family caused a bomb scare at Ben Gurion airport in Israel on Thursday afte
 A drop in online sales and rising costs have helped to push Amazon to its first loss since 2015.
 ### [Woman's cake, stolen in 1945, replaced by US Army](https://www.bbc.com/news/world-us-canada-61265618)
 The US Army has given a birthday cake to an Italian woman - to replace one that American soldiers stole from her as it cooled by a window 77 years ago.
-### [German energy firm ready to meet Russian pay demand](https://www.bbc.com/news/business-61257846)
-One of Germany's biggest energy firms has said it is preparing to buy Russian gas using a payment system that critics say will undermine EU sanctions.
+### [Exercise to treat arthritis, new advice suggests](https://www.bbc.com/news/health-61255733)
+Exercise is good for people with wear-and-tear joint arthritis and should be a "core treatment", new draft guidelines for the NHS advise. 
