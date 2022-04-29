@@ -51,8 +51,7 @@ func getArticles() []Article {
 }
 
 func main() {
-	fmt.Println("# News")
 	for _, article := range getArticles() {
-		fmt.Println("### [" + article.Title + "](" + article.URL + ")\n" + article.Summary)
+		fmt.Println("## [" + article.Title + "](" + article.URL + ")\n" + article.Summary)
 	}
 }
