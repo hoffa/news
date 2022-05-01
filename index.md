@@ -1,20 +1,20 @@
-## [US accuses Russia of 'depravity and brutality'](https://www.bbc.com/news/world-europe-61280409)
-The US defence department has accused Russian President Vladimir Putin of acting with "depravity" in his invasion of Ukraine.
-## [Tennis champion Boris Becker jailed over bankruptcy](https://www.bbc.com/news/uk-61276378)
-Former Wimbledon champion Boris Becker has been jailed for two and a half years for hiding £2.5m worth of assets and loans to avoid paying debts.
+## [Civilians escape besieged Mariupol steelworks](https://www.bbc.com/news/world-europe-61285178)
+A group of about 20 civilians has left the Azovstal steelworks in Mariupol, the final part of the southern city still in the hands of Ukrainian troops. 
+## [Kherson defiant as Russia plans to use roubles](https://www.bbc.com/news/world-europe-61286505)
+The Russian rouble will be used in Kherson from Sunday, according to Russia-backed forces that have taken control of the southern Ukrainian city.
+## [Family of Hotel Rwanda hero files $400m US lawsuit](https://www.bbc.com/news/world-africa-61288030)
+The family of Paul Rusesabagina, the subject of Oscar-nominated film Hotel Rwanda, have filed a $400m (£307m) lawsuit in the United States over his alleged abduction and torture.
 ## [Ukraine - the narrative the West doesn't hear](https://www.bbc.com/news/world-europe-61272203)
 "Ukraine and its allies, including London, are threatening Russia for the last 1,000 years, to move Nato to our borders, to cancel our culture - they have bullied us for many, many years." 
-## [PC who went on Big Brother gets written warning](https://www.bbc.com/news/uk-england-london-61277417)
-A police officer who appeared on the Nigerian version of Big Brother without permission from her bosses has been given a final written warning.
-## [Depp v Heard: What you might have missed this week](https://www.bbc.com/news/world-us-canada-61263794)
-We're now three weeks into Johnny Depp's defamation trial against his former partner, Amber Heard. Mr Depp has sued Ms Heard for $50m (£40m) over an article she wrote in which she claimed to be a victim of domestic abuse. Ms Heard is countersuing for $100m. 
-## [How big are Trump's legal problems?](https://www.bbc.com/news/world-us-canada-61084161)
-He may have been out of power for over a year, but legal issues related to his time in office still present some risk to former President Donald Trump.
-## [UK should take back Virgin Islands rule - review](https://www.bbc.com/news/uk-61276109)
-The British Virgin Islands' (BVI) constitution should be suspended and its government dissolved, a review says, amid concerns about corruption.
-## [Venus and Jupiter to almost touch in night sky](https://www.bbc.com/news/science-environment-61259569)
-Look up in the sky at the right moment on Saturday and you could see two of the solar system's brightest planets almost touching.
-## [Ukraine hunts for soldiers accused of Bucha crimes](https://www.bbc.com/news/world-europe-61269480)
-Ukraine has launched a hunt for 10 Russian soldiers accused of war crimes in Bucha - the town outside of the capital Kyiv where civilians were tortured, raped and murdered.
-## [IS 'Beatle' sentenced to life in US court](https://www.bbc.com/news/world-us-canada-61274332)
-An Islamic State group militant from the UK has been jailed for life by a US court for his involvement with a notorious hostage-taking terror cell.
+## [Ukraine round-up: Russia ramps up attacks in east](https://www.bbc.com/news/world-europe-61284481)
+Russia is reportedly ramping up its attacks ahead of a possible renewed offensive in the east of Ukraine, 66 days into the war.
+## [No longer plain sailing in world of megayachts](https://www.bbc.com/news/world-us-canada-61047921)
+It's a seven-star resort you can take anywhere - the epitome of freedom and luxury. But as the West goes after the assets of wealthy Russians, the industry is bracing itself for stormy seas ahead. 
+## [Germany takes Italy to court over WW2 compensation](https://www.bbc.com/news/world-europe-61285285)
+Germany has filed a case against Italy at the UN's highest court over attempts within Italy to claim compensation for Nazi-era war crimes. 
+## [I quit as MP after porn moment of madness - Parish](https://www.bbc.com/news/uk-politics-61284686)
+Neil Parish has told the BBC he is resigning as an MP after admitting he watched pornography twice in Parliament.
+## [Kansas tornado inflicts heavy damage on cities](https://www.bbc.com/news/world-us-canada-61281692)
+A tornado has been filmed tearing through part of the US state of Kansas, with pictures showing cars crumpled into buildings and homes without roofs.
+## [Taylor-Serrano 'delivers KO to boxing's sexist past'](https://www.bbc.com/sport/boxing/61251842)
+When boxing world champion Jane Couch wanted to fight in her home country, the British Boxing Board of Control said women were too "emotionally unstable".
