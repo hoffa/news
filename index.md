@@ -1,20 +1,20 @@
-## [Attacks resume on Mariupol plant - Ukraine commander](https://www.bbc.com/news/world-europe-61296851)
-Attacks have resumed on Mariupol's steel works, despite hundreds of civilians remaining trapped inside, a Ukrainian officer has said. 
-## [Israel fury at Lavrov's 'Hitler part Jewish' claim](https://www.bbc.com/news/world-middle-east-61296682)
-Israel has reacted with fury after Russia's foreign minister claimed that Nazi leader Adolf Hitler "had Jewish blood".
-## [US cop 'fatally shot unarmed 12-year-old in back'](https://www.bbc.com/news/world-us-canada-61301916)
-A former Philadelphia police officer has been charged with murder for fatally shooting a 12-year-old boy in the head following a foot chase in early March. 
-## [Alabama hunt for missing prison inmate and guard](https://www.bbc.com/news/world-us-canada-61294585)
-US police are searching for an escaped inmate who is facing murder charges, and a guard who may have helped him. 
-## [Woman with one leg passes marathon world record](https://www.bbc.com/news/world-us-canada-61299527)
-A woman who took up running after she lost her left leg to cancer has passed the Guinness World Record for most consecutive marathons.
-## [Work from home for 20% less pay, says city law firm](https://www.bbc.com/news/business-61298394)
-A London law firm has offered staff the option to work from home permanently, but the convenience comes at a price.
-## [Weather students die in crash after tornado chase](https://www.bbc.com/news/world-us-canada-61300036)
-Three meteorology students died in a car crash while returning from a storm-chasing trip in Kansas.
-## [Netflix cancels Meghan Markle animated series](https://www.bbc.com/news/business-61294978)
-Netflix has cancelled development of Pearl, an animated series created by Meghan Markle, in its move to cut costs. 
-## ['Children drank rainwater from puddles to survive'](https://www.bbc.com/news/uk-wales-61250092)
-Hearing how her best friend's children were drinking rainwater from puddles to survive the war in Ukraine is why Nataliia Roberts wants her in the UK.
-## [Amazon will pay staff travel expenses for abortions](https://www.bbc.com/news/world-us-canada-61301911)
-Amazon will reimburse staff in the US who travel for a wide range of non-life threatening medical treatments including elective abortions.
+## [Abortion ruling leak is genuine, says top US court](https://www.bbc.com/news/world-us-canada-61313517)
+A leaked document suggesting millions of US women could lose the legal right to abortion is genuine, the Supreme Court's chief justice has confirmed.
+## [Missing US guard and inmate had 'relationship'](https://www.bbc.com/news/world-us-canada-61315333)
+An escaped inmate and a guard suspected of helping him had a "special relationship", say investigators.
+## [22 of the hottest looks from the 2022 Met Gala](https://www.bbc.com/news/entertainment-arts-61037393)
+Kim Kardashian grabbed the headlines at Monday's Met Gala as she stepped into a dress which was last worn by Marilyn Monroe six decades ago.
+## [Britain's Got Talent star paralysed after stunt](https://www.bbc.com/news/uk-wales-61314239)
+Britain's Got Talent star Jonathan Goodwin has been left paralysed after a stunt went wrong, his fiancee Amanda Abbington has said.
+## [Ed Sheeran collaboration written on front line](https://www.bbc.com/news/world-europe-61308809)
+Ukrainian group Antytila have teamed up with Ed Sheeran, releasing a new song partly filmed and recorded while serving in the war against Russia. 
+## [Putin tells Macron West should stop arming Ukraine](https://www.bbc.com/news/world-europe-61313732)
+Russian President Vladimir Putin has said the West could help end the war in Ukraine by putting more pressure on President Volodymyr Zelensky and halting arms deliveries to his forces. 
+## [Russian mercenaries accused of CAR atrocities](https://www.bbc.com/news/world-africa-61311272)
+Russian mercenaries have been accused of summarily executing, torturing and beating civilians in the Central African Republic (CAR).
+## [US women divided on leaked abortion ruling](https://www.bbc.com/news/world-us-canada-61314861)
+The shockwaves from the leaked Supreme Court draft ruling are reverberating across the US - in both anti-abortion and pro-choice circles.
+## [Mariupol steelworks evacuees reach safety](https://www.bbc.com/news/world-europe-61311527)
+A group of civilians who have been evacuated from the besieged city of Mariupol have made their way to the relative safety of the town of Zaporizhzhia after a 200-km journey.
+## [Russia beats final deadline to avoid debt default](https://www.bbc.com/news/business-61313296)
+Russia has avoided defaulting on its government debts by making necessary payments in US dollars, shortly before the final deadline passed on 4 March. 
