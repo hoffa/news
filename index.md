@@ -1,20 +1,20 @@
-## [Abortion ruling leak is genuine, says top US court](https://www.bbc.com/news/world-us-canada-61313517)
-A leaked document suggesting millions of US women could lose the legal right to abortion is genuine, the Supreme Court's chief justice has confirmed.
-## [Missing US guard and inmate had 'relationship'](https://www.bbc.com/news/world-us-canada-61315333)
-An escaped inmate and a guard suspected of helping him had a "special relationship", say investigators.
-## [22 of the hottest looks from the 2022 Met Gala](https://www.bbc.com/news/entertainment-arts-61037393)
-Kim Kardashian grabbed the headlines at Monday's Met Gala as she stepped into a dress which was last worn by Marilyn Monroe six decades ago.
-## [Britain's Got Talent star paralysed after stunt](https://www.bbc.com/news/uk-wales-61314239)
-Britain's Got Talent star Jonathan Goodwin has been left paralysed after a stunt went wrong, his fiancee Amanda Abbington has said.
-## [Ed Sheeran collaboration written on front line](https://www.bbc.com/news/world-europe-61308809)
-Ukrainian group Antytila have teamed up with Ed Sheeran, releasing a new song partly filmed and recorded while serving in the war against Russia. 
-## [Putin tells Macron West should stop arming Ukraine](https://www.bbc.com/news/world-europe-61313732)
-Russian President Vladimir Putin has said the West could help end the war in Ukraine by putting more pressure on President Volodymyr Zelensky and halting arms deliveries to his forces. 
-## [Russian mercenaries accused of CAR atrocities](https://www.bbc.com/news/world-africa-61311272)
-Russian mercenaries have been accused of summarily executing, torturing and beating civilians in the Central African Republic (CAR).
-## [US women divided on leaked abortion ruling](https://www.bbc.com/news/world-us-canada-61314861)
-The shockwaves from the leaked Supreme Court draft ruling are reverberating across the US - in both anti-abortion and pro-choice circles.
-## [Mariupol steelworks evacuees reach safety](https://www.bbc.com/news/world-europe-61311527)
-A group of civilians who have been evacuated from the besieged city of Mariupol have made their way to the relative safety of the town of Zaporizhzhia after a 200-km journey.
-## [Russia beats final deadline to avoid debt default](https://www.bbc.com/news/business-61313296)
-Russia has avoided defaulting on its government debts by making necessary payments in US dollars, shortly before the final deadline passed on 4 March. 
+## [Amber Heard says Depp struck her when on drugs](https://www.bbc.com/news/world-us-canada-61329067)
+Amber Heard has told a court that Johnny Depp repeatedly struck her during drug and alcohol-fuelled rages that she said turned her ex-husband into an "awful thing". 
+## [Russia launches major attack on steelworks - Ukraine](https://www.bbc.com/news/world-europe-61327638)
+Ukrainian officials say Russian forces have launched an all-out assault on the Azovstal steelworks, the last Ukrainian holdout in the city of Mariupol.  
+## [Nonuplets 'in perfect health' on first birthday](https://www.bbc.com/news/world-africa-61318427)
+The world's only nonuplets - nine babies born at the same time - are "in perfect health" as they celebrate their first birthday, their father has told the BBC.
+## [Russia denies it plans to formally declare war](https://www.bbc.com/news/world-europe-61321799)
+Russia has dismissed speculation that it will declare all-out war in Ukraine in the coming days as "nonsense".
+## [US makes biggest interest rate rise in 22 years](https://www.bbc.com/news/business-61324482)
+The US central bank has announced its biggest interest rate increase in more than two decades as it toughens its fight against fast rising prices.
+## [America's first English settlement now endangered](https://www.bbc.com/news/world-us-canada-61315343)
+One of the most important historic sites in America has been put on a list of endangered places. Preservation groups warn that Jamestown, Virginia, may not survive another generation because of climate change. 
+## [Dolly joins Rock Hall of Fame despite objection](https://www.bbc.com/news/entertainment-arts-61323196)
+Dolly Parton has been voted into the Rock & Roll Hall of Fame, despite previously asking to "respectfully bow out" of contention for the honour.
+## [Kim Kardashian criticised over Marilyn dress diet](https://www.bbc.com/news/entertainment-arts-61318361)
+Kim Kardashian has been accused of sending a damaging message about dieting, after saying she had lost 1st 2lb (7.3kg) in three weeks to fit into a dress once worn by Marilyn Monroe.
+## [Reported Iran plan to execute doctor alarms Sweden](https://www.bbc.com/news/world-middle-east-61325387)
+Sweden's foreign minister says a report that Iran plans to execute a Swedish-Iranian doctor convicted of espionage this month is "extremely worrying". 
+## [Kenyans petition Prince William over land eviction](https://www.bbc.com/news/world-africa-61320475)
+A group of more than 100,000 Kenyans from the Talai clan has written to Prince William to seek an apology, and his support for reparations for human rights abuses they say they suffered during the British colonial settlement. 
