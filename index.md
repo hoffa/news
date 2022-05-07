@@ -1,20 +1,20 @@
-## [Youngest congressman defiant after naked tape leak](https://www.bbc.com/news/world-us-canada-61341641)
-The United States' youngest congressman has said he won't "back down" after a naked video of him in bed was leaked. 
-## [Jealous Depp kicked me over Franco 'affair' - Heard](https://www.bbc.com/news/world-us-canada-61339174)
-Amber Heard says a perceived affair with fellow actor James Franco led to ex-husband Johnny Depp assaulting her on a cross-country flight in 2014.
-## [Putin sorry for minister's Nazi comments - Israel](https://www.bbc.com/news/world-middle-east-61339749)
-Russia's President Vladimir Putin has apologised after his foreign minister said that Nazi leader Adolf Hitler had "Jewish blood", Israel says.
-## [More evacuations from Mariupol 'hellscapes' - UN](https://www.bbc.com/news/world-europe-61342436)
-A third operation to pull civilians from Mariupol is due on Friday, the UN says, as more fighting was reported for control of a steelworks where the last Ukrainian defenders are holding out.
-## [Ukraine war has dragged on, admits top Russia ally](https://www.bbc.com/news/world-europe-61339742)
-A key ally of Russia, authoritarian Belarusian leader Alexander Lukashenko, has defended the war in Ukraine while indicating it has not gone to plan.
-## [White House names first black press secretary](https://www.bbc.com/news/world-us-canada-61274336)
-President Biden has named Karine Jean-Pierre as his new top spokesperson - the first time a black, or openly gay, person has held the role.
-## [Bill Gates on Musk feud and Epstein meetings](https://www.bbc.com/news/technology-61329167)
-In a wide-ranging interview with the BBC's Today programme, Bill Gates says conspiracy theories about him are "crazy" and that being shouted at in public is "awful". He also told the BBC's Mishal Husain that meeting Jeffrey Epstein was a "mistake" and talks about Elon Musk's recent public criticism of him.
-## [Does US really have world's highest Covid death toll?](https://www.bbc.com/news/61333847)
-The US is approaching one million Covid deaths - the highest total officially recorded anywhere in the world.
-## [Why 9 May Victory Day is so important for Russia](https://www.bbc.com/news/world-europe-61332283)
-It has become an annual event - the  military parade in Red Square in Moscow and cities across Russia on 9 May, when the country marks its victory over Nazi Germany in 1945.
-## [Carrier bag mistaken for stray lion triggers alarm](https://www.bbc.com/news/world-africa-61335539)
-The three armed Kenyan wildlife officers must have been on high alert as they cautiously approached a homestead following reports that a stray lion had been sighted in the area.
+## [Zelensky lays out red lines for peace with Russia](https://www.bbc.com/news/world-europe-61359228)
+Any peace deal with Russia would depend on Russian forces pulling back to their pre-invasion positions, Ukraine's president says.
+## [Who is Alina Kabaeva, Putin's alleged girlfriend?](https://www.bbc.com/news/world-europe-61353020)
+Russia is already under unprecedented sanctions and now the EU could target Alina Kabaeva, a politician, media boss, former Olympic gymnast, and - if the rumours are true - Vladimir Putin's girlfriend and mother to some of his children.
+## [Trump ally defeats bid to block her re-election](https://www.bbc.com/news/world-us-canada-61358187)
+A US judge has denied a bid to block a congresswoman from seeking re-election over claims her rhetoric before last year's US Capitol riot amounted to engaging in insurrection.
+## [Eighteen dead after huge blast rocks Havana hotel](https://www.bbc.com/news/world-latin-america-61358186)
+At least 18 people have died and more than 60 have been hospitalised after a massive explosion rocked one of Cuba's most exclusive five-star hotels.
+## [Italy orders seizure of yacht linked to Putin](https://www.bbc.com/news/61357256)
+Italy has ordered the seizure of a $700m yacht linked to Russia's President Vladimir Putin. 
+## [Harry and Andrew will not appear on palace balcony](https://www.bbc.com/news/uk-61351158)
+Prince Harry and Prince Andrew will not appear on the Buckingham Palace balcony as part of opening celebrations for the Queen's Platinum Jubilee.
+## [Depp v Heard: What you may have missed this week](https://www.bbc.com/news/world-us-canada-61354294)
+Amber Heard took the stand this week in her defamation trial against Johnny Depp, giving jurors a wildly different account of the pair's relationship to the one presented by her ex-husband's team.
+## [US officer jailed over arrest of elderly woman](https://www.bbc.com/news/world-us-canada-61339176)
+A former Colorado police officer has been sentenced to five years in prison for assaulting a woman with dementia during an arrest in June 2020. 
+## [PM says tough night for Tories amid council losses](https://www.bbc.com/news/uk-politics-61343355)
+The Conservatives have suffered significant losses at Thursday's local elections, losing almost 500 seats and control of 11 councils. 
+## [Shooting on Dutch care farm leaves two dead](https://www.bbc.com/news/world-europe-61347237)
+Two people have been shot dead and two others wounded on a Dutch care farm that provides therapy for people with disabilities or mental health issues.
