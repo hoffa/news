@@ -1,20 +1,20 @@
-## [Ukraine tries first Russian soldier for war crimes](https://www.bbc.com/news/world-europe-61441907)
-Ukraine has started its first war crimes trial since the beginning of Russia's invasion, with a 21-year-old soldier appearing in the dock accused of killing an unarmed civilian. 
-## [Russia to suspend electricity supply to Finland](https://www.bbc.com/news/business-61442432)
-Russian energy supplier RAO Nordic says it will suspend deliveries of electricity to Finland from Saturday, citing problems with payments.
-## [Elon Musk puts $44bn Twitter deal on hold](https://www.bbc.com/news/business-61433724)
-Elon Musk has said his $44bn (£35bn) deal to buy Twitter is on hold after he queried the number of fake or spam accounts on the social media platform.
-## [Bloody river battle was third in three days - Ukraine](https://www.bbc.com/news/world-europe-61399440)
-A failed river crossing where a Russian battalion lost almost all its armoured vehicles was the third such attack in three days, a Ukrainian army official has told the BBC.
-## [UK adds Putin's former wife to sanctions list](https://www.bbc.com/news/uk-61439524)
-The UK has imposed sanctions on Russian President Vladimir Putin's former wife and his alleged current girlfriend over the invasion of Ukraine.
-## [US basketball star has Russian detention extended](https://www.bbc.com/news/world-us-canada-61417928)
-The American basketball star Brittney Griner's pre-trial detention in Russia has been extended for one month. 
-## [Violence at funeral for Al Jazeera reporter](https://www.bbc.com/news/world-middle-east-61437601)
-Israeli police have hit mourners at the funeral of Al Jazeera reporter Shireen Abu Aqla, whose killing in the occupied West Bank has caused a surge of anger.
-## [Ukraine round-up: Carnage at the river and a war crimes trial](https://www.bbc.com/news/world-europe-61440608)
-The toll of the fighting on both Ukraine's health sector and Russia's invading army made sobering reading on the 79th day of the war.
-## ['Who's this guy?' Sadiq Khan sticks to script in the US](https://www.bbc.com/news/uk-england-london-61431858)
-Sadiq Khan's business-class flight touched down at Heathrow on Friday morning as his five-day trip of the USA came to an end. During the jaunt, aimed at boosting London's tourist industry, the city's mayor went on a walkabout in New York City, pressed the flesh in Los Angeles and even visited a cannabis dispensary on America's west coast.
-## [Deborah James made a dame by William at her home](https://www.bbc.com/news/uk-61446342)
-Podcaster Deborah James has had her damehood conferred by Prince William at her family home.
+## [Ten dead in New York state supermarket shooting](https://www.bbc.com/news/world-us-canada-61452958)
+Ten people have been killed in a shooting at a supermarket in New York state, police say.
+## [Putin warns Finland joining Nato would be 'mistake'](https://www.bbc.com/news/world-europe-61450694)
+Russian President Vladimir Putin has warned his Finnish counterpart that joining Nato and abandoning Finland's neutral status would be a "mistake".
+## [Ukraine wins Eurovision, while UK comes second](https://www.bbc.com/news/entertainment-arts-61452678)
+Ukraine's Kalush Orchestra have won the Eurovision Song Contest, in a symbolic show of public support following the country's invasion by Russia.
+## [Her dad went to prison - so she went to law school](https://www.bbc.com/news/world-us-canada-61401556)
+The first time Teeanna Brisco saw her father after he was released from prison was just before her law school graduation, when she picked him up from the airport.
+## [N Korea has confirmed Covid: What's likely to happen?](https://www.bbc.com/news/world-asia-61450255)
+For almost two-and-a-half years, North Korea has stuck to its claim it has seen no cases of Covid-19. Not any more. 
+## [Putin's message to Finland as Russians pushed away in Kharkiv - round-up](https://www.bbc.com/news/world-europe-61452573)
+President Vladimir Putin launched an invasion in part to stop Nato gaining an extra member - Ukraine. Instead Nato is likely to get another two. 
+## [Ukraine: The spy war within the war](https://www.bbc.com/news/world-61311026)
+The decades-long spy conflict between Russia and the West is intensifying over the Ukraine war. But what are Russia's intelligence services suspected of doing and how will their officials' expulsion from capitals affect Putin's clandestine overseas operations?
+## [UN condemns killing of Al Jazeera reporter](https://www.bbc.com/news/world-middle-east-61448311)
+The UN Security Council has condemned the killing of veteran Al Jazeera reporter Shireen Abu Aqla and called for an immediate probe into her death.
+## [Why an Indian couple is suing their son for grandchild](https://www.bbc.com/news/world-asia-india-61436179)
+An unusual lawsuit is making headlines in India.
+## [Britney Spears announces 'devastating' miscarriage](https://www.bbc.com/news/entertainment-arts-61452781)
+Britney Spears has announced she has suffered a miscarriage, a month after revealing her pregnancy.
