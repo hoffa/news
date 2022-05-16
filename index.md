@@ -1,20 +1,20 @@
-## [Ten dead in New York state supermarket shooting](https://www.bbc.com/news/world-us-canada-61452958)
-Ten people have been killed in a shooting at a supermarket in New York state, police say.
-## [Putin warns Finland joining Nato would be 'mistake'](https://www.bbc.com/news/world-europe-61450694)
-Russian President Vladimir Putin has warned his Finnish counterpart that joining Nato and abandoning Finland's neutral status would be a "mistake".
-## [Ukraine wins Eurovision, while UK comes second](https://www.bbc.com/news/entertainment-arts-61452678)
-Ukraine's Kalush Orchestra have won the Eurovision Song Contest, in a symbolic show of public support following the country's invasion by Russia.
-## [Her dad went to prison - so she went to law school](https://www.bbc.com/news/world-us-canada-61401556)
-The first time Teeanna Brisco saw her father after he was released from prison was just before her law school graduation, when she picked him up from the airport.
-## [N Korea has confirmed Covid: What's likely to happen?](https://www.bbc.com/news/world-asia-61450255)
-For almost two-and-a-half years, North Korea has stuck to its claim it has seen no cases of Covid-19. Not any more. 
-## [Putin's message to Finland as Russians pushed away in Kharkiv - round-up](https://www.bbc.com/news/world-europe-61452573)
-President Vladimir Putin launched an invasion in part to stop Nato gaining an extra member - Ukraine. Instead Nato is likely to get another two. 
-## [Ukraine: The spy war within the war](https://www.bbc.com/news/world-61311026)
-The decades-long spy conflict between Russia and the West is intensifying over the Ukraine war. But what are Russia's intelligence services suspected of doing and how will their officials' expulsion from capitals affect Putin's clandestine overseas operations?
-## [UN condemns killing of Al Jazeera reporter](https://www.bbc.com/news/world-middle-east-61448311)
-The UN Security Council has condemned the killing of veteran Al Jazeera reporter Shireen Abu Aqla and called for an immediate probe into her death.
-## [Why an Indian couple is suing their son for grandchild](https://www.bbc.com/news/world-asia-india-61436179)
-An unusual lawsuit is making headlines in India.
-## [Britney Spears announces 'devastating' miscarriage](https://www.bbc.com/news/entertainment-arts-61452781)
-Britney Spears has announced she has suffered a miscarriage, a month after revealing her pregnancy.
+## [Russia's invasion not going to plan, Nato says](https://www.bbc.com/news/world-europe-61457622)
+Nato's secretary general says Russia's war in Ukraine is not going to plan and that its attempt to capture the eastern Donbas region has "stalled".
+## [Queen attends first Platinum Jubilee celebration](https://www.bbc.com/news/uk-61460345)
+The Queen has attended the final night of an equestrian extravaganza show to celebrate the Platinum Jubilee.
+## [The children's camp that became an execution ground](https://www.bbc.com/news/world-europe-61442387)
+Since Russian forces were pushed back from Kyiv at the end of March, the bodies of more than 1,000 civilians have been discovered in the Bucha region - many hastily buried in shallow graves. The BBC's Sarah Rainsford has been investigating what happened at a children's summer camp - now being treated as a crime scene. 
+## [US gunman deliberately sought black victims - mayor](https://www.bbc.com/news/world-us-canada-61459023)
+The man suspected of shooting dead 10 people at a supermarket in Buffalo, New York, deliberately sought a site with a high black population, authorities say.
+## [Two more confirmed cases of monkeypox in England](https://www.bbc.com/news/uk-england-london-61449214)
+Two more people have been diagnosed with monkeypox in England, the UK Health Security Agency said.
+## [Sweden confirms Nato hopes in historic shift](https://www.bbc.com/news/world-europe-61456726)
+Sweden and Finland have confirmed they will apply for Nato membership in a historic shift that comes as a result of Russia's invasion of Ukraine.
+## [Somalia gets new president - chosen by 327 people](https://www.bbc.com/news/world-africa-61438047)
+Somalia's former leader Hassan Sheikh Mohamud has been elected president after a final vote that was only open to the country's MPs.
+## [Full lunar eclipse to bring super blood Moon](https://www.bbc.com/news/science-environment-61423765)
+One of our planet's most stunning sights is coming to the skies - a super blood Moon.
+## [Fact-checking Russian chemical attack claim](https://www.bbc.com/news/61439398)
+Russia is using a familiar tactic to blame an adversary for attacks it has not carried out - on this occasion accusing Ukrainian forces of blowing up a fertiliser storage facility.
+## [Witness tales shed light on Canada mass shooting](https://www.bbc.com/news/world-us-canada-61300308)
+In April 2020, a gunman posing as a police officer went on a shooting spree in the Canadian province of Nova Scotia. 
