@@ -1,20 +1,20 @@
-## [Russia's invasion not going to plan, Nato says](https://www.bbc.com/news/world-europe-61457622)
-Nato's secretary general says Russia's war in Ukraine is not going to plan and that its attempt to capture the eastern Donbas region has "stalled".
-## [Queen attends first Platinum Jubilee celebration](https://www.bbc.com/news/uk-61460345)
-The Queen has attended the final night of an equestrian extravaganza show to celebrate the Platinum Jubilee.
-## [The children's camp that became an execution ground](https://www.bbc.com/news/world-europe-61442387)
-Since Russian forces were pushed back from Kyiv at the end of March, the bodies of more than 1,000 civilians have been discovered in the Bucha region - many hastily buried in shallow graves. The BBC's Sarah Rainsford has been investigating what happened at a children's summer camp - now being treated as a crime scene. 
-## [US gunman deliberately sought black victims - mayor](https://www.bbc.com/news/world-us-canada-61459023)
-The man suspected of shooting dead 10 people at a supermarket in Buffalo, New York, deliberately sought a site with a high black population, authorities say.
-## [Two more confirmed cases of monkeypox in England](https://www.bbc.com/news/uk-england-london-61449214)
-Two more people have been diagnosed with monkeypox in England, the UK Health Security Agency said.
-## [Sweden confirms Nato hopes in historic shift](https://www.bbc.com/news/world-europe-61456726)
-Sweden and Finland have confirmed they will apply for Nato membership in a historic shift that comes as a result of Russia's invasion of Ukraine.
-## [Somalia gets new president - chosen by 327 people](https://www.bbc.com/news/world-africa-61438047)
-Somalia's former leader Hassan Sheikh Mohamud has been elected president after a final vote that was only open to the country's MPs.
-## [Full lunar eclipse to bring super blood Moon](https://www.bbc.com/news/science-environment-61423765)
-One of our planet's most stunning sights is coming to the skies - a super blood Moon.
-## [Fact-checking Russian chemical attack claim](https://www.bbc.com/news/61439398)
-Russia is using a familiar tactic to blame an adversary for attacks it has not carried out - on this occasion accusing Ukrainian forces of blowing up a fertiliser storage facility.
-## [Witness tales shed light on Canada mass shooting](https://www.bbc.com/news/world-us-canada-61300308)
-In April 2020, a gunman posing as a police officer went on a shooting spree in the Canadian province of Nova Scotia. 
+## [Turkey could block Finland and Sweden Nato bids](https://www.bbc.com/news/world-europe-61472021)
+Turkey's president has restated his opposition to Finland and Sweden joining Nato - just hours after they said they would seek membership.
+## [Johnny Depp hit me on honeymoon, says Amber Heard](https://www.bbc.com/news/world-us-canada-61467766)
+Amber Heard feared her ex-husband Johnny Depp would accidentally kill her during an alleged assault on their honeymoon, a US court has heard. 
+## [McDonald's to leave Russia for good after 30 years](https://www.bbc.com/news/business-61463876)
+McDonald's has said it will permanently leave Russia after more than 30 years and has started to sell its restaurants. 
+## [Twitter hits back on Musk doubts over fake accounts](https://www.bbc.com/news/business-61472388)
+The head of Twitter has hit back after Elon Musk said his $44bn deal to buy the platform was "on hold" while he sought details about fake accounts.
+## [Celebrity soccer wives' feud spills into court](https://www.bbc.com/news/world-us-canada-55023833)
+Forget The Crown. The only British drama you need right now is the real-life feud between two Wags - wives and girlfriends of football stars - currently playing out in the UK High Court. 
+## [Besieged Mariupol soldiers evacuated](https://www.bbc.com/news/world-europe-61472025)
+Ukraine has confirmed that hundreds of its fighters trapped for more than two months in Mariupol's Azovstal steelworks have been evacuated.
+## [Biden approves return of US troops to Somalia](https://www.bbc.com/news/world-africa-61467478)
+US officials say President Biden has approved the redeployment of US troops in Somalia, reversing a decision by his predecessor Donald Trump.
+## [Matriarch accused of leading drug clan captured](https://www.bbc.com/news/world-latin-america-61464573)
+Police in Honduras have captured a woman accused of leading a drug trafficking clan with four of her sons.
+## [Pinned down by Russian fire in key frontline village](https://www.bbc.com/news/world-europe-61460790)
+Serhiy drove like a maniac. Before the war, the laconic Ukrainian was a lawyer. Now he sat in the front of a Mitsubishi pick-up, barrelling along a dirt road at 65mph (100km/h).
+## [Husband murdered British wife, Greek court rules](https://www.bbc.com/news/world-europe-61463800)
+A Greek helicopter pilot has been found guilty of murdering his British wife Caroline Crouch, by a court in Athens.
