@@ -1,20 +1,20 @@
-## [Heard's team change course on Johnny Depp testimony](https://www.bbc.com/news/world-us-canada-61559568)
-Amber Heard's team will not call Johnny Depp to the stand, a source close to Ms Heard said, a strategic U-turn in the last days of the high-profile trial.
-## [Russian diplomat quits over Putin's 'witless' war](https://www.bbc.com/news/world-europe-61555390)
-A Russian diplomat has quit his job in protest at the "bloody, witless" war "unleashed by Putin against Ukraine".
-## [I was forced to sign a false confession - Nazanin](https://www.bbc.com/news/uk-61548645)
-Nazanin Zaghari-Ratcliffe has said Iran forced her to sign a last-minute false confession at the airport as a condition of her release.
-## [Biden vows to defend Taiwan in apparent US shift](https://www.bbc.com/news/world-asia-china-61548531)
-US President Joe Biden has warned China is "flirting with danger" over Taiwan, and vowed to intervene militarily to protect the island if it is attacked.
-## [Iran vows revenge after colonel's assassination](https://www.bbc.com/news/world-middle-east-61546145)
-Iran's president has promised to take revenge after a colonel in the powerful Islamic Revolution Guard Corps (IRGC) was shot dead in Tehran on Sunday.
-## [PM pictured drinking at No 10 lockdown event](https://www.bbc.com/news/uk-politics-61557064)
-Boris Johnson has been pictured drinking at an event in Downing Street during lockdown.
-## [Monkeypox outbreaks are containable - WHO](https://www.bbc.com/news/health-61553822)
-Monkeypox can be contained in countries outside of Africa where the virus is not usually detected, the World Health Organization (WHO) says.
-## [Southern Baptist leaders ignored sex abuse - report](https://www.bbc.com/news/world-us-canada-61554996)
-Leaders of the world's largest Baptist denomination covered up sex abuse by clergy for years and vilified survivors, an internal report says.
-## [Millionaires at Davos say 'tax us more'](https://www.bbc.com/news/business-61549155)
-A handful of wealthy attendees gathered in Davos are calling on world leaders to tackle the cost of living crisis by pushing up taxes for people like them.
-## [In fear or in jail: Telling the truth in Russia](https://www.bbc.com/news/world-europe-61542365)
-To Ukrainians it was clear from the very start of Russia's invasion that this was no "special operation" to liberate the Donbas region, as Vladimir Putin had declared. It was all-out war. 
+## [Fifteen dead in shooting at Texas primary school](https://www.bbc.com/news/world-us-canada-61573377)
+Fifteen people have died in a shooting at a primary school in Texas, says Governor Greg Abbott. 
+## ['This is just the beginning, everything is still to come'](https://www.bbc.com/news/world-61570444)
+The Ukrainian army is under more pressure than at any time since the first desperate weeks after the Russian invasion. 
+## [FBI foiled terror plot to kill George W Bush](https://www.bbc.com/news/world-us-canada-61569650)
+An Islamic State sympathiser planned to murder former US President George W Bush but the plot was discovered by the FBI, US authorities have revealed.
+## [US closes loophole for Russian debt payments](https://www.bbc.com/news/business-61569560)
+The US is cutting off another financial route for Russia to pay its international debts, a move that could push the country closer to default.
+## [Erdogan: Greek PM no longer exists](https://www.bbc.com/news/world-europe-61562305)
+Turkish President Recep Tayyip Erdogan has said he no longer recognises the leader of neighbouring Greece and will refuse to meet him at a planned summit. 
+## [Billie Eilish: Living with Tourette's 'exhausting'](https://www.bbc.com/news/newsbeat-61565717)
+Billie Eilish has revealed that living with Tourette's Syndrome (TS) can be "very exhausting", in a new interview.
+## [Putin weaponising Ukraine’s crops, says Polish PM](https://www.bbc.com/news/business-61562864)
+Vladimir Putin is "weaponising Ukraine's crops" as "a blackmail tool" for the rest of the world, Poland's prime minister said at the World Economic Forum in Davos.
+## [America's gun culture - in seven charts](https://www.bbc.com/news/world-us-canada-41488081)
+It was over 50 years ago when the administration of President Lyndon Baines Johnson declared that "firearms are a primary instrument of death in American crime" and that it was "primarily the result of our culture's casual attitude towards firearms and its heritage of the armed, self-reliant citizen". 
+## [Which French delicacy could be off the menu? Timed quiz...](https://www.bbc.com/news/world-us-canada-61546249)
+Test your news knowledge against the clock. Can you outscore your friends?
+## [Ancient remains of scary flying reptile discovered](https://www.bbc.com/news/science-environment-61568468)
+Fossilized remains from a giant flying reptile the size of a bus have been discovered in Argentina.
