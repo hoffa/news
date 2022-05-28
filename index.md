@@ -1,20 +1,20 @@
-## [Husband of killed Texas teacher dies of 'grief'](https://www.bbc.com/news/world-us-canada-61569655)
-The husband of one of the teachers slain in Tuesday's mass shooting in Uvalde, Texas has reportedly died of a heart attack just two days later. 
-## [Goodfellas star Ray Liotta dies aged 67](https://www.bbc.com/news/entertainment-arts-61600212)
-Goodfellas actor Ray Liotta has died in his sleep in the Dominican Republic at the age of 67.
-## [Ancient DNA reveals secrets of Pompeii victims](https://www.bbc.com/news/science-environment-61557424)
-Researchers studying human remains from Pompeii have extracted genetic secrets from the bones of a man and a woman who were buried when the Roman city was engulfed in volcanic ash. 
-## [Amber Heard: It's easy to forget I'm a human being](https://www.bbc.com/news/world-us-canada-61599667)
-Amber Heard says she felt humiliated and had faced hundreds of daily death threats after testifying at Johnny Depp's trial against her.
-## [Depeche Mode keyboardist Andy Fletcher dies](https://www.bbc.com/news/entertainment-arts-61597992)
-Depeche Mode keyboardist Andy Fletcher has died, the band has announced.
-## [Texas school gunman 'walked in unobstructed'](https://www.bbc.com/news/world-us-canada-61600914)
-A gunman who attacked a primary school in Texas on Tuesday was able to enter the building unobstructed, police say.
-## [Russian mum's fight to save sons from Putin's war](https://www.bbc.com/news/world-europe-61599932)
-When Marina's two sons were conscripted last winter to the Russian army she welcomed the idea of her children doing a year's military service.
-## [The teachers who died trying to save their pupils](https://www.bbc.com/news/world-us-canada-61593071)
-"We have a wonderful year ahead of us!" 
-## [Actor Kevin Spacey facing sexual assault charges](https://www.bbc.com/news/uk-61597747)
-Actor Kevin Spacey is to be charged with sexual assault against three men, the Crown Prosecution Service has confirmed.
-## [Lewd Roman graffiti found near Hadrian's Wall](https://www.bbc.com/news/uk-england-tyne-61594029)
-This story contains language some readers may find offensive.
+## [Trump: US should fund safe schools before Ukraine](https://www.bbc.com/news/world-us-canada-61614782)
+The US should prioritise funding for school security over aid to Ukraine, former President Donald Trump has said days after 19 Texas pupils were killed. 
+## [Jury deliberations begin in Depp-Heard trial](https://www.bbc.com/news/world-us-canada-61610470)
+Jury deliberations in the high-profile defamation battle between Johnny Depp and Amber Heard have begun after six weeks of trial in Virginia.
+## [Texas shooting response was wrong, says official](https://www.bbc.com/news/world-us-canada-61613177)
+Police made the "wrong decision" by failing to storm a primary school classroom in Uvalde, Texas, as a gunman killed 19 children inside, the top safety official has said.
+## [Ukraine could pull out of eastern city - official](https://www.bbc.com/news/world-europe-61613479)
+Ukrainian troops could withdraw from the big eastern city of Severodonetsk, which Russian forces are close to surrounding, an official there says.
+## [Somali teen who allegedly killed attacker released](https://www.bbc.com/news/world-middle-east-61615012)
+A Somali teenager accused of killing a tuk-tuk driver who she alleged had tried to rape her has been released from custody in Egypt.
+## [Japan opens up to foreign tourists after two years](https://www.bbc.com/news/world-asia-61612599)
+ After being closed to tourists for two years, Japan is opening its borders to visitors from 98 countries and regions.
+## [Missguided fashion retailer on verge of collapse](https://www.bbc.com/news/business-61610290)
+Fast fashion retailer Missguided is on the brink of collapse after being issued with a winding-up petition by creditors. 
+## [Donbas town falls as Russians urged to turn off TV - round-up](https://www.bbc.com/news/world-europe-61610831)
+There are unconfirmed reports that Russia-backed separatists have taken the town of Lyman in eastern Ukraine.
+## [Twitter investor sues Elon Musk over takeover bid](https://www.bbc.com/news/business-61589229)
+A Twitter investor is suing Elon Musk and the social media platform over the handling of the billionaire's $44bn (£34.9bn) bid for the company. 
+## [Husband of killed Texas teacher 'dies of grief'](https://www.bbc.com/news/world-us-canada-61569655)
+The husband of one of the teachers slain in Tuesday's mass shooting in Uvalde, Texas, has reportedly died of a heart attack. 
