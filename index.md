@@ -1,20 +1,20 @@
-## [Putin urged to hold direct talks with Zelensky](https://www.bbc.com/news/world-europe-61618907)
-The leaders of France and Germany have urged Russia's Vladimir Putin to hold "direct [and] serious negotiations" with Ukraine's president, the German chancellor's office said.
-## [Superyacht sinks in harbour after large fire](https://www.bbc.com/news/uk-england-devon-61617224)
-A superyacht has sunk after catching fire while moored in a marina.
-## [Russia won't use nuclear weapons, says ambassador](https://www.bbc.com/news/world-europe-61618902)
-Russia's ambassador in Britain has told the BBC he does not believe his country will use tactical nuclear weapons in the war against Ukraine.
-## [Harris calls for assault weapons ban](https://www.bbc.com/news/world-us-canada-61621470)
-US Vice-President Kamala Harris has made an impassioned plea for a ban on assault weapons in the wake of two deadly mass shootings in the US.
-## [Ukraine round-up: Putin urged to resume talks - and a bike ride from hell](https://www.bbc.com/news/world-europe-61616622)
-The leaders of France and Germany had an 80-minute phone call with Russia's Vladimir Putin on Saturday, and urged him to launch "direct, serious negotiations" with Ukraine's President Volodymyr Zelensky.
-## [Armed female bystander kills man firing at US party](https://www.bbc.com/news/world-us-canada-61615236)
-A US woman has fatally shot a man who opened fire on a crowd of people with a semi-automatic rifle in Charleston, West Virginia. 
-## [Liverpool want investigation into final scenes](https://www.bbc.com/sport/football/61619831)
-Liverpool have called for an investigation into the "unacceptable issues" faced by fans which led to their Champions League final against Real Madrid being delayed.
-## [Sweden's 'king of cringe' wins top prize in Cannes](https://www.bbc.com/news/world-europe-61621754)
-A biting social satire - complete with a lengthy vomiting scene - has taken the top prize at the Cannes Festival.
-## [Mayor flies 9,200 miles for TED talk on climate](https://www.bbc.com/news/uk-england-bristol-61596817)
-The UK's first city mayor to declare a climate crisis has been questioned for flying nine hours to attend a conference to urge leaders to cut CO2. 
-## ['Daughter's long Covid makes us prisoners at home'](https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-61617044)
-A woman whose nine-year-old daughter has not recovered since catching Covid in 2020 has told how long Covid has made them "prisoners" in their own home.
+## [Boy thrown from Tate 'defying doctors' predictions'](https://www.bbc.com/news/uk-england-london-61614842)
+A young boy who suffered life-changing injuries when he was thrown from the Tate Modern viewing platform is "contradicting doctors' predictions", his family has said.
+## [Russia says 'liberation' of Donbas its key priority](https://www.bbc.com/news/world-europe-61628473)
+The "liberation" of eastern Ukraine's Donbas region is an "unconditional priority" for Russia, Foreign Minister Sergei Lavrov has said in an interview. 
+## [Zelensky makes first front-line trip to Kharkiv](https://www.bbc.com/news/world-europe-61625512)
+Ukraine's President Volodymyr Zelensky has visited troops in the Kharkiv region, on the country's battered eastern front line.
+## [French jetpack inventor injured in lake crash](https://www.bbc.com/news/world-europe-61622794)
+The French inventor Franky Zapata has been injured after his homemade jetpack, called a flyboard, crashed into a lake in the town of Biscarrosse. 
+## [US to review response to Texas school shooting](https://www.bbc.com/news/world-us-canada-61622797)
+The US Justice Department will investigate the police response to the mass shooting at a school in Uvalde, Texas, which killed 19 children and two teachers.
+## [Hundreds miss Dublin flights due to long queues](https://www.bbc.com/news/world-europe-61624910)
+Hundreds of passengers have missed flights at Dublin Airport as some described a scene of "total bedlam" with queues stretching outside the terminal doors.
+## [Officer who kept list of attractive workers sacked](https://www.bbc.com/news/uk-england-london-61618676)
+A police officer has been sacked for misconduct offences including keeping a list of female colleagues he found attractive.
+## [Ukraine round-up: Zelensky in Kharkiv and Putin propaganda](https://www.bbc.com/news/world-europe-61626017)
+Ukraine's President Volodymyr Zelensky has met troops in the heavily shell-damaged city of Kharkiv - his first official visit to the east of the country since the Russian invasion. 
+## [UK urges investigation into Paris football chaos](https://www.bbc.com/news/uk-61626746)
+The UK's culture secretary has urged Uefa to formally investigate "deeply concerning" scenes which delayed the start of the Champions League final.
+## [Nadal wins thriller to set up Djokovic quarter-final](https://www.bbc.com/sport/tennis/61619569)
+Rafael Nadal set up a French Open quarter-final against long-time rival Novak Djokovic with an absorbing five-set win over Felix Auger-Aliassime.
