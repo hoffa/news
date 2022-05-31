@@ -1,20 +1,20 @@
-## [Boy thrown from Tate 'defying doctors' predictions'](https://www.bbc.com/news/uk-england-london-61614842)
-A young boy who suffered life-changing injuries when he was thrown from the Tate Modern viewing platform is "contradicting doctors' predictions", his family has said.
-## [Russia says 'liberation' of Donbas its key priority](https://www.bbc.com/news/world-europe-61628473)
-The "liberation" of eastern Ukraine's Donbas region is an "unconditional priority" for Russia, Foreign Minister Sergei Lavrov has said in an interview. 
-## [Zelensky makes first front-line trip to Kharkiv](https://www.bbc.com/news/world-europe-61625512)
-Ukraine's President Volodymyr Zelensky has visited troops in the Kharkiv region, on the country's battered eastern front line.
-## [French jetpack inventor injured in lake crash](https://www.bbc.com/news/world-europe-61622794)
-The French inventor Franky Zapata has been injured after his homemade jetpack, called a flyboard, crashed into a lake in the town of Biscarrosse. 
-## [US to review response to Texas school shooting](https://www.bbc.com/news/world-us-canada-61622797)
-The US Justice Department will investigate the police response to the mass shooting at a school in Uvalde, Texas, which killed 19 children and two teachers.
-## [Hundreds miss Dublin flights due to long queues](https://www.bbc.com/news/world-europe-61624910)
-Hundreds of passengers have missed flights at Dublin Airport as some described a scene of "total bedlam" with queues stretching outside the terminal doors.
-## [Officer who kept list of attractive workers sacked](https://www.bbc.com/news/uk-england-london-61618676)
-A police officer has been sacked for misconduct offences including keeping a list of female colleagues he found attractive.
-## [Ukraine round-up: Zelensky in Kharkiv and Putin propaganda](https://www.bbc.com/news/world-europe-61626017)
-Ukraine's President Volodymyr Zelensky has met troops in the heavily shell-damaged city of Kharkiv - his first official visit to the east of the country since the Russian invasion. 
-## [UK urges investigation into Paris football chaos](https://www.bbc.com/news/uk-61626746)
-The UK's culture secretary has urged Uefa to formally investigate "deeply concerning" scenes which delayed the start of the Champions League final.
-## [Nadal wins thriller to set up Djokovic quarter-final](https://www.bbc.com/sport/tennis/61619569)
-Rafael Nadal set up a French Open quarter-final against long-time rival Novak Djokovic with an absorbing five-set win over Felix Auger-Aliassime.
+## [Canada proposes total freeze on handgun ownership](https://www.bbc.com/news/world-us-canada-61641543)
+Canada should introduce a total ban on the buying and selling of all handguns, Prime Minister Justin Trudeau has said.
+## [EU clinches compromise deal on banning Russian oil](https://www.bbc.com/news/world-europe-61638860)
+European Union leaders have agreed a compromise plan to block more than two-thirds of Russian oil imports after Hungary opposed a total ban. 
+## [Man dressed as old woman throws cake at Mona Lisa](https://www.bbc.com/news/entertainment-arts-61635822)
+A man disguised as an elderly woman in a wheelchair has thrown cake at the Mona Lisa, Leonardo da Vinci's famous painting at the Louvre in Paris.
+## ['I watched from afar Russia’s latest merciless assault'](https://www.bbc.com/news/world-europe-61634050)
+Russian forces have entered the city of Severodonetsk, as they continue their attempts to capture the eastern Donbas region of Ukraine. One of the region's governors says that the bombardment of the industrial centre is so intense that they have given up counting the casualties.
+## [Russian foreign minister denies Putin illness](https://www.bbc.com/news/world-europe-61628473)
+Russian Foreign Minister Sergei Lavrov has denied speculation that President Vladimir Putin is ill. 
+## [Nancy Pelosi's husband arrested for drink-driving](https://www.bbc.com/news/world-us-canada-61631499)
+The husband of US House of Representatives Speaker Nancy Pelosi has been arrested on suspicion of drink-driving in California.
+## [French journalist killed in Ukraine](https://www.bbc.com/news/world-europe-61638049)
+A French journalist working in Ukraine has been killed near the battle-hit city of Severodonetsk in the east.
+## [Global cost of living: 'We left New Zealand - it's costly'](https://www.bbc.com/news/world-61584608)
+Millions of people around the world are facing tough decisions as food and energy prices surge.
+## [Shot pregnant woman charged over unborn baby death](https://www.bbc.com/news/world-us-canada-48789836)
+A 27-year-old woman in Alabama has been indicted for manslaughter after losing her unborn baby in a shooting - despite not being the shooter.
+## [Medvedev and Tsitsipas in shock French Open exits](https://www.bbc.com/sport/tennis/61636645)
+Daniil Medvedev and Stefanos Tsitsipas suffered surprise fourth-round exits on a day of shocks in the men's draw at the French Open.
