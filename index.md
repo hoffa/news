@@ -1,20 +1,20 @@
-## [Canada proposes total freeze on handgun ownership](https://www.bbc.com/news/world-us-canada-61641543)
-Canada should introduce a total ban on the buying and selling of all handguns, Prime Minister Justin Trudeau has said.
-## [EU clinches compromise deal on banning Russian oil](https://www.bbc.com/news/world-europe-61638860)
-European Union leaders have agreed a compromise plan to block more than two-thirds of Russian oil imports after Hungary opposed a total ban. 
-## [Man dressed as old woman throws cake at Mona Lisa](https://www.bbc.com/news/entertainment-arts-61635822)
-A man disguised as an elderly woman in a wheelchair has thrown cake at the Mona Lisa, Leonardo da Vinci's famous painting at the Louvre in Paris.
-## ['I watched from afar Russia’s latest merciless assault'](https://www.bbc.com/news/world-europe-61634050)
-Russian forces have entered the city of Severodonetsk, as they continue their attempts to capture the eastern Donbas region of Ukraine. One of the region's governors says that the bombardment of the industrial centre is so intense that they have given up counting the casualties.
-## [Russian foreign minister denies Putin illness](https://www.bbc.com/news/world-europe-61628473)
-Russian Foreign Minister Sergei Lavrov has denied speculation that President Vladimir Putin is ill. 
-## [Nancy Pelosi's husband arrested for drink-driving](https://www.bbc.com/news/world-us-canada-61631499)
-The husband of US House of Representatives Speaker Nancy Pelosi has been arrested on suspicion of drink-driving in California.
-## [French journalist killed in Ukraine](https://www.bbc.com/news/world-europe-61638049)
-A French journalist working in Ukraine has been killed near the battle-hit city of Severodonetsk in the east.
-## [Global cost of living: 'We left New Zealand - it's costly'](https://www.bbc.com/news/world-61584608)
-Millions of people around the world are facing tough decisions as food and energy prices surge.
-## [Shot pregnant woman charged over unborn baby death](https://www.bbc.com/news/world-us-canada-48789836)
-A 27-year-old woman in Alabama has been indicted for manslaughter after losing her unborn baby in a shooting - despite not being the shooter.
-## [Medvedev and Tsitsipas in shock French Open exits](https://www.bbc.com/sport/tennis/61636645)
-Daniil Medvedev and Stefanos Tsitsipas suffered surprise fourth-round exits on a day of shocks in the men's draw at the French Open.
+## [French officials told to abandon gaming Anglicisms](https://www.bbc.com/news/technology-61647192)
+France's language watchdog has told government officials to use French gaming terms instead of English ones.
+## [Danes hold vote on forging closer EU defence ties](https://www.bbc.com/news/world-europe-61644663)
+Danes vote in a referendum on Wednesday on whether to scrap a 30-year opt-out and take part in EU defence and security policy. 
+## [Supreme Court blocks Texas 'de-platforming' law](https://www.bbc.com/news/world-us-canada-61654959)
+A Texas law forbidding social media giants from regulating certain forms of online speech has been blocked by the US Supreme Court.
+## [Torture and fear in Russia-controlled Ukraine](https://www.bbc.com/news/world-europe-61607410)
+While his homemade borsch bubbles on the hob, Olexander Guz shows me pictures of his bruised body on his phone. 
+## [Food fight may have led to largest shark's demise](https://www.bbc.com/news/science-environment-61644215)
+A prehistoric food fight may have spelled the end for the megalodon, the largest shark that ever lived.
+## [K-Wave hits White House with BTS anti-hate speech](https://www.bbc.com/news/world-us-canada-61649521)
+They are the world's best-selling artists, and they have brought the "K-Wave" to the White House.
+## [Who is on - and off - the world's most famous balcony](https://www.bbc.com/news/uk-61469632)
+From royal wedding kisses to celebrations at the end of wars, the balcony at Buckingham Palace in London has been the stage for national moments since Queen Victoria first stepped out there in 1851. 
+## [Nadal beats Djokovic in late-night Paris thriller](https://www.bbc.com/sport/tennis/61653969)
+Rafael Nadal demonstrated once again why he is the greatest player in French Open history by beating long-time rival Novak Djokovic in a late-night thriller to reach the men's singles semi-finals.
+## [Clinton lawyer cleared of lying to FBI over Trump](https://www.bbc.com/news/world-us-canada-61654042)
+A lawyer with ties to the US Democratic party has been cleared of lying to the FBI during the frenzied final days of the 2016 presidential campaign. 
+## [Ukraine reports 15,000 suspected war crimes](https://www.bbc.com/news/world-europe-61652467)
+Around 15,000 suspected war crimes have been reported in Ukraine since the war began, with 200 to 300 more reported daily, its chief prosecutor said.
