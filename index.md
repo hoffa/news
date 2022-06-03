@@ -1,20 +1,20 @@
-## [Long-range US rockets add fuel to fire of war - Russia](https://www.bbc.com/news/world-us-canada-61655577)
-Russia has accused the US of seeking to prolong the war in Ukraine after President Biden said he would supply Kyiv with new long-range missiles. 
-## [Four dead in Oklahoma hospital shooting](https://www.bbc.com/news/world-us-canada-61669873)
-Four people have died in a shooting spree at a hospital in Tulsa, Oklahoma, police say.
-## [Portrait of Queen released as UK set for Jubilee](https://www.bbc.com/news/uk-61654780)
-An official photograph of the Queen has been released ahead of celebrations to mark her Platinum Jubilee.
-## [We had the same cancer as Andy Goram](https://www.bbc.com/news/uk-scotland-61647707)
-Former Rangers and Scotland goalkeeper Andy Goram has revealed he has oesophageal cancer and been given about six months to live. 
-## [Sheryl Sandberg to leave Facebook after 14 years](https://www.bbc.com/news/business-61666340)
-Sheryl Sandberg, the chief operating officer of Facebook's parent company Meta, has announced that she is leaving the business after 14 years.
-## [Canada trials decriminalising cocaine and MDMA](https://www.bbc.com/news/world-us-canada-61657095)
-Canada has announced it will temporarily decriminalise the possession of small amounts of some illicit drugs in British Columbia (BC).
-## [Who is on - and off - the royal balcony](https://www.bbc.com/news/uk-61469632)
-From royal wedding kisses to celebrations at the end of wars, the balcony at Buckingham Palace in London has been the stage for national moments since Queen Victoria first stepped out there in 1851. 
-## [Amber Heard and Johnny Depp's 'Trial by TikTok'](https://www.bbc.com/news/world-us-canada-61649522)
-"It wasn't meant to be a viral video. I was, like, in my pyjamas."
-## [Ten moments that defined the Depp-Heard trial](https://www.bbc.com/news/world-us-canada-61652527)
- Jurors are deliberating in the high-profile defamation case that has been fought for over a month between actors Johnny Depp and Amber Heard in the US state of Virginia.
-## [Why some think Zimbabweans are selling their toes](https://www.bbc.com/news/world-africa-61650455)
-An apparent social media ruse in Zimbabwe about people selling their toes for large amounts of money is being taken more seriously elsewhere in Africa.
+## [Queen pulls out of Jubilee thanksgiving service](https://www.bbc.com/news/uk-61676668)
+The Queen will not attend Friday's Jubilee service at St Paul's Cathedral after experiencing discomfort while watching Thursday's parade at Buckingham Palace.
+## [Prince Harry and Meghan remain low-key at Jubilee](https://www.bbc.com/news/uk-61676641)
+For such a high-profile couple, the Duke and Duchess of Sussex have maintained a remarkably low-key presence on the first day of the Platinum Jubilee celebrations.
+## [In pictures: The Royal Family at Jubilee celebrations](https://www.bbc.com/news/uk-61672048)
+The Queen has appeared on the Buckingham Palace balcony as part of official celebrations for her Platinum Jubilee.
+## [Oklahoma hospital gunman targeted his back surgeon](https://www.bbc.com/news/world-us-canada-61676811)
+Police have said a gunman who killed three employees and a patient at an Oklahoma hospital was targeting the surgeon who performed his back surgery.
+## [An unspoken transition has begun](https://www.bbc.com/news/uk-61645993)
+For raw symbolism this Jubilee weekend, it will be hard to beat the gold State Coach. 
+## [Why Johnny Depp lost in the UK but won in the US](https://www.bbc.com/news/world-us-canada-61673676)
+In 2020, Hollywood actor Johnny Depp lost a UK libel lawsuit against the Sun newspaper. But on Wednesday, he won a similar lawsuit against his ex-wife Amber Heard in a US courtroom.
+## [Turkey changes its name in rebranding bid](https://www.bbc.com/news/world-europe-61671913)
+Turkey will be known as Türkiye at the United Nations from now on, after it agreed to a formal request from Ankara.
+## [Canada says China 'buzzing' Asia military flights](https://www.bbc.com/news/world-us-canada-61654043)
+Canadian military aircraft operating in Asia have been repeatedly "buzzed" by Chinese jets at dangerously close distances, Ottawa says. 
+## [Russia has seized a fifth of Ukraine - Zelensky](https://www.bbc.com/news/world-europe-61675915)
+Ukraine's President Volodymyr Zelensky says that Russian forces have seized 20% of his country's territory, as Moscow's invasion nears its 100th day. 
+## [Crowds cheer Queen at palace as Jubilee begins](https://www.bbc.com/news/uk-61674520)
+Roaring crowds cheered the Queen as she joined other royals on the balcony of Buckingham Palace on the first of four days of Platinum Jubilee celebrations.
