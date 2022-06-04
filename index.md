@@ -1,20 +1,20 @@
-## [Queen pulls out of Jubilee thanksgiving service](https://www.bbc.com/news/uk-61676668)
-The Queen will not attend Friday's Jubilee service at St Paul's Cathedral after experiencing discomfort while watching Thursday's parade at Buckingham Palace.
-## [Prince Harry and Meghan remain low-key at Jubilee](https://www.bbc.com/news/uk-61676641)
-For such a high-profile couple, the Duke and Duchess of Sussex have maintained a remarkably low-key presence on the first day of the Platinum Jubilee celebrations.
-## [In pictures: The Royal Family at Jubilee celebrations](https://www.bbc.com/news/uk-61672048)
-The Queen has appeared on the Buckingham Palace balcony as part of official celebrations for her Platinum Jubilee.
-## [Oklahoma hospital gunman targeted his back surgeon](https://www.bbc.com/news/world-us-canada-61676811)
-Police have said a gunman who killed three employees and a patient at an Oklahoma hospital was targeting the surgeon who performed his back surgery.
-## [An unspoken transition has begun](https://www.bbc.com/news/uk-61645993)
-For raw symbolism this Jubilee weekend, it will be hard to beat the gold State Coach. 
-## [Why Johnny Depp lost in the UK but won in the US](https://www.bbc.com/news/world-us-canada-61673676)
-In 2020, Hollywood actor Johnny Depp lost a UK libel lawsuit against the Sun newspaper. But on Wednesday, he won a similar lawsuit against his ex-wife Amber Heard in a US courtroom.
-## [Turkey changes its name in rebranding bid](https://www.bbc.com/news/world-europe-61671913)
-Turkey will be known as Türkiye at the United Nations from now on, after it agreed to a formal request from Ankara.
-## [Canada says China 'buzzing' Asia military flights](https://www.bbc.com/news/world-us-canada-61654043)
-Canadian military aircraft operating in Asia have been repeatedly "buzzed" by Chinese jets at dangerously close distances, Ottawa says. 
-## [Russia has seized a fifth of Ukraine - Zelensky](https://www.bbc.com/news/world-europe-61675915)
-Ukraine's President Volodymyr Zelensky says that Russian forces have seized 20% of his country's territory, as Moscow's invasion nears its 100th day. 
-## [Crowds cheer Queen at palace as Jubilee begins](https://www.bbc.com/news/uk-61674520)
-Roaring crowds cheered the Queen as she joined other royals on the balcony of Buckingham Palace on the first of four days of Platinum Jubilee celebrations.
+## [Harry and Meghan navigate a tricky return to duty](https://www.bbc.com/news/uk-61685845)
+Low-key was always going to be difficult to pull off when you are globally famous, members of the Royal Family, and haven't been seen in the UK together for two years after leaving in controversial circumstances.
+## [Africans are victims of Ukraine war, Putin told](https://www.bbc.com/news/world-africa-61685383)
+African countries are innocent victims of the war in Ukraine and Russia should help ease their suffering, the head of the African Union has told Vladimir Putin at a meeting in Russia.
+## [Trump-backed celebrity doctor wins Senate primary](https://www.bbc.com/news/world-us-canada-61687873)
+A Trump-backed celebrity doctor will run as the next Republican senator for Pennsylvania after his opponent conceded the race.
+## [Drought-stricken US warned of looming 'dead pool'](https://www.bbc.com/news/world-us-canada-61669233)
+A once-in-a-lifetime drought in the western part of the US is turning up dead bodies - but that's the least of people's worries. 
+## [Premier League star unscathed after gunfight](https://www.bbc.com/news/world-latin-america-61685720)
+Tottenham Hotspur defender Emerson Royal has thanked an off-duty Brazilian police officer who rescued him from an attempted armed robbery in Sao Paulo.
+## [In pictures: Harry and Meghan join royals for service](https://www.bbc.com/news/uk-61681180)
+The Royal Family and guests have attended a service of thanksgiving for the Queen at St Paul's Cathedral - but without the monarch herself. She is resting at Windsor Castle and is believed to have watched the service on television.
+## [Arm drones to stop shootings, says Taser-gun maker](https://www.bbc.com/news/world-us-canada-61685117)
+The US company behind Tasers plans to produce stun gun-armed drones it claims will help stop school shootings.
+## [The Russian soldiers refusing to fight in Ukraine](https://www.bbc.com/news/world-europe-61607184)
+Some Russian troops are refusing to return to fight in Ukraine because of their experiences on the front line at the start of the invasion, according to Russian human rights lawyers and activists. The BBC has been speaking to one such soldier.
+## [Thousands of motorcycle taxis crushed in Lagos](https://www.bbc.com/news/world-africa-61680790)
+More than 2,000 confiscated motorcycle taxis have been crushed in Nigeria's biggest city, Lagos, following a ban on the vehicles, known as okadas.
+## [The 'oversized potatoes' that stole the Queen's heart](https://www.bbc.com/news/uk-61606972)
+1959: Queen Elizabeth II, aged 32 and a mother of two, sits designing a gravestone for her dog.
