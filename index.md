@@ -1,20 +1,20 @@
-## [Ukraine anger as Macron says 'Don't humiliate Russia'](https://www.bbc.com/news/world-europe-61691816)
-Ukraine's foreign minister has hit out at French President Emmanuel Macron after he said it was vital that Russia was not humiliated over its invasion.
-## [Mummy laughs and cries with us all, says Charles](https://www.bbc.com/news/uk-61691432)
-The Prince of Wales has paid a heartfelt tribute to his "mummy", the Queen, at the Platinum Party at the Palace that drew huge crowds.
-## [Mariah Carey sued for copyright over Christmas hit](https://www.bbc.com/news/world-us-canada-61688826)
-Singer Mariah Carey is being sued for copyright infringement over her 1994 Christmas mega-hit, All I Want for Christmas is You.
-## [Royals wish Lilibet a happy first birthday](https://www.bbc.com/news/uk-61688835)
-Senior royals have tweeted their birthday wishes to Lilibet - the daughter of the Duke and Duchess of Sussex - who turned one on Saturday.
-## [Russian man accused of Litvinenko killing dies](https://www.bbc.com/news/world-europe-61690519)
-One of the main suspects in the murder of the former Russian spy and Kremlin critic, Alexander Litvinenko, has died of Covid-19.
-## [Pop royalty and Paddington star at Jubilee concert](https://www.bbc.com/news/uk-61690149)
-The Queen made a surprise appearance in a comedy sketch with Paddington Bear during a star-studded Platinum Jubilee concert at Buckingham Palace.
-## [Robbie Williams: 'Fame should come with a warning'](https://www.bbc.com/news/uk-england-stoke-staffordshire-61683092)
-Singer Robbie Williams has said fame "should come with a health warning" as he gears up for a homecoming gig.
-## [Abuja mob burns man to death over row with cleric](https://www.bbc.com/news/world-africa-61691819)
-Nigerian police say a man who had a row with a Muslim cleric died in the capital, Abuja, after being set ablaze by a mob supporting the cleric.
-## [Harry and Meghan navigate a tricky return to duty](https://www.bbc.com/news/uk-61685845)
-Low-key was always going to be difficult to pull off when you are globally famous, members of the Royal Family, and haven't been seen in the UK together for two years after leaving in controversial circumstances.
-## [Drought-stricken US warned of looming 'dead pool'](https://www.bbc.com/news/world-us-canada-61669233)
-A once-in-a-lifetime drought in the western part of the US is turning up dead bodies - but that's the least of people's worries. 
+## [Putin warns Ukraine over Western long-range weapons](https://www.bbc.com/news/world-europe-61697093)
+Russia will expand the list of targets it will attack in Ukraine if Western countries send long-range weapons to Kyiv, President Vladimir Putin says.
+## [Flight ban hits Russian minister's visit to Serbia](https://www.bbc.com/news/world-europe-61698462)
+A visit to Serbia by Russian Foreign Minister Sergei Lavrov on 6-7 June has been cancelled because three of Serbia's neighbours refuse to let his plane use their airspace.
+## [Six of the best Jubilee moments](https://www.bbc.com/news/entertainment-arts-61695085)
+It's been a busy four days of revelry and reflection marking the Queen's seven decades on the throne.
+## [Queen 'humbled and touched' by Jubilee celebrations](https://www.bbc.com/news/uk-61698256)
+The Queen says she is "humbled and deeply touched" by the Platinum Jubilee celebrations held across the UK.
+## [Chinese fighter jet 'chaffs' Australian plane](https://www.bbc.com/news/world-australia-61696973)
+Australia has accused the pilot of a Chinese fighter jet of carrying out a dangerous manoeuvre near one of its aircraft over the South China Sea.
+## [Man rescued from Thames after being Tasered dies](https://www.bbc.com/news/uk-england-london-61698168)
+A man who was rescued from the River Thames after police used a Taser to try to restrain him has died.
+## [Nearly 12m people watch Platinum Jubilee concert](https://www.bbc.com/news/uk-61697044)
+An average of nearly 12 million people in the UK watched the Platinum Party in the Palace on BBC One on Saturday.
+## [In pictures: Platinum Jubilee pageant](https://www.bbc.com/news/uk-61698428)
+A huge pageant has taken place in central London, on the final day of the Queen's Platinum Jubilee celebrations.
+## [Celebrations as Wales ends 64 year World Cup wait](https://www.bbc.com/news/uk-wales-61697975)
+Wales has qualified for the World Cup for the first time in 64 years after beating Ukraine in a play-off for this year's finals in Qatar.
+## [Nigeria gunmen kill and abduct church worshippers](https://www.bbc.com/news/world-africa-61697409)
+Gunmen have killed church worshippers in Ondo state, south-west Nigeria.
