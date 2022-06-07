@@ -1,20 +1,20 @@
-## [Putin warns Ukraine over Western long-range weapons](https://www.bbc.com/news/world-europe-61697093)
-Russia will expand the list of targets it will attack in Ukraine if Western countries send long-range weapons to Kyiv, President Vladimir Putin says.
-## [Flight ban hits Russian minister's visit to Serbia](https://www.bbc.com/news/world-europe-61698462)
-A visit to Serbia by Russian Foreign Minister Sergei Lavrov on 6-7 June has been cancelled because three of Serbia's neighbours refuse to let his plane use their airspace.
+## [Harry and Meghan share Lilibet photo on birthday](https://www.bbc.com/news/uk-61711164)
+The Duke and Duchess of Sussex have shared a picture of their daughter Lilibet after celebrating her first birthday. 
+## ['I'm not jumping in,' US officer told drowning man](https://www.bbc.com/news/world-us-canada-61712871)
+Three police officers in Arizona have been placed on leave after they failed to rescue a homeless man from drowning.
+## [Wealthy Gupta brothers arrested in UAE](https://www.bbc.com/news/world-africa-61713832)
+Two brothers from the wealthy Gupta family have been arrested in the United Arab Emirates, the South African government has announced.
+## [PM wins vote but suffers large Tory rebellion](https://www.bbc.com/news/uk-politics-61709441)
+Prime Minister Boris Johnson has won the backing of a majority of Tory MPs in a confidence vote despite a significant revolt against his leadership.
+## [Twin eastern Ukraine cities 'dead' - Zelensky](https://www.bbc.com/news/world-europe-61711028)
+Ukrainian forces still holding out in the eastern city of Severodonetsk are outnumbered by Russian forces, President Volodymyr Zelensky has said.
 ## [Six of the best Jubilee moments](https://www.bbc.com/news/entertainment-arts-61695085)
 It's been a busy four days of revelry and reflection marking the Queen's seven decades on the throne.
-## [Queen 'humbled and touched' by Jubilee celebrations](https://www.bbc.com/news/uk-61698256)
-The Queen says she is "humbled and deeply touched" by the Platinum Jubilee celebrations held across the UK.
-## [Chinese fighter jet 'chaffs' Australian plane](https://www.bbc.com/news/world-australia-61696973)
-Australia has accused the pilot of a Chinese fighter jet of carrying out a dangerous manoeuvre near one of its aircraft over the South China Sea.
-## [Man rescued from Thames after being Tasered dies](https://www.bbc.com/news/uk-england-london-61698168)
-A man who was rescued from the River Thames after police used a Taser to try to restrain him has died.
-## [Nearly 12m people watch Platinum Jubilee concert](https://www.bbc.com/news/uk-61697044)
-An average of nearly 12 million people in the UK watched the Platinum Party in the Palace on BBC One on Saturday.
-## [In pictures: Platinum Jubilee pageant](https://www.bbc.com/news/uk-61698428)
-A huge pageant has taken place in central London, on the final day of the Queen's Platinum Jubilee celebrations.
-## [Celebrations as Wales ends 64 year World Cup wait](https://www.bbc.com/news/uk-wales-61697975)
-Wales has qualified for the World Cup for the first time in 64 years after beating Ukraine in a play-off for this year's finals in Qatar.
-## [Nigeria gunmen kill and abduct church worshippers](https://www.bbc.com/news/world-africa-61697409)
-Gunmen have killed church worshippers in Ondo state, south-west Nigeria.
+## [Dominican Republic minister shot dead in office](https://www.bbc.com/news/world-latin-america-61712872)
+The Dominican Republic's minister of environment and natural resources has been shot and killed in his office by a close personal friend, officials say.
+## [Musk threatens to walk away from Twitter deal](https://www.bbc.com/news/business-61709782)
+Elon Musk has threatened to walk away from his $44bn takeover of Twitter, accusing the social media company of "thwarting" his requests to learn more about its user base.
+## [South African outrage over Ryanair language test](https://www.bbc.com/news/world-africa-61703174)
+South Africans have condemned Irish airline Ryanair for making them take a test in the Afrikaans language on UK flights, calling it discriminatory.
+## [Proud Boys face sedition case over US Capitol riot](https://www.bbc.com/news/world-us-canada-61712873)
+The leader of the far-right Proud Boys group has been charged with seditious conspiracy over last year's attack on the US Capitol.
