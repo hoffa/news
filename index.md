@@ -1,20 +1,20 @@
-## [Angela Merkel defends her record on Putin](https://www.bbc.com/news/world-europe-61727450)
-Former German Chancellor Angela Merkel has defended her record on handling Vladimir Putin in her first major interview since Russia invaded Ukraine.
-## [Pitt says Jolie sought to harm him with vineyard sale](https://www.bbc.com/news/entertainment-arts-61716949)
-Angelina Jolie "sought to inflict harm" on her former husband Brad Pitt when she sold her stake in their co-owned vineyard to a Russian oligarch, new legal documents have claimed.
-## [US woman admits to training all-female IS battalion](https://www.bbc.com/news/world-us-canada-61727520)
-A US woman has confessed to leading an all-female squadron for the so-called Islamic State group in Syria, as well as plotting attacks on American soil.
-## [Mariupol defenders' bodies in Kyiv - families](https://www.bbc.com/news/world-europe-61723282)
-The bodies of some Ukrainian fighters killed defending the key south-eastern port of Mariupol have arrived in Kyiv, the soldiers' families say.
-## [EU sets date for common phone charge cable](https://www.bbc.com/news/technology-61720276)
-The days of hunting through cables to find the right charger may be coming to an end.
-## [Six of the best Jubilee moments](https://www.bbc.com/news/entertainment-arts-61695085)
-It's been a busy four days of revelry and reflection marking the Queen's seven decades on the throne.
-## [Please find my husband, urges missing Briton's wife](https://www.bbc.com/news/world-latin-america-61724926)
-The wife of a British journalist who disappeared in the Brazilian Amazon has urged the country's authorities to do more to find "the love of my life".
-## [The Indian woman who started Prophet Muhammad row](https://www.bbc.com/news/world-asia-india-61716241)
-India is in the midst of a diplomatic nightmare over controversial comments made by a senior official from the governing Bharatiya Janata Party (BJP) about the Prophet Muhammad.
-## [Top Gun maker sued over copyright breach](https://www.bbc.com/news/business-61714737)
-The family of the Israeli writer whose article inspired the 1986 Tom Cruise movie Top Gun is suing film studio Paramount Pictures for copyright infringement over its sequel. 
-## [Harry and Meghan share Lilibet birthday photo](https://www.bbc.com/news/uk-61711164)
-The Duke and Duchess of Sussex have shared a picture of their daughter Lilibet after celebrating her first birthday. 
+## [Zelensky ties fate of east Ukraine to city battle](https://www.bbc.com/news/world-europe-61740692)
+Ukrainian President Volodymyr Zelensky has said that fighting for the city of Severodonetsk may decide the outcome of the war in the east of the country.
+## [Uvalde survivor covered herself in friend's blood](https://www.bbc.com/news/world-us-canada-61735606)
+A student who survived the Uvalde shooting by covering herself in a classmate's blood has told Congress of the moment her teacher was killed during the massacre.
+## [US man charged over threatening top court justice](https://www.bbc.com/news/world-us-canada-61735321)
+A California man is facing a charge of attempted murder after his arrest near the home of Supreme Court Justice Brett Kavanaugh.
+## [Is Russia exporting grain from Ukraine?](https://www.bbc.com/news/world-europe-61736179)
+Russia is sending grain from Ukraine overseas, Russian-appointed officials in occupied southern Ukraine say.
+## [Mexico megachurch leader jailed for child sex abuse](https://www.bbc.com/news/world-latin-america-61730756)
+Naasón Joaquín García, the leader of the La Luz del Mundo megachurch, has been sentenced in a Los Angeles court to 16 years and eight months in prison.
+## [Boxer dies after 'invisible opponent' incident](https://www.bbc.com/sport/africa/61737030)
+South African lightweight Simiso Buthelezi has died after suffering bleeding on the brain following a boxing bout at the weekend in Durban.
+## [Teacher dead and pupils hurt as car hits Berlin crowd](https://www.bbc.com/news/world-europe-61729102)
+A teacher was killed and 14 schoolchildren were injured after a car hit a crowd on a busy street in the German capital, Berlin.
+## [Olympians to sue FBI over sex probe failures](https://www.bbc.com/news/world-us-canada-61735319)
+Women who say they were sexually assaulted by a disgraced US national gymnastics team doctor plan to sue the FBI for $1bn (£800m). 
+## [Microplastics found in fresh Antarctic snow](https://www.bbc.com/news/science-environment-61739159)
+Scientists have for the first time found microplastics in freshly fallen Antarctic snow.
+## [D-Day ration pack is last in world, museum says](https://www.bbc.com/news/uk-england-dorset-61729444)
+A museum believes a D-Day ration pack held in its collection is the only complete one of its kind in the world.
