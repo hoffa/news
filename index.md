@@ -1,20 +1,20 @@
-## [Captured Britons sentenced to death in Ukraine](https://www.bbc.com/news/uk-61745556)
-Two Britons and a Moroccan who were captured while fighting for Ukraine have been sentenced to death by a Russian proxy court in eastern Ukraine.
-## [Child of murdered parents found safe after 42 years](https://www.bbc.com/news/world-us-canada-61754106)
-The child of two parents who were found murdered in Texas more than 40 years ago has been located alive and well, the state attorney general has said.
-## [Ukraine losing up to 200 troops a day - Zelensky aide](https://www.bbc.com/news/world-europe-61742736)
-A senior Ukrainian presidential aide has told the BBC that between 100 and 200 Ukrainian troops are being killed on the front line every day.
-## [YouTube accused of failing to tackle Musk scams](https://www.bbc.com/news/technology-61749120)
-YouTube is being criticised for failing to tackle a network of cyber-criminals streaming fake Elon Musk videos to scam viewers.
-## [Prince William spotted selling Big Issue in London](https://www.bbc.com/news/uk-england-london-61747092)
-The Duke of Cambridge has been spotted in central London quietly helping to sell Big Issue magazines.
-## [Putin: West unlikely to reject our energy for years](https://www.bbc.com/news/world-europe-61752779)
-Russian President Vladimir Putin says the West will not be able to cut itself off from Russian oil and gas for several years. 
-## [Michigan politician charged over US Capitol riot](https://www.bbc.com/news/world-us-canada-61738919)
-The FBI has arrested a Republican candidate for governor of Michigan and raided his home in connection with the 6 January Capitol riots.
-## [Pakistan's shock televangelist found dead at home](https://www.bbc.com/news/world-asia-61745508)
-One of Pakistan's most prominent and contentious TV hosts, Aamir Liaquat Hussain, has died aged 50 after being found unconscious at home in Karachi.
-## [Michigan officer accused of Patrick Lyoya's murder](https://www.bbc.com/news/world-us-canada-61753705)
-A Michigan police officer has been charged with murder after shooting a Congolese immigrant in the back of the head during a traffic stop. 
-## [Top Gun betrays Hollywood's weakness in China](https://www.bbc.com/news/world-us-canada-61710500)
-Some are cheering the release of Top Gun: Maverick - an action thriller - for supposedly "standing up to China". That misses the point, writes Isaac Stone Fish.
+## [Putin positions himself as heir to Peter the Great](https://www.bbc.com/news/world-europe-61767191)
+Vladimir Putin's admiration for Peter the Great is well known but he now seems to have ideas of 'Great'-ness himself. 
+## [Bieber reveals facial paralysis as tour is paused](https://www.bbc.com/news/world-us-canada-61767457)
+Singer Justin Bieber has revealed he is suffering from facial paralysis after cancelling shows this week.
+## [Insurer faces $5m payout after woman gets STI in car](https://www.bbc.com/news/world-us-canada-61763333)
+A woman may be in for a $5.2m (£4.2m) payout after she allegedly contracted a sexually transmitted infection while having sex in a car.
+## [No sparks fly for Biden and 'Trump of the Tropics'](https://www.bbc.com/news/world-us-canada-61738341)
+After several months of uncertainty as to whether Jair Bolsonaro would be attending the Summit of the Americas, a bilateral meeting with US President Joe Biden on the sidelines of the summit clinched the deal for Brazil's president to show up at the conference in Los Angeles.
+## [UK's most wanted woman jailed over £1bn tax scam](https://www.bbc.com/news/uk-england-york-north-yorkshire-61762799)
+A fraudster who became the UK's most wanted woman after fleeing to Spain while on trial for money laundering has been jailed for eight years. 
+## [Britney Spears gets married after ex gatecrashes](https://www.bbc.com/news/entertainment-arts-61743919)
+Britney Spears has married fiance Sam Asghari, seven months after being freed from a conservatorship that she said had prevented her from getting wed.
+## [Russia's new version of McDonald's unveils logo](https://www.bbc.com/news/business-61727807)
+The Russian fast food chain that was formerly McDonald's in the country has revealed its new logo as it prepares to reopen its restaurants from Sunday.
+## [Graphic testimony as Trump accused of coup attempt](https://www.bbc.com/news/world-us-canada-61753870)
+Former US President Donald Trump orchestrated last year's Capitol riot in an "attempted coup", a congressional inquiry has heard as a hearing opened into the raid.
+## [Shipwreck hailed most important since Mary Rose](https://www.bbc.com/news/uk-england-norfolk-61734192)
+The discovery of a shipwrecked warship that sank while carrying a future King has been hailed the most important maritime find since the Mary Rose.
+## [Texas police chief defends mass shooting response](https://www.bbc.com/news/world-us-canada-61685119)
+Amid widespread criticism, a Texas school district police chief has defended the actions of officers responding to the Uvalde mass shooting. 
