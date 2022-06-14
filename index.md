@@ -1,20 +1,20 @@
-## [Paper denies outing Rebel Wilson amid backlash](https://www.bbc.com/news/world-australia-61775909)
-An Australian newspaper has denied outing actress Rebel Wilson amid a storm of criticism over its reporting of her new relationship with a woman. 
-## [Evidence of widespread use of cluster munitions in Kharkiv](https://www.bbc.com/news/world-europe-61778433)
-Russia has killed hundreds of civilians in the north-eastern Ukrainian city of Kharkiv using indiscriminate shelling and widely-banned cluster munitions, according to new research by Amnesty International.
-## [Senate moves towards limited gun control measures](https://www.bbc.com/news/world-us-canada-61777310)
-A cross-party group of US senators have agreed a framework for potential legislation on gun safety, following a spate of mass shootings.
-## [Dragons' Den star Hilary Devey dies aged 65](https://www.bbc.com/news/uk-england-61777466)
-Former Dragons' Den star Hilary Devey has died aged 65.
-## [Former British soldier dies fighting for Ukraine](https://www.bbc.com/news/uk-61777224)
-A former British soldier has been killed fighting for the Ukrainian armed forces, his family has said. 
-## [India destroys houses after religious riots](https://www.bbc.com/news/world-asia-india-61777306)
-Security forces in India have demolished the homes of several Muslim figures allegedly linked to riots triggered by derogatory remarks about the Prophet Mohammed.
-## [Morocco bans ‘blasphemous’ British film](https://www.bbc.com/news/world-africa-61774830)
-Moroccan cinema authorities have banned the controversial British film Lady of Heaven, after it was condemned by the country's religious council.
-## [Left vote surge threatens Macron majority in France](https://www.bbc.com/news/world-europe-61777756)
-French President Emmanuel Macron is at risk of losing his outright majority after a strong challenge from a coalition of left-wing parties in National Assembly elections.
-## [Life after Guantanamo: 'We are still in jail'](https://www.bbc.com/news/world-us-canada-61609417)
-Mansoor Adayfi knew next to nothing about Serbia when a delegation from its government came to visit him in 2016, in his 14th year in the prison at Guantanamo Bay.
-## [Russia unveils 'tasty' McDonald's substitute](https://www.bbc.com/news/world-europe-61774475)
-It's a Russian revamp of an American icon. 
+## [Trump 'detached from reality', says Barr](https://www.bbc.com/news/world-us-canada-61789605)
+The former US attorney general says he thought Donald Trump was "detached from reality" after the 2020 election, a congressional panel has heard.
+## [Ramsay Hunt syndrome 'took away my independence'](https://www.bbc.com/news/newsbeat-61785955)
+Justin Bieber recently revealed he's been diagnosed with Ramsay Hunt syndrome. 
+## ['How to murder your husband' writer jailed for life](https://www.bbc.com/news/world-us-canada-61786575)
+Murder, she wrote - and for murder, she is going to jail.
+## [Every bridge leading to key Ukraine city destroyed](https://www.bbc.com/news/world-europe-61786949)
+All bridges to the embattled Ukrainian city of Severodonetsk have now been destroyed, the local governor says.
+## [Fans ask Lizzo to remove song over offensive lyric](https://www.bbc.com/news/entertainment-arts-61782726)
+Fans are asking US singer Lizzo to delete and re-record her new single, Grrrls, to remove an ableist slur from the lyrics.
+## [Russia erasing history in Ukraine's 'dead city'](https://www.bbc.com/news/world-europe-61785806)
+"Max speed!" The instruction comes via walkie-talkie from the armoured police car in front, as we hurtle past the burnt-out carcass of a Ukrainian military truck. There's a high risk of Russian attack on this stretch of road, but it's the safest route left into the beleaguered city of Lysychansk. 
+## [Toronto van attacker sentenced to life in prison](https://www.bbc.com/news/world-us-canada-61792730)
+The man responsible for a deadly van attack in Toronto four years ago has been sentenced to life in prison with no possibility of parole for 25 years.
+## [UK reveals plans to ditch parts of EU Brexit deal](https://www.bbc.com/news/uk-politics-61790248)
+The UK government has published plans to get rid of parts of the post-Brexit deal it agreed with the EU in 2019.
+## [Actor Kevin Spacey charged with sexual assault](https://www.bbc.com/news/uk-61788979)
+Actor Kevin Spacey has been charged with four counts of sexual assault against three men, the Metropolitan Police has confirmed.
+## [Why is inflation in US higher than elsewhere?](https://www.bbc.com/news/business-61569559)
+Last year, businesses around the world started raising prices at a pace not seen in decades. Among major economies, one country was hit the worst - the United States.
