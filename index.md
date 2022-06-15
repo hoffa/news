@@ -1,20 +1,20 @@
-## [Trump 'detached from reality', says Barr](https://www.bbc.com/news/world-us-canada-61789605)
-The former US attorney general says he thought Donald Trump was "detached from reality" after the 2020 election, a congressional panel has heard.
+## [People in Pakistan urged to drink fewer cups of tea](https://www.bbc.com/news/world-asia-61805848)
+People in Pakistan have been asked to reduce the amount of tea they drink to keep the country's economy afloat.
+## [Denmark and Canada reach deal to end 'Whisky Wars'](https://www.bbc.com/news/world-europe-61801682)
+Denmark and Canada have struck a deal to settle almost 50 years of good-natured squabbling over the ownership of a small, uninhabited Arctic island.
+## [Rwanda asylum flight cancelled after legal action](https://www.bbc.com/news/uk-61806383)
+The first flight scheduled to take asylum seekers from the UK to Rwanda on Tuesday has been cancelled after a last-minute legal battle.
+## [Monkeypox to get a new name, says WHO](https://www.bbc.com/news/health-61804132)
+The World Health Organization says it is working with experts to come up with a new name for monkeypox. 
+## [Canada lifts jab mandate for domestic travel](https://www.bbc.com/news/world-us-canada-61805758)
+Canada's federal government is lifting vaccine requirements for travellers on domestic and outbound trains and planes, officials announced on Tuesday.
+## [Russia extends US basketball star's detention again](https://www.bbc.com/news/world-us-canada-61803959)
+US basketball star Brittney Griner's detention in Russia has been extended again, Russian state media report.
+## [Happy the elephant is not a person, US court rules](https://www.bbc.com/news/world-us-canada-61803958)
+Happy the elephant, a long-time resident of the Bronx Zoo, must remain there after a New York court ruled she is not legally a person under US law.
+## [What's happening to Bitcoin?](https://www.bbc.com/news/technology-61796155)
+The first rule of writing about Bitcoin is: don't write about Bitcoin. 
 ## [Ramsay Hunt syndrome 'took away my independence'](https://www.bbc.com/news/newsbeat-61785955)
 Justin Bieber recently revealed he's been diagnosed with Ramsay Hunt syndrome. 
-## ['How to murder your husband' writer jailed for life](https://www.bbc.com/news/world-us-canada-61786575)
-Murder, she wrote - and for murder, she is going to jail.
-## [Every bridge leading to key Ukraine city destroyed](https://www.bbc.com/news/world-europe-61786949)
-All bridges to the embattled Ukrainian city of Severodonetsk have now been destroyed, the local governor says.
-## [Fans ask Lizzo to remove song over offensive lyric](https://www.bbc.com/news/entertainment-arts-61782726)
-Fans are asking US singer Lizzo to delete and re-record her new single, Grrrls, to remove an ableist slur from the lyrics.
-## [Russia erasing history in Ukraine's 'dead city'](https://www.bbc.com/news/world-europe-61785806)
-"Max speed!" The instruction comes via walkie-talkie from the armoured police car in front, as we hurtle past the burnt-out carcass of a Ukrainian military truck. There's a high risk of Russian attack on this stretch of road, but it's the safest route left into the beleaguered city of Lysychansk. 
-## [Toronto van attacker sentenced to life in prison](https://www.bbc.com/news/world-us-canada-61792730)
-The man responsible for a deadly van attack in Toronto four years ago has been sentenced to life in prison with no possibility of parole for 25 years.
-## [UK reveals plans to ditch parts of EU Brexit deal](https://www.bbc.com/news/uk-politics-61790248)
-The UK government has published plans to get rid of parts of the post-Brexit deal it agreed with the EU in 2019.
-## [Actor Kevin Spacey charged with sexual assault](https://www.bbc.com/news/uk-61788979)
-Actor Kevin Spacey has been charged with four counts of sexual assault against three men, the Metropolitan Police has confirmed.
-## [Why is inflation in US higher than elsewhere?](https://www.bbc.com/news/business-61569559)
-Last year, businesses around the world started raising prices at a pace not seen in decades. Among major economies, one country was hit the worst - the United States.
+## [K-pop superstars BTS say they are taking a break](https://www.bbc.com/news/entertainment-arts-61803343)
+South Korean boy band BTS, whose catchy, upbeat songs have won them legions of fans, have announced they will be taking a break.
