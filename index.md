@@ -1,20 +1,20 @@
-## [US makes biggest interest rate rise since 1994](https://www.bbc.com/news/business-61804877)
-The US central bank has announced its biggest interest rate rise in nearly 30 years as it ramps up its fight to rein in soaring consumer prices.
-## [US school's skirt requirement struck down by court](https://www.bbc.com/news/world-us-canada-61817667)
-A North Carolina school violated the constitutional rights of its female pupils by requiring them to wear skirts, a US federal court has ruled.
-## [Saudis seize 'immoral' rainbow-coloured toys](https://www.bbc.com/news/world-middle-east-61813390)
-Authorities in Saudi Arabia have been seizing rainbow-coloured toys and children's clothing, which they claim encourage homosexuality, state TV says. 
-## [Hot coal walk leaves 25 injured in Switzerland](https://www.bbc.com/news/world-europe-61811157)
-Twenty-five people have been treated for burns in northern Switzerland after they walked across hot coals as part of a team-building exercise.
-## [Thousands of civilians trapped in key Ukraine city](https://www.bbc.com/news/world-europe-61816749)
-Thousands of civilians are trapped in the Ukrainian city of Severodonetsk with essential supplies running out, the United Nations is warning.
-## [US Capitol tour on eve of riot under scrutiny](https://www.bbc.com/news/world-us-canada-61820372)
-US lawmakers investigating the Capitol riot have shown video of a Republican giving a tour to a man who they say returned on the day of the attack.
-## [Tell-all renews scrutiny of President Biden's son](https://www.bbc.com/news/world-us-canada-55805698)
-Hunter Biden, the only living son of President Joe Biden, "always acknowledged the benefit and advantage" of his powerful family name, but was "struggling under a massive drug addiction", a new memoir from his ex-wife of 24 years reveals.
-## [Don't buy a bulldog until breed reshaped, vets ask](https://www.bbc.com/news/science-environment-61799718)
-The flat faces bred into bulldogs can cause a "lifetime of suffering" and vets are urging people not to buy one.
-## [Dutch idea to give jobs to French youths backfires](https://www.bbc.com/news/world-europe-61808470)
-The Dutch social affairs minister has been criticised across the political spectrum for suggesting young jobless people from depressed French suburbs could take up jobs in the Netherlands.
-## [Russia's economy buckles up for a bumpy ride](https://www.bbc.com/news/world-europe-61796067)
-"It's the most affordable new vehicle in Russia. They're calling it… the anti-sanctions car!"
+## [Lavrov: Russia is not squeaky clean and not ashamed](https://www.bbc.com/news/world-europe-61825525)
+Since the Russian army attacked Ukraine nearly four months ago, thousands of civilians have been killed and whole towns reduced to rubble, while millions of Ukrainians have fled their homes.  
+## [Tom Hanks shouts at fans after wife trips](https://www.bbc.com/news/entertainment-arts-61830285)
+Tom Hanks has been seen angrily telling fans to "back off" after his wife Rita Wilson tripped while being surrounded as they left a restaurant in New York.
+## [Marilyn Monroe's dress not damaged, Ripley's claims](https://www.bbc.com/news/entertainment-arts-61801906)
+A US museum has denied claims that an iconic Marilyn Monroe gown was left damaged after Kim Kardashian wore it at the Met Gala last month.
+## [Millions could get payouts in iPhone battery row](https://www.bbc.com/news/business-61823512)
+Millions of iPhone users could be eligible for payouts, following the launch of a legal claim accusing Apple of secretly slowing the performance of older phones.
+## [Trump pressed Pence in 'illegal' bid to quash vote](https://www.bbc.com/news/world-us-canada-61834957)
+Ex-President Donald Trump put his Vice-President Mike Pence in danger during the Capitol riot as he illegally pressured him to quash the 2020 election, says a congressional panel.
+## [Stock markets see big falls as economy fears grow](https://www.bbc.com/news/business-61830925)
+Stock markets have suffered another bruising day, tumbling as worries about the economy intensify following a series of rate hikes around the world.
+## [EU leaders back Ukraine's candidacy bid](https://www.bbc.com/news/world-europe-61828229)
+The leaders of France, Germany, Italy and Romania have backed Ukraine's bid to join the EU, saying it should be given "immediate" candidate status.
+## [Three American fighters reported missing in Ukraine](https://www.bbc.com/news/world-us-canada-61835574)
+The US Department of State says it is aware of reports that three American fighters are missing in Ukraine, with two of them feared captured.
+## [Russian Foreign Minister Lavrov fact-checked](https://www.bbc.com/news/61829953)
+Russian Foreign Minister Sergei Lavrov has made several claims about the war in Ukraine in an interview with the BBC. 
+## [Eight million Australians urged to turn off lights](https://www.bbc.com/news/business-61821423)
+Australia's energy minister has urged households in New South Wales - a state that includes the country's biggest city Sydney - to switch off their lights in the face of an energy crisis.
