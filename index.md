@@ -1,20 +1,20 @@
-## [The woman who could end Roe v Wade](https://www.bbc.com/news/world-us-canada-61789443)
-In September 2021, Mississippi's chief legal officer sat down for an interview with Pro-Life Weekly, a Catholic television programme featuring anti-abortion activists. 
-## [Iconic Hong Kong floating restaurant sinks](https://www.bbc.com/news/world-asia-china-61875061)
-A floating restaurant that was a famous Hong Kong landmark has sunk, days after it was towed away from the harbour where it operated for nearly 50 years. 
-## [World's largest freshwater fish found in Mekong](https://www.bbc.com/news/world-asia-61862169)
-A 300kg (661lb) stingray caught in the Mekong river in Cambodia is the biggest freshwater fish ever documented, scientists say. 
-## [5,000 people hit by Heathrow flight cancellations](https://www.bbc.com/news/business-61862788)
-Around 30 flights carrying up to 5,000 passengers have been cancelled at Heathrow Airport due to technical issues affecting baggage. 
-## [Chinese man held over racist videos exposed by BBC](https://www.bbc.com/news/world-africa-61862619)
-A Chinese filmmaker wanted by Malawi as part of an investigation into allegations of racism and child exploitation has been arrested.
-## [Africa is a hostage of Russia's war, Zelensky says](https://www.bbc.com/news/world-europe-61864049)
-Ukrainian President Volodymyr Zelensky has called Africa "a hostage" of Russia's war during an address to the African Union (AU) on Monday. 
-## [India floods destroy millions of homes and dreams](https://www.bbc.com/news/world-asia-india-61862035)
- "There was water everywhere, but not a single drop to drink."
-## [Israel set for new PM as government collapses](https://www.bbc.com/news/world-middle-east-61867006)
-Israel is set to hold a fifth general election in under four years, after its fractured coalition government concluded it could not survive.
-## [France's far right and left both make breakthroughs](https://www.bbc.com/news/world-europe-61863172)
-They were the big winners of France's elections, tearing apart President Emmanuel Macron's majority.
-## [Ethiopia violence: 'Villages full of dead bodies'](https://www.bbc.com/news/world-africa-61864392)
-Eyewitnesses to an outbreak of ethnic violence in western Ethiopia have told the BBC that they were left helpless during attacks, which resulted in the deaths of more than 250 people.
+## [Elon Musk's daughter cuts ties with her father](https://www.bbc.com/news/technology-61880709)
+Elon Musk's transgender daughter has applied to legally change her name and gender, saying she no longer wants to "be related to my biological father in any way, shape or form".
+## [Jury finds Cosby assaulted teen at Playboy Mansion](https://www.bbc.com/news/world-us-canada-61829113)
+Comedian Bill Cosby sexually assaulted a teenager at the Playboy Mansion in Los Angeles in 1975, a jury has found.
+## [X Factor star's fiancee dies on wedding day](https://www.bbc.com/news/entertainment-arts-61879545)
+Former X Factor star Tom Mann says he has been left "completely broken" after his fiancee Danielle died hours before they were due to get married.
+## [Poll officials detail Trump voters' death threats](https://www.bbc.com/news/world-us-canada-61889593)
+Trump supporters threatened election officials and their families after they refused to quash his 2020 defeat, a congressional panel has heard.
+## [Texas shooting response 'abject failure' - official](https://www.bbc.com/news/world-us-canada-61877914)
+There were enough police on the scene of the Uvalde, Texas school shooting to have stopped the gunman three minutes after he entered the building, Texas's public safety chief has testified.
+## [Russia warns Lithuania over rail transit blockade](https://www.bbc.com/news/world-europe-61878929)
+Russia has warned Lithuania of "serious" consequences after it banned the rail transfer of some goods to the Russian territory of Kaliningrad.
+## [French court upholds ban on burkini swimsuits](https://www.bbc.com/news/world-europe-61883529)
+France's highest administrative court has upheld a ban on full-body "burkini" swimsuits in public pools, rejecting an appeal by the city of Grenoble. 
+## [In pictures: Americans face extreme temperatures](https://www.bbc.com/news/in-pictures-61880159)
+More than nine million people across eight states in northern and central US were under heat alerts Monday - a number that is expected to grow in the coming days. 
+## [Ben Stiller describes 'distressing' Ukraine visit](https://www.bbc.com/news/entertainment-arts-61879539)
+US actor Ben Stiller has described the scenes in war-torn Ukraine as "distressing", "shocking" and on a bigger scale than any movie.
+## [US Supreme Court rejects Bayer weedkiller appeal](https://www.bbc.com/news/business-61886525)
+America's highest court has delivered a setback to German chemical maker Bayer AG, which is battling thousands of US lawsuits over its weedkiller Roundup.
