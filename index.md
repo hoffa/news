@@ -1,20 +1,20 @@
-## [Elon Musk's daughter cuts ties with her father](https://www.bbc.com/news/technology-61880709)
-Elon Musk's transgender daughter has applied to legally change her name and gender, saying she no longer wants to "be related to my biological father in any way, shape or form".
-## [Jury finds Cosby assaulted teen at Playboy Mansion](https://www.bbc.com/news/world-us-canada-61829113)
-Comedian Bill Cosby sexually assaulted a teenager at the Playboy Mansion in Los Angeles in 1975, a jury has found.
-## [X Factor star's fiancee dies on wedding day](https://www.bbc.com/news/entertainment-arts-61879545)
-Former X Factor star Tom Mann says he has been left "completely broken" after his fiancee Danielle died hours before they were due to get married.
-## [Poll officials detail Trump voters' death threats](https://www.bbc.com/news/world-us-canada-61889593)
-Trump supporters threatened election officials and their families after they refused to quash his 2020 defeat, a congressional panel has heard.
-## [Texas shooting response 'abject failure' - official](https://www.bbc.com/news/world-us-canada-61877914)
-There were enough police on the scene of the Uvalde, Texas school shooting to have stopped the gunman three minutes after he entered the building, Texas's public safety chief has testified.
-## [Russia warns Lithuania over rail transit blockade](https://www.bbc.com/news/world-europe-61878929)
-Russia has warned Lithuania of "serious" consequences after it banned the rail transfer of some goods to the Russian territory of Kaliningrad.
-## [French court upholds ban on burkini swimsuits](https://www.bbc.com/news/world-europe-61883529)
-France's highest administrative court has upheld a ban on full-body "burkini" swimsuits in public pools, rejecting an appeal by the city of Grenoble. 
-## [In pictures: Americans face extreme temperatures](https://www.bbc.com/news/in-pictures-61880159)
-More than nine million people across eight states in northern and central US were under heat alerts Monday - a number that is expected to grow in the coming days. 
-## [Ben Stiller describes 'distressing' Ukraine visit](https://www.bbc.com/news/entertainment-arts-61879539)
-US actor Ben Stiller has described the scenes in war-torn Ukraine as "distressing", "shocking" and on a bigger scale than any movie.
-## [US Supreme Court rejects Bayer weedkiller appeal](https://www.bbc.com/news/business-61886525)
-America's highest court has delivered a setback to German chemical maker Bayer AG, which is battling thousands of US lawsuits over its weedkiller Roundup.
+## [Rupert Murdoch and Jerry Hall reportedly to split](https://www.bbc.com/news/world-us-canada-61904095)
+Media tycoon Rupert Murdoch and actress Jerry Hall are getting a divorce, US media report.
+## [Fears for life of US woman denied abortion in Malta](https://www.bbc.com/news/world-61898437)
+Andrea and Jay never thought they'd be in this situation: praying that their baby daughter's heart stops beating before Andrea develops a deadly infection. 
+## [Taliban appeal for aid after deadly earthquake](https://www.bbc.com/news/world-asia-61900260)
+The Taliban in Afghanistan have appealed for international support, as the country deals with the aftermath of a devastating 6.1 magnitude earthquake. 
+## [Half Russian separatist force dead or wounded - UK](https://www.bbc.com/news/world-europe-61891462)
+Russian and Russian proxy forces in the Donetsk region of Ukraine have suffered heavy casualties, according to UK intelligence officials.
+## [Coming to a standstill in Kaliningrad](https://www.bbc.com/news/world-europe-61902322)
+Igor Pleshkov gives me a tour of his concrete business in Kaliningrad.
+## [The mites that have sex on our faces have a problem](https://www.bbc.com/news/newsbeat-61894186)
+Exfoliate, moisturise and SPF every day are the standard in most people's skincare routine.
+## [Ukraine Briton told execution will go ahead](https://www.bbc.com/news/uk-61900291)
+A British man sentenced to death by a Russian proxy court for fighting in Ukraine has been told the execution will be carried out, his family say. 
+## [EU leaders to back Ukraine as candidate](https://www.bbc.com/news/world-europe-61891467)
+Ukraine is set to be approved as an EU candidate at a Brussels summit on Thursday, after the European Commission gave the green light.
+## [Europe told to prepare for Russia turning off gas](https://www.bbc.com/news/science-environment-61899509)
+The head of the International Energy Agency has warned that Russia may stop supplying gas to Europe this winter. 
+## [Brics nations push for global clout amid Ukraine war](https://www.bbc.com/news/world-asia-india-61894760)
+ The leaders of the Brics group of nations are meeting this year amid major shifts in the geopolitical order.
