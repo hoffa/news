@@ -1,20 +1,20 @@
+## [Trump's election challenge 'a murder-suicide pact'](https://www.bbc.com/news/world-us-canada-61918350)
+US government lawyers threatened to quit en masse as then-President Donald Trump hounded them almost daily to help overturn his 2020 election defeat, a congressional inquiry has heard.
+## [Supreme Court ruling expands US gun rights](https://www.bbc.com/news/world-us-canada-61915237)
+The US Supreme Court has struck down a New York law restricting gun-carrying rights, in its most important judgement on guns in over a decade.
+## [Florida nabs largest python ever found in state](https://www.bbc.com/news/world-us-canada-61916694)
+Her last meal was an entire white-tailed deer, and she was on her way to a rendezvous with a male snake when the largest python ever found in Florida met her demise. 
+## [US bans all products from vaping company Juul](https://www.bbc.com/news/business-61914166)
+The US is banning the sale of all products sold by Juul, one of the country's top e-cigarette companies.
+## [EU awards Ukraine and Moldova candidate status](https://www.bbc.com/news/world-europe-61891467)
+Ukraine and Moldova have both been granted EU candidate status, President of the European Council Charles Michel has announced.
+## [First joint portrait painted of Kate and William](https://www.bbc.com/news/uk-61907696)
+The Duke and Duchess of Cambridge have had their official portrait painted together for the first time.
+## [Netflix cuts 300 more jobs after subscriptions fall](https://www.bbc.com/news/business-61914167)
+Netflix has announced another round of job cuts as it grapples with slowing growth and increased competition.
+## [New Tesla plants losing billions of dollars - Musk](https://www.bbc.com/news/business-61905276)
+Elon Musk says Tesla's new factories in Germany and the US are "losing billions of dollars" due to battery shortages and supply disruptions in China. 
 ## [Rupert Murdoch and Jerry Hall reportedly to split](https://www.bbc.com/news/world-us-canada-61904095)
 Media tycoon Rupert Murdoch and actress Jerry Hall are getting a divorce, US media report.
-## [Fears for life of US woman denied abortion in Malta](https://www.bbc.com/news/world-61898437)
-Andrea and Jay never thought they'd be in this situation: praying that their baby daughter's heart stops beating before Andrea develops a deadly infection. 
-## [Taliban appeal for aid after deadly earthquake](https://www.bbc.com/news/world-asia-61900260)
-The Taliban in Afghanistan have appealed for international support, as the country deals with the aftermath of a devastating 6.1 magnitude earthquake. 
-## [Half Russian separatist force dead or wounded - UK](https://www.bbc.com/news/world-europe-61891462)
-Russian and Russian proxy forces in the Donetsk region of Ukraine have suffered heavy casualties, according to UK intelligence officials.
-## [Coming to a standstill in Kaliningrad](https://www.bbc.com/news/world-europe-61902322)
-Igor Pleshkov gives me a tour of his concrete business in Kaliningrad.
-## [The mites that have sex on our faces have a problem](https://www.bbc.com/news/newsbeat-61894186)
-Exfoliate, moisturise and SPF every day are the standard in most people's skincare routine.
-## [Ukraine Briton told execution will go ahead](https://www.bbc.com/news/uk-61900291)
-A British man sentenced to death by a Russian proxy court for fighting in Ukraine has been told the execution will be carried out, his family say. 
-## [EU leaders to back Ukraine as candidate](https://www.bbc.com/news/world-europe-61891467)
-Ukraine is set to be approved as an EU candidate at a Brussels summit on Thursday, after the European Commission gave the green light.
-## [Europe told to prepare for Russia turning off gas](https://www.bbc.com/news/science-environment-61899509)
-The head of the International Energy Agency has warned that Russia may stop supplying gas to Europe this winter. 
-## [Brics nations push for global clout amid Ukraine war](https://www.bbc.com/news/world-asia-india-61894760)
- The leaders of the Brics group of nations are meeting this year amid major shifts in the geopolitical order.
+## [Islanders save lost luggage couple's wedding](https://www.bbc.com/news/uk-scotland-highlands-islands-61908520)
+Islanders rallied to save an American couple's wedding after their luggage - including the bride's dress - was lost on their trouble-hit trip to Skye.
