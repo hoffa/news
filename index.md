@@ -1,20 +1,20 @@
-## [Trump's election challenge 'a murder-suicide pact'](https://www.bbc.com/news/world-us-canada-61918350)
-US government lawyers threatened to quit en masse as then-President Donald Trump hounded them almost daily to help overturn his 2020 election defeat, a congressional inquiry has heard.
-## [Supreme Court ruling expands US gun rights](https://www.bbc.com/news/world-us-canada-61915237)
-The US Supreme Court has struck down a New York law restricting gun-carrying rights, in its most important judgement on guns in over a decade.
-## [Florida nabs largest python ever found in state](https://www.bbc.com/news/world-us-canada-61916694)
-Her last meal was an entire white-tailed deer, and she was on her way to a rendezvous with a male snake when the largest python ever found in Florida met her demise. 
-## [US bans all products from vaping company Juul](https://www.bbc.com/news/business-61914166)
-The US is banning the sale of all products sold by Juul, one of the country's top e-cigarette companies.
-## [EU awards Ukraine and Moldova candidate status](https://www.bbc.com/news/world-europe-61891467)
-Ukraine and Moldova have both been granted EU candidate status, President of the European Council Charles Michel has announced.
-## [First joint portrait painted of Kate and William](https://www.bbc.com/news/uk-61907696)
-The Duke and Duchess of Cambridge have had their official portrait painted together for the first time.
-## [Netflix cuts 300 more jobs after subscriptions fall](https://www.bbc.com/news/business-61914167)
-Netflix has announced another round of job cuts as it grapples with slowing growth and increased competition.
-## [New Tesla plants losing billions of dollars - Musk](https://www.bbc.com/news/business-61905276)
-Elon Musk says Tesla's new factories in Germany and the US are "losing billions of dollars" due to battery shortages and supply disruptions in China. 
-## [Rupert Murdoch and Jerry Hall reportedly to split](https://www.bbc.com/news/world-us-canada-61904095)
-Media tycoon Rupert Murdoch and actress Jerry Hall are getting a divorce, US media report.
-## [Islanders save lost luggage couple's wedding](https://www.bbc.com/news/uk-scotland-highlands-islands-61908520)
-Islanders rallied to save an American couple's wedding after their luggage - including the bride's dress - was lost on their trouble-hit trip to Skye.
+## [Top US court ends constitutional right to abortion](https://www.bbc.com/news/world-us-canada-61928898)
+Millions of women in the US will lose the constitutional right to abortion, after the Supreme Court overturned its 50-year-old Roe v Wade decision.
+## [World's deepest shipwreck discovered](https://www.bbc.com/news/science-environment-61925862)
+Explorers have found the deepest shipwreck ever identified, a US navy destroyer escort sunk during WWII.
+## ['There is no meaning to my life any more'](https://www.bbc.com/news/world-asia-61929723)
+Rahmat Gul's family is busy erecting a tent that has just been donated by a former Afghan politician. 
+## [Ancient pregnant tortoise surprises Pompeii diggers](https://www.bbc.com/news/world-europe-61931172)
+When Mount Vesuvius erupted nearly 2,000 years ago Pompeii's ancient residents were frozen in place by ash.
+## [Ukraine orders troops to leave key eastern city](https://www.bbc.com/news/world-europe-61920708)
+Ukrainian forces have been ordered to withdraw from Severodonetsk, according to the top regional official. 
+## [Why this is a seismic day in America](https://www.bbc.com/news/world-us-canada-61929438)
+The Supreme Court just lobbed a constitutional hand grenade into the raging culture wars in the US, igniting a fresh battle in this decades-long fight over abortion. 
+## [What happens now Roe v Wade has been overturned?](https://www.bbc.com/news/world-us-canada-61804777)
+The US Supreme Court has opened the door for individual states to ban or severely restrict the ability for pregnant women to get abortions. 
+## [Man loses USB stick with entire city's personal details](https://www.bbc.com/news/world-asia-61921222)
+For many, after-work drinks are a common way of relaxing after a busy week.
+## [What is Roe v Wade ruling on abortion?](https://www.bbc.com/news/world-us-canada-54513499)
+Abortion was made legal across the US after a landmark legal ruling in 1973, often referred to as the Roe v Wade case.
+## [Elation and despair outside US Supreme Court](https://www.bbc.com/news/world-us-canada-61932909)
+The street in front of the Supreme Court crackled with energy. Conservative women sobbed with joy at the decision taken inside the building to overturn the 50-year-old Roe v Wade case that entitled pregnant women to an abortion during the first three months of their pregnancy.
