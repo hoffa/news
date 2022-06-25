@@ -10,7 +10,7 @@ jobs:
       - uses: actions/setup-go@v3
       - run: go run main.go > index.md
       - run: go install github.com/hoffa/pt@latest
-      - run: pt < index.md > index.html
+      - run: ~/go/bin/pt < index.md > index.html
       - run: |
           git config user.name github-actions
           git config user.email github-actions@github.com
