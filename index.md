@@ -1,21 +1,21 @@
 # News
-## [The world reacts to US abortion ruling](https://www.bbc.com/news/world-us-canada-61788929)
-The US Supreme Court's overturning of the constitutional right to abortion is being felt in countries across the world, where activists on both sides of the debate have been explaining what it means to them.
-## [Russia promises Belarus nuclear-capable missiles](https://www.bbc.com/news/world-europe-61938111)
-Russia will send nuclear capable short-range missile systems to its ally Belarus in the coming months, President Vladimir Putin has said.
-## [Oslo shooting treated as Islamist terrorism](https://www.bbc.com/news/world-europe-61933817)
-A 42-year-old man has been arrested and charged with murder, attempted murder and terrorist acts after a shooting in the centre of Norway's capital, Oslo.
-## [Frozen baby mammoth discovered in Canada](https://www.bbc.com/news/world-us-canada-61936818)
-A whole baby woolly mammoth has been found frozen in the permafrost of north-western Canada - the first such discovery in North America.
+## [Prince Charles 'accepted a suitcase with 1m euros'](https://www.bbc.com/news/uk-61941113)
+The Prince of Wales accepted a suitcase containing a million euros in cash from a former Qatari prime minister, the Sunday Times has reported.
+## [Several die as Colombian bullfight stand collapses](https://www.bbc.com/news/world-latin-america-61945917)
+At least four people have been killed and scores more were injured after a stand collapsed during a bullfight in central Colombia.
+## [Missiles strike Ukraine as G7 rallies over Russia](https://www.bbc.com/news/world-europe-61943252)
+Dozens of Russian missiles have struck targets across Ukraine, with the capital Kyiv enduring the heaviest barrage in months.
+## [What Severodonetsk's fall means for the war](https://www.bbc.com/news/world-europe-61945914)
+It may have felt like an inevitability, but that does not make the fall of Severodonetsk any less painful for Ukraine.
+## [What the US abortion decision means for the mid-terms](https://www.bbc.com/news/world-us-canada-61939185)
+As the dust settled on the Supreme Court's decision overruling the constitutional right to an abortion, politicians across the spectrum stepped forward to outline how the political stakes have changed - and what comes next.
 ## [U2 singer Bono discovered he has a half-brother](https://www.bbc.com/news/entertainment-arts-61929263)
 U2 singer Bono has revealed he has a half-brother, whose existence he was unaware of for decades.
+## [US firms pledge to pay abortion travel expenses](https://www.bbc.com/news/business-61941591)
+Major companies including Disney, JP Morgan and Facebook owner Meta have told staff they will cover employee travel expenses for abortions, as millions of US women face restricted access.
+## [G7 leaders meet amid political pressures at home](https://www.bbc.com/news/uk-politics-61945712)
+Amid the beauty of the Bavarian mountains and fields, a fundamental truth is immediately striking at this G7 Summit.
 ## [Russia on brink of default as debt deadline looms](https://www.bbc.com/news/business-61929926)
 Russia is on the brink of its first debt default since 1998 as the Sunday deadline to make a $100m interest payment seems certain to be missed.
-## [Dave Grohl joins Paul McCartney at Glastonbury](https://www.bbc.com/news/entertainment-arts-61939871)
-Dave Grohl has joined Paul McCartney on stage at the Glastonbury festival, in his first public performance since the death of Foo Fighters' drummer Taylor Hawkins.
-## [G7 face battle for unity as cost of war mounts](https://www.bbc.com/news/world-europe-61940007)
-The Russian war against Ukraine will inevitably dominate the summit of G7 nations in Bavaria. 
-## [Greta Thunberg in surprise Glastonbury appearance](https://www.bbc.com/news/entertainment-arts-61938933)
-Greta Thunberg has made a surprise appearance at Glastonbury, to warn of the dangers of climate change. 
-## [How a family of 14 is coping with rising costs](https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-61831545)
-When asked how she switches off from the thrum of family life with 12 children, Zoe Sullivan jokes: "I go to the supermarket for a break."
+## [South African police investigate nightclub deaths](https://www.bbc.com/news/world-africa-61941170)
+South African authorities are investigating the deaths of at least 22 young people in a nightclub.
