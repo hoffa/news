@@ -1,21 +1,21 @@
 # News
-## [Ex-aide paints devastating picture of Trump](https://www.bbc.com/news/world-us-canada-61970258)
-Up until now, the congressional committee investigating the 6 January attack on the Capitol was missing a key piece of the puzzle - the testimony of someone who could offer a firsthand account of the situation in the White House in the hours before and during the attack.
-## [Turkey supports Finland and Sweden Nato bid](https://www.bbc.com/news/world-europe-61971858)
-Nato member Turkey has agreed to support Sweden and Finland's membership of the alliance.
-## [Trump urged armed supporters to storm Capitol - aide](https://www.bbc.com/news/world-us-canada-61971428)
-Donald Trump knew supporters had weapons when he urged them to storm the Capitol to overturn the 2020 election, a former White House aide has said.
-## [Maxwell sentenced to 20 years over sex trafficking](https://www.bbc.com/news/world-us-canada-61970358)
-Ghislaine Maxwell has been sentenced to 20 years in a US prison for helping former financier Jeffrey Epstein abuse young girls.
-## [Why young Arab men turn to anti-impotency drugs](https://www.bbc.com/news/world-middle-east-61803199)
-In his apothecary shop in the historic neighbourhood of Bab al-Shaaria in the heart of Cairo, herbalist Rabea al-Habashi shows what he calls his "magical blends". 
-## [Williams beaten by Tan in Wimbledon thriller](https://www.bbc.com/sport/tennis/61971291)
-Serena Williams' hopes of a victorious return to Wimbledon after a year out ended with a loss to Harmony Tan.
-## [Cancer campaigner Dame Deborah James dies](https://www.bbc.com/news/uk-61451495)
-The cancer campaigner, blogger, broadcaster and former teacher, Dame Deborah James, has died aged 40.
-## [Missing boy found alive in sewer after eight days](https://www.bbc.com/news/world-europe-61971856)
-A missing boy has been found alive after surviving for more than a week in a sewer in Germany.
-## [Nato veto lifted and more false claims - today's round-up](https://www.bbc.com/news/world-europe-61967382)
-In the past few hours, the path has cleared for Finland and Sweden to join the Nato defence bloc, after it was announced they had managed to overcome objections from Turkey.
-## [What jailing Maxwell means to women she preyed on](https://www.bbc.com/news/world-us-canada-61960590)
-The 20-year jail sentence for Ghislaine Maxwell caps off one of the most dramatic chapters of her downfall - a high profile trial watched around the world that exposed some of her darkest secrets and sordid crimes.
+## [Paris attacker given France's most severe sentence](https://www.bbc.com/news/world-europe-61989354)
+The only surviving attacker from the group that carried out the November 2015 Paris attacks has been found guilty of terrorism and murder charges.
+## [R. Kelly given 30 years in jail for sex abuse](https://www.bbc.com/news/world-us-canada-61989606)
+US singer R. Kelly has been sentenced to 30 years in prison for using his celebrity status to sexually abuse children and women.
+## [US beach returned to black owners after 98 years](https://www.bbc.com/news/world-us-canada-61981785)
+A prime beachfront resort seized from its black owners nearly 100 years ago has been returned to their descendants by officials in Los Angeles. 
+## [US to ramp up military presence across Europe](https://www.bbc.com/news/world-europe-61983555)
+The US will increase its military presence across Europe as Nato agreed a "fundamental shift" in its response to Russia's invasion of Ukraine.
+## [Japan swelters in its worst heatwave ever recorded](https://www.bbc.com/news/world-asia-61976937)
+Japan is sweltering under the hottest day yet of its worst heatwave since records began in 1875.
+## [Putin's cousin hit by new UK sanctions over Ukraine](https://www.bbc.com/news/uk-61981765)
+The UK has announced its newest wave of sanctions targeting Vladimir Putin's inner circle, including his cousin. 
+## [Charles suitcase of cash 'would not happen again'](https://www.bbc.com/news/uk-61984112)
+The cash donation accepted by the Prince of Wales for his charity would not happen now, a royal source says.
+## [Canadian admits working with Russian hacker gang](https://www.bbc.com/news/technology-61981923)
+An ex-Canadian government IT worker has admitted to being a high-level hacker with a Russian cyber-crime group.
+## [Airbnb permanently bans parties around the world](https://www.bbc.com/news/business-61976350)
+Airbnb has permanently banned parties and events at homes on its platform, after a temporary measure during the pandemic proved popular with hosts.
+## [India state on alert after Prophet row beheading](https://www.bbc.com/news/world-asia-india-61976836)
+The murder of a Hindu man in the northern Indian state of Rajasthan has sparked religious tensions in the area.
