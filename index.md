@@ -1,21 +1,21 @@
 # News
-## [Texas trucker 'didn't know air con had failed'](https://www.bbc.com/news/world-us-canada-62018517)
-The suspected driver of a truck where 53 migrants died from heat in Texas did not know that the air conditioner had stopped working, an informant says. 
-## [Emotional Adele makes live comeback in Hyde Park](https://www.bbc.com/news/entertainment-arts-62014504)
-Adele told fans she was "so happy" to be back on stage as she briefly became overwhelmed with emotion at the start of her first public concert for five years. 
+## [Russia dredges up landing ship hit by Ukraine fire](https://www.bbc.com/news/world-europe-62022476)
+Russia says it has salvaged a large landing ship scuttled by its crew after a Ukrainian missile strike damaged it in the port of Berdyansk on 24 March.
+## [Dozens freed from church awaiting 'Second Coming'](https://www.bbc.com/news/world-africa-62025178)
+Police in Nigeria have rescued 77 people, including children, from a church where they were confined in the south-western state of Ondo. 
+## [Ukraine and Russia both claim control over city](https://www.bbc.com/news/world-europe-62022471)
+Ukraine's eastern city of Lysychansk is at the centre of competing claims, with both Russian and Ukrainian forces saying they are in control.
+## [Adele says Vegas postponement backlash was brutal](https://www.bbc.com/news/entertainment-arts-62010158)
+Adele has said the "brutal" reaction to the postponement of her Las Vegas residency earlier this year left her feeling like "a shell of a person".
+## [Israel downs Hezbollah drones headed for gas rig](https://www.bbc.com/news/world-europe-62022452)
+Authorities in Israel say they have shot down three Hezbollah drones heading towards one of its gas rigs in a disputed area of the Mediterranean.
+## [Jerry Hall files for divorce from Rupert Murdoch](https://www.bbc.com/news/world-us-canada-62020070)
+Jerry Hall has filed for divorce from media tycoon Rupert Murdoch in a court in the US state of California.
 ## [‘So long nerds’ – Minecraft YouTuber dies aged 23](https://www.bbc.com/news/entertainment-arts-62006852)
 Minecraft YouTuber Technoblade has died aged 23, his family have confirmed in an emotional farewell video posted on his behalf.
-## [Ukraine demands seizure of Russian-flagged grain ship](https://www.bbc.com/news/world-europe-62010113)
-Ukraine has called for a ship carrying grain from a Russian-occupied part of the country to be seized. 
-## [Pauw reveals rape and assault in Dutch football](https://www.bbc.com/sport/football/62017262)
-Republic of Ireland manager Vera Pauw says she was raped and sexually assaulted by three different men involved in Dutch football.
-## [Elite Russian regiment fights for support and the war for borsch](https://www.bbc.com/news/world-europe-62013997)
-Friday brought another deadly barrage of Russian missile strikes on Ukraine, with at least 21 people - including one child - reported killed in the southern Odesa region.
-## [Covid infections jump by half a million in UK](https://www.bbc.com/news/health-62009230)
-Covid infections are rising again across the UK, the latest figures from the Office for National Statistics (ONS) show.
-## ['How could I let this happen to my children?'](https://www.bbc.com/news/world-us-canada-62002300)
-It was 25 June when Karen Caballero was seized by an "unexplained heaviness" in her chest. Her children had not been in touch.
-## [Ukraine declares victory in the war for borsch](https://www.bbc.com/news/world-europe-62013362)
-The UN's cultural agency has added the cooking of borsch - a soup usually made with beetroot and potatoes - in Ukraine to its list of endangered intangible cultural heritage.
-## [Biden vows to protect women travelling for abortion](https://www.bbc.com/news/world-us-canada-62018206)
- US president Joe Biden has said that women travelling for abortions will be protected by the federal government.
+## [Return of Africa's most fashionable horse race](https://www.bbc.com/news/world-africa-62020414)
+Tens of thousands of people are expected in the coastal city of Durban this weekend for the annual Durban July, billed as Africa's biggest horse-racing event.
+## [MP facing groping allegation seeks medical support](https://www.bbc.com/news/uk-62023278)
+Chris Pincher, who was suspended as a Conservative MP after being accused of groping two men, has said he is seeking "professional medical support". 
+## [The 'brutal' world of doubles tennis](https://www.bbc.com/sport/tennis/62004807)
+Venus Williams and Jamie Murray took their first step as a pairing into the "brutal world" of doubles tennis with an opening victory in the mixed event at Wimbledon.
