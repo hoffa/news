@@ -1,21 +1,21 @@
 # News
-## [Russia dredges up landing ship hit by Ukraine fire](https://www.bbc.com/news/world-europe-62022476)
-Russia says it has salvaged a large landing ship scuttled by its crew after a Ukrainian missile strike damaged it in the port of Berdyansk on 24 March.
-## [Dozens freed from church awaiting 'Second Coming'](https://www.bbc.com/news/world-africa-62025178)
-Police in Nigeria have rescued 77 people, including children, from a church where they were confined in the south-western state of Ondo. 
-## [Ukraine and Russia both claim control over city](https://www.bbc.com/news/world-europe-62022471)
-Ukraine's eastern city of Lysychansk is at the centre of competing claims, with both Russian and Ukrainian forces saying they are in control.
-## [Adele says Vegas postponement backlash was brutal](https://www.bbc.com/news/entertainment-arts-62010158)
-Adele has said the "brutal" reaction to the postponement of her Las Vegas residency earlier this year left her feeling like "a shell of a person".
-## [Israel downs Hezbollah drones headed for gas rig](https://www.bbc.com/news/world-europe-62022452)
-Authorities in Israel say they have shot down three Hezbollah drones heading towards one of its gas rigs in a disputed area of the Mediterranean.
-## [Jerry Hall files for divorce from Rupert Murdoch](https://www.bbc.com/news/world-us-canada-62020070)
-Jerry Hall has filed for divorce from media tycoon Rupert Murdoch in a court in the US state of California.
-## [‘So long nerds’ – Minecraft YouTuber dies aged 23](https://www.bbc.com/news/entertainment-arts-62006852)
-Minecraft YouTuber Technoblade has died aged 23, his family have confirmed in an emotional farewell video posted on his behalf.
-## [Return of Africa's most fashionable horse race](https://www.bbc.com/news/world-africa-62020414)
-Tens of thousands of people are expected in the coastal city of Durban this weekend for the annual Durban July, billed as Africa's biggest horse-racing event.
-## [MP facing groping allegation seeks medical support](https://www.bbc.com/news/uk-62023278)
-Chris Pincher, who was suspended as a Conservative MP after being accused of groping two men, has said he is seeking "professional medical support". 
-## [The 'brutal' world of doubles tennis](https://www.bbc.com/sport/tennis/62004807)
-Venus Williams and Jamie Murray took their first step as a pairing into the "brutal world" of doubles tennis with an opening victory in the mixed event at Wimbledon.
+## [Gunman kills three in Danish shopping mall](https://www.bbc.com/news/world-europe-62030919)
+A gunman has killed three people and wounded others, three of them critically, at one of Denmark's biggest shopping malls, police say.  
+## [Ukraine confirms Lysychansk captured by Russians](https://www.bbc.com/news/world-europe-62030051)
+Ukraine's military has confirmed that the eastern city of Lysychansk has fallen to Russian forces.
+## [Turkey detains Russian-flagged grain ship](https://www.bbc.com/news/world-europe-62010113)
+A cargo ship carrying grain from a Russian-occupied region of Ukraine has been detained by Turkish customs authorities, according to Ukraine's ambassador to Turkey.
+## [Three police die in 'pure hell' Kentucky shooting](https://www.bbc.com/news/world-us-canada-62025539)
+Three police officers have been shot dead in the US state of Kentucky while trying to serve a warrant on a man accused of domestic violence.
+## [US woman denied termination in Malta speaks out](https://www.bbc.com/news/world-61959825)
+Now that her ordeal is over, Andrea Prudente is ready to speak out: she is determined that no other woman should go through what she did.
+## [Indian imposter who took over a family for 41 years](https://www.bbc.com/news/world-asia-india-61981241)
+A court in India has sent to prison a man who was found guilty of posing as the son of a wealthy landlord for 41 years. The BBC's Soutik Biswas pieces together a gripping tale of deceit and delay in justice. 
+## [Kyrgios and Tsitsipas both fined over conduct](https://www.bbc.com/sport/tennis/62031962)
+Nick Kyrgios and Stefanos Tsitsipas have both been fined for their conduct during their fiery Wimbledon encounter.
+## [The skateboarding hero who couldn't handle fame](https://www.bbc.com/news/uk-england-essex-61882028)
+As a little boy growing up in a council flat in a seaside town in Essex, Ben Raemers was looking for a way to escape his difficult childhood. 
+## [Russian scientist held in spy probe dies of cancer](https://www.bbc.com/news/world-europe-62031294)
+A terminally ill Russian physicist who was arrested in Siberia on suspicion of treason has died in custody after being flown to Moscow.
+## [At least five killed in Italian glacier collapse](https://www.bbc.com/news/world-europe-62029780)
+At least five people have been killed after being caught in an avalanche sparked by the collapse of a glacier in the northern Italian Alps.
