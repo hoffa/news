@@ -1,21 +1,21 @@
 # News
-## [Gunman kills three in Danish shopping mall](https://www.bbc.com/news/world-europe-62030919)
-A gunman has killed three people and wounded others, three of them critically, at one of Denmark's biggest shopping malls, police say.  
-## [Ukraine confirms Lysychansk captured by Russians](https://www.bbc.com/news/world-europe-62030051)
-Ukraine's military has confirmed that the eastern city of Lysychansk has fallen to Russian forces.
-## [Turkey detains Russian-flagged grain ship](https://www.bbc.com/news/world-europe-62010113)
-A cargo ship carrying grain from a Russian-occupied region of Ukraine has been detained by Turkish customs authorities, according to Ukraine's ambassador to Turkey.
-## [Three police die in 'pure hell' Kentucky shooting](https://www.bbc.com/news/world-us-canada-62025539)
-Three police officers have been shot dead in the US state of Kentucky while trying to serve a warrant on a man accused of domestic violence.
-## [US woman denied termination in Malta speaks out](https://www.bbc.com/news/world-61959825)
-Now that her ordeal is over, Andrea Prudente is ready to speak out: she is determined that no other woman should go through what she did.
+## [Cinemas ban teens in suits after Minions mayhem](https://www.bbc.com/news/uk-61988793)
+Some cinemas have banned young people wearing suits from screenings of Minions: The Rise of Gru over rowdy behaviour fuelled by a TikTok trend.
+## [Underwater drug-smuggling drones seized by police](https://www.bbc.com/news/world-europe-62040790)
+Spanish police have seized three underwater drones built to smuggle drugs across the sea from Morocco.
+## [Six dead in 4 July parade shooting near Chicago](https://www.bbc.com/news/world-us-canada-62042636)
+Police are searching for a rooftop gunman who shot dead six people at an Independence Day parade near the US city of Chicago.
+## [Putin presses on with Ukraine war after Lysychansk](https://www.bbc.com/news/world-europe-62033619)
+Russian President Vladimir Putin has ordered his defence minister to continue the offensive in Ukraine after Russia captured the city of Lysychansk.
+## [US releases result of Abu Aqla fatal bullet test](https://www.bbc.com/news/world-middle-east-62035815)
+The US says the bullet that killed a Palestinian-American journalist was too badly damaged to reach a definitive conclusion about whether the origin was Israeli or Palestinian gunfire.
+## [Fear and denial in Russian city hit by shells](https://www.bbc.com/news/world-europe-62042455)
+In her fifth floor apartment in Belgorod, Lidiya tells me of her narrow escape. 
+## [Harry Styles fans praise Danish response to attack](https://www.bbc.com/news/world-europe-62035582)
+Sunday night's deadly shooting in Copenhagen has sent shock waves across the city and the country of Denmark.
+## [What is halo and how is it saving F1 drivers' lives?](https://www.bbc.com/news/newsbeat-62037334)
+Tom Cruise was at the British Grand Prix this weekend and the action on the track looked like something from one of his films.
 ## [Indian imposter who took over a family for 41 years](https://www.bbc.com/news/world-asia-india-61981241)
 A court in India has sent to prison a man who was found guilty of posing as the son of a wealthy landlord for 41 years. The BBC's Soutik Biswas pieces together a gripping tale of deceit and delay in justice. 
-## [Kyrgios and Tsitsipas both fined over conduct](https://www.bbc.com/sport/tennis/62031962)
-Nick Kyrgios and Stefanos Tsitsipas have both been fined for their conduct during their fiery Wimbledon encounter.
-## [The skateboarding hero who couldn't handle fame](https://www.bbc.com/news/uk-england-essex-61882028)
-As a little boy growing up in a council flat in a seaside town in Essex, Ben Raemers was looking for a way to escape his difficult childhood. 
-## [Russian scientist held in spy probe dies of cancer](https://www.bbc.com/news/world-europe-62031294)
-A terminally ill Russian physicist who was arrested in Siberia on suspicion of treason has died in custody after being flown to Moscow.
-## [At least five killed in Italian glacier collapse](https://www.bbc.com/news/world-europe-62029780)
-At least five people have been killed after being caught in an avalanche sparked by the collapse of a glacier in the northern Italian Alps.
+## [Putin vows to continue, and the mood in a shelled Russian city](https://www.bbc.com/news/world-europe-62042952)
+Russian President Vladimir Putin has ordered his defence minister to continue the war in Ukraine according to "previously approved plans".
