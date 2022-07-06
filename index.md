@@ -1,21 +1,21 @@
 # News
-## [Cinemas ban teens in suits after Minions mayhem](https://www.bbc.com/news/uk-61988793)
-Some cinemas have banned young people wearing suits from screenings of Minions: The Rise of Gru over rowdy behaviour fuelled by a TikTok trend.
-## [Underwater drug-smuggling drones seized by police](https://www.bbc.com/news/world-europe-62040790)
-Spanish police have seized three underwater drones built to smuggle drugs across the sea from Morocco.
-## [Six dead in 4 July parade shooting near Chicago](https://www.bbc.com/news/world-us-canada-62042636)
-Police are searching for a rooftop gunman who shot dead six people at an Independence Day parade near the US city of Chicago.
-## [Putin presses on with Ukraine war after Lysychansk](https://www.bbc.com/news/world-europe-62033619)
-Russian President Vladimir Putin has ordered his defence minister to continue the offensive in Ukraine after Russia captured the city of Lysychansk.
-## [US releases result of Abu Aqla fatal bullet test](https://www.bbc.com/news/world-middle-east-62035815)
-The US says the bullet that killed a Palestinian-American journalist was too badly damaged to reach a definitive conclusion about whether the origin was Israeli or Palestinian gunfire.
-## [Fear and denial in Russian city hit by shells](https://www.bbc.com/news/world-europe-62042455)
-In her fifth floor apartment in Belgorod, Lidiya tells me of her narrow escape. 
-## [Harry Styles fans praise Danish response to attack](https://www.bbc.com/news/world-europe-62035582)
-Sunday night's deadly shooting in Copenhagen has sent shock waves across the city and the country of Denmark.
-## [What is halo and how is it saving F1 drivers' lives?](https://www.bbc.com/news/newsbeat-62037334)
-Tom Cruise was at the British Grand Prix this weekend and the action on the track looked like something from one of his films.
-## [Indian imposter who took over a family for 41 years](https://www.bbc.com/news/world-asia-india-61981241)
-A court in India has sent to prison a man who was found guilty of posing as the son of a wealthy landlord for 41 years. The BBC's Soutik Biswas pieces together a gripping tale of deceit and delay in justice. 
-## [Putin vows to continue, and the mood in a shelled Russian city](https://www.bbc.com/news/world-europe-62042952)
-Russian President Vladimir Putin has ordered his defence minister to continue the war in Ukraine according to "previously approved plans".
+## [Chicago suspect planned attack for weeks - US police](https://www.bbc.com/news/world-us-canada-62054883)
+A man suspected of killing seven people at a 4 July parade near Chicago planned the attack for weeks, police say.
+## [Suspect charged with murder over 4 July shooting](https://www.bbc.com/news/world-us-canada-62059341)
+A man accused of opening fire on an Independence Day parade near Chicago has been charged with seven counts of murder, officials say.
+## [Parents of two-year-old among shooting victims](https://www.bbc.com/news/world-us-canada-62047223)
+The mother and the father of a two-year-old boy found wandering alone were among the seven victims of a mass shooting near Chicago. 
+## [Can Boris Johnson survive these resignations?](https://www.bbc.com/news/uk-politics-62055371)
+There was the whiff of panic hanging over it all.
+## [Mississippi judge refuses to block abortion ban](https://www.bbc.com/news/world-us-canada-62059114)
+A judge in Mississippi has rejected a request from the state's only abortion clinic to temporarily block a ban on almost all abortions.
+## [British Airways cancels 1,500 more flights](https://www.bbc.com/news/business-62038929)
+British Airways has cancelled a further 1,500 flights, mostly for July. 
+## [Hope as sand battery may solve green energy problem](https://www.bbc.com/news/science-environment-61996520)
+Finnish researchers have installed the world's first fully working "sand battery" which can store green power for months at a time. 
+## [The man who came back from the dead](https://www.bbc.com/news/world-europe-62011689)
+Taxi driver and father of four, Ivan Skyba, found himself defending a suburban street at the start of the war. He narrowly avoided death at the hands of the Russians. All the other Ukrainian men with him were not so lucky. Prosecutors are treating what happened in the small city of Bucha as a war crime. Fergal Keane has been to meet Ivan, the sole survivor.
+## [Who are the Nordic 'terrorists' wanted by Turkey?](https://www.bbc.com/news/world-europe-62027828)
+Nato has formally launched the process to bring Sweden and Finland into its military alliance. But a key condition for Nato member Turkey is the handover of more than 70 people described by its president as terrorists. 
+## [Market hit as Russians shell frontline city](https://www.bbc.com/news/world-europe-62051585)
+Russian shelling set a central market ablaze in Ukraine's eastern city of Slovyansk, killing two people and injuring seven, a top official said.
