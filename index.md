@@ -1,21 +1,21 @@
 # News
-## [Chicago suspect planned attack for weeks - US police](https://www.bbc.com/news/world-us-canada-62054883)
-A man suspected of killing seven people at a 4 July parade near Chicago planned the attack for weeks, police say.
-## [Suspect charged with murder over 4 July shooting](https://www.bbc.com/news/world-us-canada-62059341)
-A man accused of opening fire on an Independence Day parade near Chicago has been charged with seven counts of murder, officials say.
-## [Parents of two-year-old among shooting victims](https://www.bbc.com/news/world-us-canada-62047223)
-The mother and the father of a two-year-old boy found wandering alone were among the seven victims of a mass shooting near Chicago. 
-## [Can Boris Johnson survive these resignations?](https://www.bbc.com/news/uk-politics-62055371)
-There was the whiff of panic hanging over it all.
-## [Mississippi judge refuses to block abortion ban](https://www.bbc.com/news/world-us-canada-62059114)
-A judge in Mississippi has rejected a request from the state's only abortion clinic to temporarily block a ban on almost all abortions.
-## [British Airways cancels 1,500 more flights](https://www.bbc.com/news/business-62038929)
-British Airways has cancelled a further 1,500 flights, mostly for July. 
-## [Hope as sand battery may solve green energy problem](https://www.bbc.com/news/science-environment-61996520)
-Finnish researchers have installed the world's first fully working "sand battery" which can store green power for months at a time. 
-## [The man who came back from the dead](https://www.bbc.com/news/world-europe-62011689)
-Taxi driver and father of four, Ivan Skyba, found himself defending a suburban street at the start of the war. He narrowly avoided death at the hands of the Russians. All the other Ukrainian men with him were not so lucky. Prosecutors are treating what happened in the small city of Bucha as a war crime. Fergal Keane has been to meet Ivan, the sole survivor.
-## [Who are the Nordic 'terrorists' wanted by Turkey?](https://www.bbc.com/news/world-europe-62027828)
-Nato has formally launched the process to bring Sweden and Finland into its military alliance. But a key condition for Nato member Turkey is the handover of more than 70 people described by its president as terrorists. 
-## [Market hit as Russians shell frontline city](https://www.bbc.com/news/world-europe-62051585)
-Russian shelling set a central market ablaze in Ukraine's eastern city of Slovyansk, killing two people and injuring seven, a top official said.
+## [MI5 and FBI heads warn of ‘immense’ threat from China](https://www.bbc.com/news/world-asia-china-62064506)
+The heads of UK and US security services have made an unprecedented joint appearance to warn of the threat from China. 
+## [Friends creator admits show used wrong pronoun](https://www.bbc.com/news/entertainment-arts-62061739)
+The co-creator of 1990s US sitcom Friends has admitted it was "a mistake" not to use the appropriate pronoun for Chandler's transgender parent.
+## [Boris Johnson met Russian oligarch without aides](https://www.bbc.com/news/uk-politics-62068421)
+Boris Johnson has told MPs he met Russian oligarch and ex-KGB officer Alexander Lebedev without officials present.
+## [Why Conservatives are urging Boris Johnson to resign](https://www.bbc.com/news/uk-62062510)
+Boris Johnson's future as UK prime minister is in greater jeopardy than ever before.
+## [Chicago gunman considered second shooting](https://www.bbc.com/news/world-us-canada-62068500)
+A man accused of opening fire on a Fourth of July parade near Chicago contemplated a second attack after the deadly shooting, authorities say.
+## [Diplomats have no immunity in modern slavery cases](https://www.bbc.com/news/uk-62062318)
+The UK Supreme Court has ruled that diplomats cannot hide behind immunity to exploit workers, in a victory for campaigners against modern slavery.
+## [Three Michael Jackson songs removed from streaming](https://www.bbc.com/news/entertainment-arts-62068017)
+Three Michael Jackson songs have been removed from streaming services, following persistent claims they feature faked vocals.
+## [Government resignations: Who has gone, who is staying?](https://www.bbc.com/news/uk-politics-62058278)
+Rishi Sunak and Sajid Javid have resigned from Boris Johnson's cabinet.
+## [Ukraine round-up: Evacuation under fire and new oil tensions](https://www.bbc.com/news/world-europe-62068417)
+Residents have been told to leave Ukraine's eastern city of Slovyansk, a day after two people were killed in a Russian attack on a market.
+## ['Cocaine king of Milan' handed over to Italy](https://www.bbc.com/news/world-europe-62061407)
+One of Italy's most wanted men, mobster Rocco Morabito, has arrived in Rome after being extradited from Brazil, where he had been in hiding.
