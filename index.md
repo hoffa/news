@@ -1,21 +1,21 @@
 # News
+## [Godfather actor James Caan dies at 82](https://www.bbc.com/news/world-us-canada-62087285)
+US actor James Caan, who rose to fame for his portrayal of Sonny Corleone in The Godfather, has died aged 82.
+## [Ukraine round-up: Putin dares West, Zelensky praises Johnson](https://www.bbc.com/news/world-62085274)
+President Vladimir Putin has made a bullish speech to top Russian MPs, daring the West to have a go at defeating Moscow on the battlefield.
 ## [MI5 and FBI heads warn of ‘immense’ threat from China](https://www.bbc.com/news/world-asia-china-62064506)
 The heads of UK and US security services have made an unprecedented joint appearance to warn of the threat from China. 
-## [Friends creator admits show used wrong pronoun](https://www.bbc.com/news/entertainment-arts-62061739)
-The co-creator of 1990s US sitcom Friends has admitted it was "a mistake" not to use the appropriate pronoun for Chandler's transgender parent.
-## [Boris Johnson met Russian oligarch without aides](https://www.bbc.com/news/uk-politics-62068421)
-Boris Johnson has told MPs he met Russian oligarch and ex-KGB officer Alexander Lebedev without officials present.
-## [Why Conservatives are urging Boris Johnson to resign](https://www.bbc.com/news/uk-62062510)
-Boris Johnson's future as UK prime minister is in greater jeopardy than ever before.
-## [Chicago gunman considered second shooting](https://www.bbc.com/news/world-us-canada-62068500)
-A man accused of opening fire on a Fourth of July parade near Chicago contemplated a second attack after the deadly shooting, authorities say.
-## [Diplomats have no immunity in modern slavery cases](https://www.bbc.com/news/uk-62062318)
-The UK Supreme Court has ruled that diplomats cannot hide behind immunity to exploit workers, in a victory for campaigners against modern slavery.
-## [Three Michael Jackson songs removed from streaming](https://www.bbc.com/news/entertainment-arts-62068017)
-Three Michael Jackson songs have been removed from streaming services, following persistent claims they feature faked vocals.
-## [Government resignations: Who has gone, who is staying?](https://www.bbc.com/news/uk-politics-62058278)
-Rishi Sunak and Sajid Javid have resigned from Boris Johnson's cabinet.
-## [Ukraine round-up: Evacuation under fire and new oil tensions](https://www.bbc.com/news/world-europe-62068417)
-Residents have been told to leave Ukraine's eastern city of Slovyansk, a day after two people were killed in a Russian attack on a market.
-## ['Cocaine king of Milan' handed over to Italy](https://www.bbc.com/news/world-europe-62061407)
-One of Italy's most wanted men, mobster Rocco Morabito, has arrived in Rome after being extradited from Brazil, where he had been in hiding.
+## [Who could be the next prime minister?](https://www.bbc.com/news/uk-politics-60037657)
+Boris Johnson has announced he will resign, which means there will now be a leadership election to decide who becomes the next Conservative leader and prime minister.
+## [Theranos exec Sunny Balwani convicted of fraud](https://www.bbc.com/news/world-us-canada-61902378)
+Silicon Valley executive Ramesh "Sunny" Balwani has been found guilty of deceiving investors as part of a plot with ex-girlfriend Elizabeth Holmes. 
+## [PM pledges no big policy changes before departure](https://www.bbc.com/news/uk-politics-62085034)
+Boris Johnson has promised his cabinet he will not use his remaining time as prime minister to make "major changes of direction".
+## [Chauvin sentenced for violating George Floyd's rights](https://www.bbc.com/news/world-us-canada-62088103)
+Former Minneapolis police officer Derek Chauvin has been sentenced to more than 20 years in prison for violating George Floyd's civil rights.
+## [5 things that led to Boris Johnson's downfall](https://www.bbc.com/news/uk-politics-62070422)
+Less than three years ago, Boris Johnson led the Conservatives to their biggest election victory since 1987.
+## [Harry faced tensions with royal officials - lawyer](https://www.bbc.com/news/uk-62044951)
+The Duke of Sussex faced "significant tensions" with a top aide to the Queen involved in downgrading his security, a court has been told.
+## ['America's Stonehenge' demolished after blast](https://www.bbc.com/news/world-us-canada-62073675)
+A granite monument in the US state of Georgia has been demolished for safety reasons after being damaged in a blast. 
