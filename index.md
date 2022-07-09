@@ -1,21 +1,21 @@
 # News
-## [Godfather actor James Caan dies at 82](https://www.bbc.com/news/world-us-canada-62087285)
-US actor James Caan, who rose to fame for his portrayal of Sonny Corleone in The Godfather, has died aged 82.
-## [Ukraine round-up: Putin dares West, Zelensky praises Johnson](https://www.bbc.com/news/world-62085274)
-President Vladimir Putin has made a bullish speech to top Russian MPs, daring the West to have a go at defeating Moscow on the battlefield.
-## [MI5 and FBI heads warn of ‘immense’ threat from China](https://www.bbc.com/news/world-asia-china-62064506)
-The heads of UK and US security services have made an unprecedented joint appearance to warn of the threat from China. 
-## [Who could be the next prime minister?](https://www.bbc.com/news/uk-politics-60037657)
-Boris Johnson has announced he will resign, which means there will now be a leadership election to decide who becomes the next Conservative leader and prime minister.
-## [Theranos exec Sunny Balwani convicted of fraud](https://www.bbc.com/news/world-us-canada-61902378)
-Silicon Valley executive Ramesh "Sunny" Balwani has been found guilty of deceiving investors as part of a plot with ex-girlfriend Elizabeth Holmes. 
-## [PM pledges no big policy changes before departure](https://www.bbc.com/news/uk-politics-62085034)
-Boris Johnson has promised his cabinet he will not use his remaining time as prime minister to make "major changes of direction".
-## [Chauvin sentenced for violating George Floyd's rights](https://www.bbc.com/news/world-us-canada-62088103)
-Former Minneapolis police officer Derek Chauvin has been sentenced to more than 20 years in prison for violating George Floyd's civil rights.
-## [5 things that led to Boris Johnson's downfall](https://www.bbc.com/news/uk-politics-62070422)
-Less than three years ago, Boris Johnson led the Conservatives to their biggest election victory since 1987.
-## [Harry faced tensions with royal officials - lawyer](https://www.bbc.com/news/uk-62044951)
-The Duke of Sussex faced "significant tensions" with a top aide to the Queen involved in downgrading his security, a court has been told.
-## ['America's Stonehenge' demolished after blast](https://www.bbc.com/news/world-us-canada-62073675)
-A granite monument in the US state of Georgia has been demolished for safety reasons after being damaged in a blast. 
+## [Canada hit by massive mobile and internet outage](https://www.bbc.com/news/world-us-canada-62102223)
+Canada's largest mobile and internet provider has suffered a major outage, with bank ATMs and emergency service hotlines affected. 
+## [Elon Musk ends $44bn bid to buy Twitter](https://www.bbc.com/news/business-62102821)
+Elon Musk is ending his $44bn (£36bn) bid to buy Twitter, alleging multiple breaches of the merger agreement.
+## [Shinzo Abe suspect held grudge - Japanese police](https://www.bbc.com/news/world-asia-62098100)
+Police investigating the assassination of Japan's ex-prime minister Shinzo Abe have said the suspect held a grudge against a "specific organisation".
+## [How the assassination of Shinzo Abe unfolded](https://www.bbc.com/news/world-asia-62094363)
+Japan's former prime minister Shinzo Abe has died after being shot twice at a political campaign event.
+## [Security warning after sale of stolen Chinese data](https://www.bbc.com/news/technology-62097594)
+President Xi Jinping has urged public bodies to "defend information security" after a hacker offered to sell stolen data of one billion Chinese citizens.
+## [Japan ex-leader Shinzo Abe assassinated](https://www.bbc.com/news/world-asia-62089486)
+Japan's former prime minister Shinzo Abe has died in hospital after he was shot at a political campaign event. 
+## [A shock killing that could change Japan forever](https://www.bbc.com/news/world-asia-62074223)
+Since news broke this morning of Shinzo Abe's shooting, messages have been pouring in from friends and contacts, all asking the same question: how could this have happened in Japan? 
+## [PM's Chequers wedding party moved after criticism](https://www.bbc.com/news/uk-politics-62092203)
+A wedding party for Boris Johnson and his wife Carrie will no longer be held at the prime minister's country house following criticism of the venue choice.
+## [Moscow politician gets 7 years for denouncing war](https://www.bbc.com/news/world-europe-62092196)
+A Moscow councillor has been jailed for seven years for speaking out against Russia's war in Ukraine - in what is said to be the first full jail term under new laws targeting dissent.
+## [Russia vetoes UN aid deliveries to 3m Syrians](https://www.bbc.com/news/world-62066506)
+Russia has vetoed a UN Security Council resolution reauthorising cross-border deliveries of vital aid into opposition-held north-western Syria. The closure of the last route from Turkey puts more than three million people at risk of starvation. The BBC's Anna Foster has been following one of the last UN aid convoys to be allowed into the country.  
