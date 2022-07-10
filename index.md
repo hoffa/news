@@ -1,21 +1,21 @@
 # News
 ## [Canada hit by massive mobile and internet outage](https://www.bbc.com/news/world-us-canada-62102223)
 Canada's largest mobile and internet provider has suffered a major outage, with bank ATMs and emergency service hotlines affected. 
-## [Elon Musk ends $44bn bid to buy Twitter](https://www.bbc.com/news/business-62102821)
-Elon Musk is ending his $44bn (£36bn) bid to buy Twitter, alleging multiple breaches of the merger agreement.
-## [Shinzo Abe suspect held grudge - Japanese police](https://www.bbc.com/news/world-asia-62098100)
-Police investigating the assassination of Japan's ex-prime minister Shinzo Abe have said the suspect held a grudge against a "specific organisation".
-## [How the assassination of Shinzo Abe unfolded](https://www.bbc.com/news/world-asia-62094363)
-Japan's former prime minister Shinzo Abe has died after being shot twice at a political campaign event.
+## [Sri Lanka president to resign after palace stormed](https://www.bbc.com/news/world-asia-62108597)
+Sri Lankan President Gotabaya Rajapaksa has announced he will step down after protesters stormed his official residence and set the prime minister's house on fire.
+## [Thousands march to White House for abortion rights](https://www.bbc.com/news/world-us-canada-62109971)
+Thousands gathered in the US capital on Saturday, marching through pouring rain and risking arrest to protest the reversal of abortion rights last month.
+## [Russia's McDonald's replacement runs low on fries](https://www.bbc.com/news/world-europe-62103506)
+Some restaurants in the newly opened "Tasty and that's it" fast food chain, which replaced McDonald's in Russia, will temporarily stop serving fries, according to Russian media. 
 ## [Security warning after sale of stolen Chinese data](https://www.bbc.com/news/technology-62097594)
 President Xi Jinping has urged public bodies to "defend information security" after a hacker offered to sell stolen data of one billion Chinese citizens.
-## [Japan ex-leader Shinzo Abe assassinated](https://www.bbc.com/news/world-asia-62089486)
-Japan's former prime minister Shinzo Abe has died in hospital after he was shot at a political campaign event. 
-## [A shock killing that could change Japan forever](https://www.bbc.com/news/world-asia-62074223)
-Since news broke this morning of Shinzo Abe's shooting, messages have been pouring in from friends and contacts, all asking the same question: how could this have happened in Japan? 
-## [PM's Chequers wedding party moved after criticism](https://www.bbc.com/news/uk-politics-62092203)
-A wedding party for Boris Johnson and his wife Carrie will no longer be held at the prime minister's country house following criticism of the venue choice.
-## [Moscow politician gets 7 years for denouncing war](https://www.bbc.com/news/world-europe-62092196)
-A Moscow councillor has been jailed for seven years for speaking out against Russia's war in Ukraine - in what is said to be the first full jail term under new laws targeting dissent.
-## [Russia vetoes UN aid deliveries to 3m Syrians](https://www.bbc.com/news/world-62066506)
-Russia has vetoed a UN Security Council resolution reauthorising cross-border deliveries of vital aid into opposition-held north-western Syria. The closure of the last route from Turkey puts more than three million people at risk of starvation. The BBC's Anna Foster has been following one of the last UN aid convoys to be allowed into the country.  
+## [Javid and Hunt join Tory leadership race](https://www.bbc.com/news/uk-politics-62110114)
+Two former health secretaries, Sajid Javid and Jeremy Hunt, have joined the race to replace Boris Johnson.
+## [Japan police say Shinzo Abe security was flawed](https://www.bbc.com/news/world-asia-62106442)
+Japanese police have admitted there were flaws in the security for former Japanese Prime Minister Shinzo Abe, who was shot dead in the southern city of Nara on Friday.
+## [Ukraine reports heavy Russian missile strikes](https://www.bbc.com/news/world-europe-62106446)
+Russian missile and rocket strikes have caused more widespread damage in towns and cities across eastern and southern Ukraine, regional officials say.
+## [The race gap between black and white homeowners](https://www.bbc.com/news/business-61845304)
+Katrinka Cox lives the American Dream: a green trimmed lawn, poolside lake view, and $1.3m villa she calls home.
+## [Sri Lanka crowd breaks Rajapaksa grip on power](https://www.bbc.com/news/world-asia-62108832)
+These are extraordinary times for Sri Lanka - after a day of fury and violence, the country's two senior leaders have agreed to step down.
