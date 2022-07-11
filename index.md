@@ -1,21 +1,21 @@
 # News
-## [Canada hit by massive mobile and internet outage](https://www.bbc.com/news/world-us-canada-62102223)
-Canada's largest mobile and internet provider has suffered a major outage, with bank ATMs and emergency service hotlines affected. 
-## [Sri Lanka president to resign after palace stormed](https://www.bbc.com/news/world-asia-62108597)
-Sri Lankan President Gotabaya Rajapaksa has announced he will step down after protesters stormed his official residence and set the prime minister's house on fire.
-## [Thousands march to White House for abortion rights](https://www.bbc.com/news/world-us-canada-62109971)
-Thousands gathered in the US capital on Saturday, marching through pouring rain and risking arrest to protest the reversal of abortion rights last month.
-## [Russia's McDonald's replacement runs low on fries](https://www.bbc.com/news/world-europe-62103506)
-Some restaurants in the newly opened "Tasty and that's it" fast food chain, which replaced McDonald's in Russia, will temporarily stop serving fries, according to Russian media. 
-## [Security warning after sale of stolen Chinese data](https://www.bbc.com/news/technology-62097594)
-President Xi Jinping has urged public bodies to "defend information security" after a hacker offered to sell stolen data of one billion Chinese citizens.
-## [Javid and Hunt join Tory leadership race](https://www.bbc.com/news/uk-politics-62110114)
-Two former health secretaries, Sajid Javid and Jeremy Hunt, have joined the race to replace Boris Johnson.
-## [Japan police say Shinzo Abe security was flawed](https://www.bbc.com/news/world-asia-62106442)
-Japanese police have admitted there were flaws in the security for former Japanese Prime Minister Shinzo Abe, who was shot dead in the southern city of Nara on Friday.
-## [Ukraine reports heavy Russian missile strikes](https://www.bbc.com/news/world-europe-62106446)
-Russian missile and rocket strikes have caused more widespread damage in towns and cities across eastern and southern Ukraine, regional officials say.
-## [The race gap between black and white homeowners](https://www.bbc.com/news/business-61845304)
-Katrinka Cox lives the American Dream: a green trimmed lawn, poolside lake view, and $1.3m villa she calls home.
-## [Sri Lanka crowd breaks Rajapaksa grip on power](https://www.bbc.com/news/world-asia-62108832)
-These are extraordinary times for Sri Lanka - after a day of fury and violence, the country's two senior leaders have agreed to step down.
+## [Canada's internet outage caused by 'maintenance'](https://www.bbc.com/news/world-us-canada-62110358)
+One of Canada's largest mobile and internet providers, Rogers, has apologised for the country-wide outage of its services which began on Friday.
+## [Leak reveals top politicians secretly helped Uber](https://www.bbc.com/news/business-62057321)
+Thousands of leaked files have exposed how Uber courted top politicians, and how far it went to avoid justice.
+## [Trump ally Bannon willing to testify at Jan 6 hearing](https://www.bbc.com/news/world-us-canada-62117137)
+Former Trump strategist Steve Bannon has told the House select committee investigating the 6 January Capitol riots that he is willing to testify, according to US media.
+## [Flights will be more expensive, says ex-BA chief](https://www.bbc.com/news/business-62112204)
+The price of airline tickets will go up "without doubt" as fuel costs rise, an air industry boss has warned.
+## [Fifteen shot dead in South Africa bar](https://www.bbc.com/news/world-asia-62111893)
+At least 15 people have been shot dead in a bar in the South African township of Soweto, police say.
+## [Protesters 'will occupy palace until leaders go'](https://www.bbc.com/news/world-asia-62111900)
+Protesters have said they will continue to occupy the Sri Lankan presidential and prime ministerial residences until both leaders officially resign.
+## [Truss enters Tory race to replace Johnson](https://www.bbc.com/news/uk-politics-62115709)
+Foreign Secretary Liz Truss has launched a bid to succeed Boris Johnson as party leader and prime minister.
+## [Inside the presidential palace now full of Sri Lankans](https://www.bbc.com/news/world-asia-62116056)
+Rashmi Kavindhya says she never dreamt of stepping inside the Sri Lankan president's official residence in Colombo in her lifetime.
+## [Faroe Islands to limit dolphin hunt after outcry](https://www.bbc.com/news/world-europe-62115343)
+The Faroe Islands is to provisionally limit its controversial dolphin hunt to 500 animals, after receiving widespread criticism over last year's cull, where more than 1,400 were killed.
+## [TV star Lauren Goodger announces death of baby](https://www.bbc.com/news/uk-england-essex-62112884)
+The reality television star, Lauren Goodger, has announced that her newborn baby daughter has died. 
