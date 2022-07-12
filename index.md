@@ -1,21 +1,21 @@
 # News
+## [James Webb takes super sharp view of early cosmos](https://www.bbc.com/news/science-environment-62122859)
+The first full-colour picture from the new James Webb Space Telescope has been released - and it doesn't disappoint.
+## [Sir Mo Farah reveals he was trafficked to UK as child](https://www.bbc.com/news/uk-62123886)
+Sir Mo Farah was brought to the UK illegally as a child and forced to work as a domestic servant, he has revealed.
+## [Ukraine 'war trophies' go on display in Prague](https://www.bbc.com/news/world-europe-62130083)
+Russian military equipment captured by the Ukrainian armed forces has gone on display in the Czech capital, Prague.  
+## [Texas woman argues unborn baby counts as passenger](https://www.bbc.com/news/world-us-canada-62124366)
+A woman in Texas has argued that her unborn baby should count as a passenger after she was fined for driving in a high-occupancy lane.
+## [India's population on track to overtake China's](https://www.bbc.com/news/science-environment-62126413)
+India is set to become the world's most populous country next year, overtaking China with its 1.4bn people, according to UN figures. 
+## [US to mull over-the-counter birth control pills](https://www.bbc.com/news/world-us-canada-62124365)
+For the first time in the US, a pharmaceutical firm has asked to be allowed to sell birth control pills over the counter. 
 ## [Canada's internet outage caused by 'maintenance'](https://www.bbc.com/news/world-us-canada-62110358)
 One of Canada's largest mobile and internet providers, Rogers, has apologised for the country-wide outage of its services which began on Friday.
-## [Leak reveals top politicians secretly helped Uber](https://www.bbc.com/news/business-62057321)
-Thousands of leaked files have exposed how Uber courted top politicians, and how far it went to avoid justice.
-## [Trump ally Bannon willing to testify at Jan 6 hearing](https://www.bbc.com/news/world-us-canada-62117137)
-Former Trump strategist Steve Bannon has told the House select committee investigating the 6 January Capitol riots that he is willing to testify, according to US media.
-## [Flights will be more expensive, says ex-BA chief](https://www.bbc.com/news/business-62112204)
-The price of airline tickets will go up "without doubt" as fuel costs rise, an air industry boss has warned.
-## [Fifteen shot dead in South Africa bar](https://www.bbc.com/news/world-asia-62111893)
-At least 15 people have been shot dead in a bar in the South African township of Soweto, police say.
-## [Protesters 'will occupy palace until leaders go'](https://www.bbc.com/news/world-asia-62111900)
-Protesters have said they will continue to occupy the Sri Lankan presidential and prime ministerial residences until both leaders officially resign.
-## [Truss enters Tory race to replace Johnson](https://www.bbc.com/news/uk-politics-62115709)
-Foreign Secretary Liz Truss has launched a bid to succeed Boris Johnson as party leader and prime minister.
-## [Inside the presidential palace now full of Sri Lankans](https://www.bbc.com/news/world-asia-62116056)
-Rashmi Kavindhya says she never dreamt of stepping inside the Sri Lankan president's official residence in Colombo in her lifetime.
-## [Faroe Islands to limit dolphin hunt after outcry](https://www.bbc.com/news/world-europe-62115343)
-The Faroe Islands is to provisionally limit its controversial dolphin hunt to 500 animals, after receiving widespread criticism over last year's cull, where more than 1,400 were killed.
-## [TV star Lauren Goodger announces death of baby](https://www.bbc.com/news/uk-england-essex-62112884)
-The reality television star, Lauren Goodger, has announced that her newborn baby daughter has died. 
+## [How a clean energy project sparked a $100m 'hoohah'](https://www.bbc.com/news/world-us-canada-62072844)
+A proposal to transport clean hydropower from Canada to the state of Maine has created enough "hoohah" to launch a fierce court battle - possibly signalling trouble for the future of green energy projects across the US.
+## [Kylie and Jason Neighbours reunion images revealed](https://www.bbc.com/news/entertainment-arts-62118907)
+The first pictures of Kylie Minogue and Jason Donovan reunited on the set of Neighbours have been released.
+## [Germany fears Russia gas cut may become permanent](https://www.bbc.com/news/world-europe-62121702)
+Russian natural gas supplies to Germany via the Baltic Sea pipeline Nord Stream 1 have been halted for 10 days for annual maintenance work. 
