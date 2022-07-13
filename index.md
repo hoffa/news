@@ -1,21 +1,21 @@
 # News
-## [James Webb takes super sharp view of early cosmos](https://www.bbc.com/news/science-environment-62122859)
-The first full-colour picture from the new James Webb Space Telescope has been released - and it doesn't disappoint.
-## [Sir Mo Farah reveals he was trafficked to UK as child](https://www.bbc.com/news/uk-62123886)
-Sir Mo Farah was brought to the UK illegally as a child and forced to work as a domestic servant, he has revealed.
-## [Ukraine 'war trophies' go on display in Prague](https://www.bbc.com/news/world-europe-62130083)
-Russian military equipment captured by the Ukrainian armed forces has gone on display in the Czech capital, Prague.  
-## [Texas woman argues unborn baby counts as passenger](https://www.bbc.com/news/world-us-canada-62124366)
-A woman in Texas has argued that her unborn baby should count as a passenger after she was fined for driving in a high-occupancy lane.
-## [India's population on track to overtake China's](https://www.bbc.com/news/science-environment-62126413)
-India is set to become the world's most populous country next year, overtaking China with its 1.4bn people, according to UN figures. 
-## [US to mull over-the-counter birth control pills](https://www.bbc.com/news/world-us-canada-62124365)
-For the first time in the US, a pharmaceutical firm has asked to be allowed to sell birth control pills over the counter. 
-## [Canada's internet outage caused by 'maintenance'](https://www.bbc.com/news/world-us-canada-62110358)
-One of Canada's largest mobile and internet providers, Rogers, has apologised for the country-wide outage of its services which began on Friday.
-## [How a clean energy project sparked a $100m 'hoohah'](https://www.bbc.com/news/world-us-canada-62072844)
-A proposal to transport clean hydropower from Canada to the state of Maine has created enough "hoohah" to launch a fierce court battle - possibly signalling trouble for the future of green energy projects across the US.
-## [Kylie and Jason Neighbours reunion images revealed](https://www.bbc.com/news/entertainment-arts-62118907)
-The first pictures of Kylie Minogue and Jason Donovan reunited on the set of Neighbours have been released.
-## [Germany fears Russia gas cut may become permanent](https://www.bbc.com/news/world-europe-62121702)
-Russian natural gas supplies to Germany via the Baltic Sea pipeline Nord Stream 1 have been halted for 10 days for annual maintenance work. 
+## [Sri Lanka's president flees country on military jet](https://www.bbc.com/news/world-asia-62132271)
+Sri Lanka's President Gotabaya Rajapaksa has fled the country on a military jet, amid mass protests over its economic crisis.  
+## ['Wild' Trump tweet incited Capitol riot, panel told](https://www.bbc.com/news/world-us-canada-62140410)
+A Trump tweet mobilised far-right extremists to converge on Washington DC on the day of last year's Capitol riot, a congressional inquiry has heard.
+## [Nasa space telescope delivers spectacular pictures](https://www.bbc.com/news/science-environment-62140044)
+Stunning images of a "stellar nursery" and a "cosmic dance" have been acquired by Nasa's new $10bn space telescope.
+## [Twitter sues Elon Musk over $44bn takeover deal](https://www.bbc.com/news/business-62144776)
+Twitter has taken billionaire Elon Musk to court to try to force him to buy the social media firm, setting up a legal battle with the world's richest man. 
+## [Eight left in race to be the next prime minister](https://www.bbc.com/news/uk-politics-62142894)
+Eight candidates are left in the race to lead the Conservative Party - and become the next prime minister - after former health secretary Sajid Javid pulled out of the contest. 
+## [Generations of children exploited, inquiry finds](https://www.bbc.com/news/uk-england-shropshire-61983584)
+Obvious evidence of child sex crimes in Telford was ignored for generations leading to more than 1,000 girls being abused, an inquiry has found.
+## [Ukraine claims arms depot attack with US rockets](https://www.bbc.com/news/world-europe-62132441)
+Ukraine's military says it has destroyed a Russian ammunition depot in the southern city of Nova Kakhovka, killing dozens of soldiers, in an attack apparently involving US-supplied missiles.
+## [After Roe, anti-abortion activists eye new target](https://www.bbc.com/news/world-us-canada-61973510)
+As a crowd assembled outside the United States Supreme Court, waiting for its landmark abortion ruling last month, Kristan Hawkins stood front and centre.
+## [Succession father and son go head-to-head at Emmys](https://www.bbc.com/news/entertainment-arts-62140086)
+Succession leads the charge for this year's Emmy Awards with 25 nominations, including outstanding drama series and lead actor for Scotsman Brian Cox's portrayal of media mogul Logan Roy.
+## [Europe swelters as heatwave spreads](https://www.bbc.com/news/world-europe-62136062)
+Soaring temperatures have gripped parts of Europe, which has barely recovered from its last heatwave. 
