@@ -1,21 +1,21 @@
 # News
-## [Man held for raping US girl who was denied abortion](https://www.bbc.com/news/world-us-canada-62158357)
-A man in the US state of Ohio has been charged with raping a 10-year-old girl who had to cross state lines for an abortion after her home state restricted the procedure.
-## [Canada defends returning Russian Nord Stream turbine](https://www.bbc.com/news/world-us-canada-62102200)
-Prime Minister Justin Trudeau has defended Canada's decision to return a turbine used in a pipeline that carries natural gas from Russia to Germany.
-## [Sunak wins first round of Tory leadership vote](https://www.bbc.com/news/uk-politics-62153783)
-Former Chancellor Rishi Sunak has won the first round of voting by MPs to choose the next Conservative leader and prime minister.
-## [Millions to get credits over Canada internet outage](https://www.bbc.com/news/business-62145247)
-Canadian mobile and internet giant Rogers says it will give credits to millions of its customers after a nationwide outage last week.
-## [Former Studio 54 owner Fleischman dies at Dignitas](https://www.bbc.com/news/entertainment-arts-62155364)
-Mark Fleischman, who owned legendary New York nightclub Studio 54 in the 1980s, has died by assisted suicide in Switzerland, his former business partner has said.
-## [Sri Lankan PM tells military to restore order](https://www.bbc.com/news/world-asia-62156711)
-Sri Lanka's Prime Minister Ranil Wickremesinghe has told the military to do "whatever is necessary to restore order" after protesters stormed his office on Wednesday.
-## [DJ Tim Westwood accused of sex with a 14-year-old](https://www.bbc.com/news/uk-62126645)
-DJ Tim Westwood is facing allegations from a woman who says they had sex several times starting when she was 14.
-## [Families angry over leaked school shooting video](https://www.bbc.com/news/world-us-canada-62145143)
-The families of those killed in a mass shooting at a Texas school have expressed anger and outrage after new video was leaked showing the attack.
-## [Skeletons from Battle of Waterloo uncovered](https://www.bbc.com/news/world-europe-62148618)
-Skeletons of soldiers who died at the Battle of Waterloo in Belgium in 1815 have been unearthed by archaeologists.
-## [Ukraine round-up: Forced deportation claims as grain talks take place](https://www.bbc.com/news/world-europe-62155445)
-US Secretary of State Antony Blinken has called on Russia to stop forced deportations and "filtration" operations involving Ukrainians.
+## [Ivana Trump, Donald Trump's first wife, dies at 73](https://www.bbc.com/news/world-us-canada-62172028)
+Ivana Trump, Donald Trump's first wife and the mother of three of his children, has died aged 73.
+## [Italy lurches into crisis as PM offers resignation](https://www.bbc.com/news/world-europe-62171284)
+Italian Prime Minister Mario Draghi has tendered his resignation after populist coalition partner Five Star withdrew its support in a confidence vote.
+## [US lawyer charged with murder of wife and son](https://www.bbc.com/news/world-us-canada-62170259)
+A prominent US lawyer has been charged with the murder of his wife and son, the latest twist in a murky saga that has already seen Alex Murdaugh accused of faking his own death as well as dozens of other crimes.
+## [Bill Gates vows to drop off world's rich list](https://www.bbc.com/news/business-62162300)
+Billionaire Bill Gates has pledged again to give his wealth away, adding that he will eventually "drop off" the world's rich list. 
+## [Biden: Force an option to stop Iran nuclear arms](https://www.bbc.com/news/world-middle-east-62155165)
+President Joe Biden has pledged that the US is "prepared to use all elements of its national power" to stop Iran from getting a nuclear weapon.
+## [Hidden Van Gogh self-portrait discovered by X-ray](https://www.bbc.com/news/uk-scotland-62135891)
+A previously unknown self-portrait by Vincent van Gogh has been discovered hidden on the back of another painting.
+## [Emirates refuses Heathrow's demand to cut flights](https://www.bbc.com/news/business-62163254)
+Emirates has rejected Heathrow Airport's demands for airlines to stop selling summer tickets, calling the move "unreasonable and unacceptable".
+## [Sunak leads pack in narrowing Tory leadership race](https://www.bbc.com/news/uk-politics-62168579)
+Tory leadership rivals are scrambling to catch former chancellor Rishi Sunak after he won the second round of voting to choose Boris Johnson's successor.
+## [Ukrainians face torture as Russian detentions ramp up](https://www.bbc.com/news/world-europe-62022450)
+Hundreds of Ukrainians, including civilians and local politicians, are being subjected to forced detentions by Russian forces in occupied regions, the UN has told the BBC. 
+## [The war of words between the Trump wives](https://www.bbc.com/news/world-us-canada-41568418)
+Donald Trump's first wife, Ivana, has started a war of words by saying she, not Melania, is the real First Lady and by revealing that she has a direct line to the White House but uses it less than she could to avoid jealousy.
