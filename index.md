@@ -1,21 +1,21 @@
 # News
-## [Ivana Trump, Donald Trump's first wife, dies at 73](https://www.bbc.com/news/world-us-canada-62172028)
-Ivana Trump, Donald Trump's first wife and the mother of three of his children, has died aged 73.
-## [Italy lurches into crisis as PM offers resignation](https://www.bbc.com/news/world-europe-62171284)
-Italian Prime Minister Mario Draghi has tendered his resignation after populist coalition partner Five Star withdrew its support in a confidence vote.
-## [US lawyer charged with murder of wife and son](https://www.bbc.com/news/world-us-canada-62170259)
-A prominent US lawyer has been charged with the murder of his wife and son, the latest twist in a murky saga that has already seen Alex Murdaugh accused of faking his own death as well as dozens of other crimes.
-## [Bill Gates vows to drop off world's rich list](https://www.bbc.com/news/business-62162300)
-Billionaire Bill Gates has pledged again to give his wealth away, adding that he will eventually "drop off" the world's rich list. 
-## [Biden: Force an option to stop Iran nuclear arms](https://www.bbc.com/news/world-middle-east-62155165)
-President Joe Biden has pledged that the US is "prepared to use all elements of its national power" to stop Iran from getting a nuclear weapon.
-## [Hidden Van Gogh self-portrait discovered by X-ray](https://www.bbc.com/news/uk-scotland-62135891)
-A previously unknown self-portrait by Vincent van Gogh has been discovered hidden on the back of another painting.
-## [Emirates refuses Heathrow's demand to cut flights](https://www.bbc.com/news/business-62163254)
-Emirates has rejected Heathrow Airport's demands for airlines to stop selling summer tickets, calling the move "unreasonable and unacceptable".
-## [Sunak leads pack in narrowing Tory leadership race](https://www.bbc.com/news/uk-politics-62168579)
-Tory leadership rivals are scrambling to catch former chancellor Rishi Sunak after he won the second round of voting to choose Boris Johnson's successor.
-## [Ukrainians face torture as Russian detentions ramp up](https://www.bbc.com/news/world-europe-62022450)
-Hundreds of Ukrainians, including civilians and local politicians, are being subjected to forced detentions by Russian forces in occupied regions, the UN has told the BBC. 
-## [The war of words between the Trump wives](https://www.bbc.com/news/world-us-canada-41568418)
-Donald Trump's first wife, Ivana, has started a war of words by saying she, not Melania, is the real First Lady and by revealing that she has a direct line to the White House but uses it less than she could to avoid jealousy.
+## [Canada gunman's partner describes night of terror](https://www.bbc.com/news/world-us-canada-62102201)
+The common-law partner of the gunman behind Canada's worst mass shooting has said she feared for her life.
+## [National emergency declared after red heat warning](https://www.bbc.com/news/uk-62177458)
+A national emergency has been declared after a red extreme heat warning was issued for the first time, as temperatures could hit 40C (104F).
+## [Black man was shot 46 times by US police - autopsy](https://www.bbc.com/news/world-us-canada-62184202)
+A 25-year-old black man killed by Ohio police last month had 46 gunshot wounds or graze injuries on his body, an autopsy report has found.
+## [Biden raises Khashoggi murder with Saudi prince](https://www.bbc.com/news/world-us-canada-62186332)
+US President Joe Biden says he raised the murder of journalist Jamal Khashoggi during a meeting with Saudi Crown Prince Mohammed bin Salman.
+## [Ivana Trump: Glamorous immigrant to US institution](https://www.bbc.com/news/world-us-canada-62173165)
+Ivana Trump, who died on Thursday at the age of 73, was a competitive skier, glamorous model and hard-driving businesswoman who became one half of New York City's ultimate power couple in the 1980s through her marriage to an up-and-comer she knew simply as "The Donald".
+## [Constance Wu tried to kill herself after backlash](https://www.bbc.com/news/entertainment-arts-62175188)
+Constance Wu has said she tried to kill herself after facing a backlash over comments she made about the renewal of her TV series Fresh Off The Boat.
+## [Mexican drugs lord Quintero arrested - reports](https://www.bbc.com/news/world-latin-america-62187714)
+Mexican drugs lord Rafael Caro Quintero, who is on the US most wanted list, has been arrested in the northern state of Chihuahua, reports say.
+## [Tory rivals clash over tax and spending plans](https://www.bbc.com/news/uk-politics-62186878)
+Tory leadership frontrunners have clashed over how best to fund public services and control inflation in the contest's first TV debate.
+## [Briton held by separatists in east Ukraine dies](https://www.bbc.com/news/uk-62178505)
+Briton Paul Urey, who was captured by Russian-backed separatists in Ukraine, has died in detention, reports say.
+## [Hanks learned Saving Private Ryan lines from helmet](https://www.bbc.com/news/world-europe-62175123)
+On a warm sunny day it is hard to believe that Ballinesker beach in the south-east of Ireland, about two-and-half hours' drive from Dublin, was to all intents and purposes a Hollywood movie set.
