@@ -1,21 +1,21 @@
 # News
-## [Ivana Trump died of blunt impact injuries to torso](https://www.bbc.com/news/world-us-canada-62187716)
-Ivana Trump, Donald Trump's first wife, died of "blunt impact injuries" to the torso, the New York City medical examiner's office has said.
-## [Bear photography takes grandmother round the world](https://www.bbc.com/news/uk-wales-62152869)
-When Jenny Hibbert turned to photography as a distraction during her difficult divorce, little did she know it would take her around the globe and bring her face to face with some of the world's largest predators. 
-## [Wildfires spread as heatwave grips Mediterranean](https://www.bbc.com/news/world-europe-62189272)
-Thousands of firefighters are battling wildfires in Portugal, Spain and southwestern France, in the grip of a heatwave that shows no sign of easing.
+## [Zelensky fires security chief and top prosecutor](https://www.bbc.com/news/world-europe-62202078)
+President Volodymyr Zelensky has fired the head of Ukraine's security agency (SBU) and the prosecutor general, citing many cases of treason in the two powerful organisations.
+## ['We did it' - Bennifer tie the knot in Las Vegas](https://www.bbc.com/news/entertainment-arts-62201888)
+Hollywood stars Jennifer Lopez and Ben Affleck have got married in Las Vegas, Ms Lopez has confirmed.
+## [Ghana confirms first cases of deadly Marburg virus](https://www.bbc.com/news/world-africa-62202240)
+Ghana has confirmed its first two cases of the deadly Marburg virus, a highly infectious disease in the same family as the virus that causes Ebola.
+## [Tory race gets personal in latest TV debate](https://www.bbc.com/news/uk-politics-62200186)
+Tory leadership rivals stepped up their attacks on each other's records and policies in their latest TV debate.
+## [More evacuations as Mediterranean wildfires spread](https://www.bbc.com/news/world-europe-62196045)
+France has evacuated more than 14,000 people threatened by wildfires in the south-west, as fires also spread in Spain, Croatia and Greece.
+## [Rugby player Ricky Bibey, 40, found dead in Italy - reports](https://www.bbc.com/news/uk-62195043)
+The former rugby league player Ricky Bibey has been named by Italian media as the 40-year-old Briton found dead in a Florence hotel on Saturday.
+## [Several arrests at protest over dying Iranian lake](https://www.bbc.com/news/world-middle-east-62199184)
+Police in Iran have arrested several people at protests against the near disappearance of what was once the world's second largest salt lake. 
 ## [Why an accused Liberian warlord was killed in Canada](https://www.bbc.com/news/world-us-canada-62129337)
 Bill Horace, an accused Liberian warlord who fled to Canada, was shot to death in 2020. Now, his alleged killer will appear in court. Can justice ever be truly served?
-## [Death in Donbas - the toll on Ukraine’s front line](https://www.bbc.com/news/world-europe-62179136)
-Aleksey Yukov has lost count of the bodies he's recovered in the Donbas over the past five months. He says he thinks it's more than 300, but he can't be sure. 
-## [The striking picture that will define a visit](https://www.bbc.com/news/world-middle-east-62189543)
-It was a striking photograph. The US president and the man he'd called a pariah, bumping fists in the gilded splendour of Jeddah's royal palace.
-## [How do the rich and famous protect their homes?](https://www.bbc.com/news/uk-61002030)
-With the jailing on Friday of one man for burglary at the home of ex-footballer Ashley Cole - in which he and his partner were bound with cable ties - how are wealthy homeowners fighting back to defend their homes? 
-## [Canada gunman's partner describes night of terror](https://www.bbc.com/news/world-us-canada-62102201)
-The common-law partner of the gunman behind Canada's worst mass shooting has said she feared for her life.
-## [Ivana Trump: Glamorous immigrant to US institution](https://www.bbc.com/news/world-us-canada-62173165)
-Ivana Trump, who died on Thursday at the age of 73, was a competitive skier, glamorous model and hard-driving businesswoman who became one half of New York City's ultimate power couple in the 1980s through her marriage to an up-and-comer she knew simply as "The Donald".
-## [Look out for vulnerable in heatwave, public urged](https://www.bbc.com/news/uk-62189515)
-Extra measures are being put in place for ambulance services as the UK heatwave approaches, says Health Secretary Steve Barclay.
+## [Ivana Trump died of blunt impact injuries to torso](https://www.bbc.com/news/world-us-canada-62187716)
+Ivana Trump, Donald Trump's first wife, died of "blunt impact injuries" to the torso, the New York City medical examiner's office has said.
+## [Cargo plane carrying weapons crashes in Greece](https://www.bbc.com/news/world-europe-62195005)
+A cargo plane which crashed in northern Greece was carrying 11 tonnes of weapons - including landmines - to Bangladesh, officials say.
