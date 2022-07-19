@@ -1,21 +1,21 @@
 # News
-## [Zelensky fires security chief and top prosecutor](https://www.bbc.com/news/world-europe-62202078)
-President Volodymyr Zelensky has fired the head of Ukraine's security agency (SBU) and the prosecutor general, citing many cases of treason in the two powerful organisations.
-## ['We did it' - Bennifer tie the knot in Las Vegas](https://www.bbc.com/news/entertainment-arts-62201888)
-Hollywood stars Jennifer Lopez and Ben Affleck have got married in Las Vegas, Ms Lopez has confirmed.
+## [Ferocious European heatwave heads north](https://www.bbc.com/news/world-europe-62216159)
+Western Europe faces more sweltering temperatures on Tuesday as a ferocious heatwave heads north. 
+## [The country where having a pet could soon land you in jail](https://www.bbc.com/news/world-middle-east-62205744)
+"He looks at me with his innocent and beautiful eyes. He is asking me to take him out for a walk, but I don't dare. We will get arrested."
+## [Parkland gunman faces death penalty as trial opens](https://www.bbc.com/news/world-us-canada-62209155)
+A gunman who killed 17 people at his former high school has gone on trial in Florida, with jurors set to decide whether he faces the death penalty or life in prison.
+## [Temperature tops 38C and likely to rise on Tuesday](https://www.bbc.com/news/uk-62201793)
+The UK has had one of its hottest days on record, with a high of 38.1C (100.6F) - and forecasters are warning it will be warmer still on Tuesday.
+## [Trump ally Steve Bannon goes on trial for contempt](https://www.bbc.com/news/world-us-canada-62214506)
+Steve Bannon, the former top adviser and campaign chief for Donald Trump, has gone on trial for refusing to co-operate with the congressional committee investigating the attack on the US Capitol.
+## [Iconic Iranian mosque damaged in restoration](https://www.bbc.com/news/world-middle-east-62214619)
+A 17th-Century Iranian mosque hailed as an architectural masterpiece has been damaged during restoration work, officials have admitted.
+## [Russia's independent TV Rain channel back on air](https://www.bbc.com/news/world-europe-62216940)
+TV Rain, Russia's last independent channel is back on air, more than four months after being forced to close over its coverage of the war in Ukraine.
 ## [Ghana confirms first cases of deadly Marburg virus](https://www.bbc.com/news/world-africa-62202240)
 Ghana has confirmed its first two cases of the deadly Marburg virus, a highly infectious disease in the same family as the virus that causes Ebola.
-## [Tory race gets personal in latest TV debate](https://www.bbc.com/news/uk-politics-62200186)
-Tory leadership rivals stepped up their attacks on each other's records and policies in their latest TV debate.
-## [More evacuations as Mediterranean wildfires spread](https://www.bbc.com/news/world-europe-62196045)
-France has evacuated more than 14,000 people threatened by wildfires in the south-west, as fires also spread in Spain, Croatia and Greece.
-## [Rugby player Ricky Bibey, 40, found dead in Italy - reports](https://www.bbc.com/news/uk-62195043)
-The former rugby league player Ricky Bibey has been named by Italian media as the 40-year-old Briton found dead in a Florence hotel on Saturday.
-## [Several arrests at protest over dying Iranian lake](https://www.bbc.com/news/world-middle-east-62199184)
-Police in Iran have arrested several people at protests against the near disappearance of what was once the world's second largest salt lake. 
-## [Why an accused Liberian warlord was killed in Canada](https://www.bbc.com/news/world-us-canada-62129337)
-Bill Horace, an accused Liberian warlord who fled to Canada, was shot to death in 2020. Now, his alleged killer will appear in court. Can justice ever be truly served?
-## [Ivana Trump died of blunt impact injuries to torso](https://www.bbc.com/news/world-us-canada-62187716)
-Ivana Trump, Donald Trump's first wife, died of "blunt impact injuries" to the torso, the New York City medical examiner's office has said.
-## [Cargo plane carrying weapons crashes in Greece](https://www.bbc.com/news/world-europe-62195005)
-A cargo plane which crashed in northern Greece was carrying 11 tonnes of weapons - including landmines - to Bangladesh, officials say.
+## [Netflix sued over Love Is Blind working conditions](https://www.bbc.com/news/entertainment-arts-62138224)
+A contestant on the second series of Netflix show Love Is Blind is suing the streaming service over alleged breaches of labour laws.
+## [Prince Harry warns UN of global assault on freedom](https://www.bbc.com/news/uk-62212140)
+Prince Harry has warned the United Nations general assembly of a "global assault on democracy and freedom".
