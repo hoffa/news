@@ -1,21 +1,21 @@
 # News
-## [Netflix loses almost a million subscribers](https://www.bbc.com/news/business-62226912)
-After enjoying a long reign as king of streaming, Netflix faces a fight to keep its crown.
-## [Russia plans to annex parts of Ukraine - US](https://www.bbc.com/news/world-europe-62231936)
-Russia plans to annex more Ukrainian territory using a similar "playbook" to its takeover of Crimea, the US says. 
-## [Fires blaze after UK passes 40C for first time](https://www.bbc.com/news/uk-62217282)
-The UK has recorded temperatures of over 40C (104F) for the first time.
-## [Records fall as extreme heat bakes Western Europe](https://www.bbc.com/news/world-europe-62231646)
-Records have tumbled and firefighters faced new blazes as much of Western Europe baked in a gruelling heatwave. 
-## [Chinese officials sorry for Covid-19 break-ins](https://www.bbc.com/news/world-asia-china-62228386)
-Chinese officials have apologised to residents of a locked-down community in Guangzhou for removing the locks on the doors to their homes. 
-## [Why some viewers are switching off Netflix](https://www.bbc.com/news/entertainment-arts-62219598)
-Subscribing to a streaming service can be a bit like ordering a take-away when you don't know what you want to eat - paying the money and hoping what arrives is to your taste.
-## [Ex-Trump aide felt above the law, prosecutors say](https://www.bbc.com/news/world-us-canada-62230848)
-Former Trump strategist Steve Bannon felt "above the law" by defying a legal summons to testify about last year's riot at the US Capitol, prosecutors said at the start of his trial. 
+## [Ivana Trump's funeral held in New York City](https://www.bbc.com/news/world-us-canada-62241953)
+The funeral of Ivana Trump, the ex-wife of Donald Trump, is being held in New York City, bringing the family together for a rare public gathering.  
+## [Russia expands war aims beyond east Ukraine](https://www.bbc.com/news/world-europe-62231936)
+Russia's military focus in Ukraine is no longer "only" the east of the country, Foreign Minister Sergei Lavrov has said. 
+## [Why an upgrade pushed millions in Canada offline](https://www.bbc.com/news/world-us-canada-62174477)
+In early July, a massive network outage at Rogers, a Canadian telecoms giant, forced more than 10 million customers - over a quarter of the country's population - off their internet or wireless services. The firm is now under intense pressure from regulators to explain what happened.
 ## [The country where having a pet could soon land you in jail](https://www.bbc.com/news/world-middle-east-62205744)
 "He looks at me with his innocent and beautiful eyes. He is asking me to take him out for a walk, but I don't dare. We will get arrested."
-## [Putin visits Iran in rare international trip](https://www.bbc.com/news/world-europe-62218696)
-Russian President Vladimir Putin met Turkish and Iranian leaders in Tehran on Tuesday - only his second foreign trip since he launched the invasion of Ukraine in February.
-## [Ukraine president widens purge of security services](https://www.bbc.com/news/world-62223264)
-President Volodymyr Zelensky has continued his purge of Ukraine's security service (SBU) by dismissing the organisation's deputy director. 
+## [Heatwave forced Google to shut down computers](https://www.bbc.com/news/technology-62202125)
+As record temperatures hit much of the UK on Tuesday, tech giants Google and Oracle suffered outages as cooling systems failed at London data centres. 
+## [Cheetahs to prowl India for first time in 70 years](https://www.bbc.com/news/world-asia-india-62239811)
+For the first time in 70 years, India's forests will be home to cheetahs.
+## [US recovers cash after suspected North Korean hack](https://www.bbc.com/news/technology-62239638)
+The US Department of Justice has seized $500,000 (£417,000) worth of Bitcoin from suspected North Korean hackers.
+## [Biden unveils $2.3bn plan to fight climate change](https://www.bbc.com/news/world-us-canada-62241954)
+US President Joe Biden has announced a $2.3bn (£1.9bn) investment to help build infrastructure that can withstand extreme weather and natural disasters. 
+## [Sunak and Truss final two in race to be PM](https://www.bbc.com/news/uk-politics-62241498)
+Rishi Sunak will face Liz Truss in the race to be the next prime minister, after Penny Mordaunt was eliminated in the latest Tory leadership ballot.
+## [Iraq row with Turkey over deadly Kurdistan attack](https://www.bbc.com/news/world-middle-east-62246911)
+A diplomatic row has erupted between Iraq and Turkey after nine civilians were killed when artillery shells hit a park in the Kurdistan region of Iraq.
